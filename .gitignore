@@ -1,3 +1,10 @@
 ```
+# Python
+__pycache__/
+*.pyc
+*.pyo
+*.pyd
+
+# Build artifacts
 output/
 ```
