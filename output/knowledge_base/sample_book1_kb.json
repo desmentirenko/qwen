@@ -1,0 +1,86 @@
+[
+  {
+    "id": "32281c9a05ee47e659036d87960d69814c38006126391a56342c44c0729876e7_page1_chunk0",
+    "document": "sample_book1.pdf",
+    "page": 1,
+    "chunk_index": 0,
+    "content": "Introduction to Python Programming\nSample Book\nAuthor: John Doe",
+    "word_count": 9,
+    "metadata": {
+      "title": "untitled",
+      "author": "anonymous",
+      "source_path": "/workspace/sample_pdfs/sample_book1.pdf",
+      "processed_at": "2026-06-03T05:05:53.859345"
+    }
+  },
+  {
+    "id": "32281c9a05ee47e659036d87960d69814c38006126391a56342c44c0729876e7_page2_chunk0",
+    "document": "sample_book1.pdf",
+    "page": 2,
+    "chunk_index": 0,
+    "content": "Chapter 1\nThis is page 2 of the sample book titled \"Introduction to Python Programming\".\nLorem ipsum dolor sit amet, consectetur adipiscing elit. Sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.\nUt enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat.\nKey points:\n- First important concept explained here\n- Second important concept with details\n- Third concept for comprehensive understanding\nThis demonstrates how the PDF processor extracts and converts content to different formats.\nDuis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur.",
+    "word_count": 100,
+    "metadata": {
+      "title": "untitled",
+      "author": "anonymous",
+      "source_path": "/workspace/sample_pdfs/sample_book1.pdf",
+      "processed_at": "2026-06-03T05:05:53.859345"
+    }
+  },
+  {
+    "id": "32281c9a05ee47e659036d87960d69814c38006126391a56342c44c0729876e7_page3_chunk0",
+    "document": "sample_book1.pdf",
+    "page": 3,
+    "chunk_index": 0,
+    "content": "Chapter 2\nThis is page 3 of the sample book titled \"Introduction to Python Programming\".\nLorem ipsum dolor sit amet, consectetur adipiscing elit. Sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.\nUt enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat.\nKey points:\n- First important concept explained here\n- Second important concept with details\n- Third concept for comprehensive understanding\nThis demonstrates how the PDF processor extracts and converts content to different formats.\nDuis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur.",
+    "word_count": 100,
+    "metadata": {
+      "title": "untitled",
+      "author": "anonymous",
+      "source_path": "/workspace/sample_pdfs/sample_book1.pdf",
+      "processed_at": "2026-06-03T05:05:53.859345"
+    }
+  },
+  {
+    "id": "32281c9a05ee47e659036d87960d69814c38006126391a56342c44c0729876e7_page4_chunk0",
+    "document": "sample_book1.pdf",
+    "page": 4,
+    "chunk_index": 0,
+    "content": "Chapter 3\nThis is page 4 of the sample book titled \"Introduction to Python Programming\".\nLorem ipsum dolor sit amet, consectetur adipiscing elit. Sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.\nUt enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat.\nKey points:\n- First important concept explained here\n- Second important concept with details\n- Third concept for comprehensive understanding\nThis demonstrates how the PDF processor extracts and converts content to different formats.\nDuis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur.",
+    "word_count": 100,
+    "metadata": {
+      "title": "untitled",
+      "author": "anonymous",
+      "source_path": "/workspace/sample_pdfs/sample_book1.pdf",
+      "processed_at": "2026-06-03T05:05:53.859345"
+    }
+  },
+  {
+    "id": "32281c9a05ee47e659036d87960d69814c38006126391a56342c44c0729876e7_page5_chunk0",
+    "document": "sample_book1.pdf",
+    "page": 5,
+    "chunk_index": 0,
+    "content": "Chapter 4\nThis is page 5 of the sample book titled \"Introduction to Python Programming\".\nLorem ipsum dolor sit amet, consectetur adipiscing elit. Sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.\nUt enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat.\nKey points:\n- First important concept explained here\n- Second important concept with details\n- Third concept for comprehensive understanding\nThis demonstrates how the PDF processor extracts and converts content to different formats.\nDuis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur.",
+    "word_count": 100,
+    "metadata": {
+      "title": "untitled",
+      "author": "anonymous",
+      "source_path": "/workspace/sample_pdfs/sample_book1.pdf",
+      "processed_at": "2026-06-03T05:05:53.859345"
+    }
+  },
+  {
+    "id": "32281c9a05ee47e659036d87960d69814c38006126391a56342c44c0729876e7_page6_chunk0",
+    "document": "sample_book1.pdf",
+    "page": 6,
+    "chunk_index": 0,
+    "content": "Chapter 5\nThis is page 6 of the sample book titled \"Introduction to Python Programming\".\nLorem ipsum dolor sit amet, consectetur adipiscing elit. Sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.\nUt enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat.\nKey points:\n- First important concept explained here\n- Second important concept with details\n- Third concept for comprehensive understanding\nThis demonstrates how the PDF processor extracts and converts content to different formats.\nDuis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur.",
+    "word_count": 100,
+    "metadata": {
+      "title": "untitled",
+      "author": "anonymous",
+      "source_path": "/workspace/sample_pdfs/sample_book1.pdf",
+      "processed_at": "2026-06-03T05:05:53.859345"
+    }
+  }
+]
