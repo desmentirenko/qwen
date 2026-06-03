@@ -1,16 +1,3 @@
 ```
-# Build/output directories
 output/
-
-# PDF files (if they are generated artifacts)
-*.pdf
-
-# HTML files (if they are generated artifacts)  
-*.html
-
-# JSON files in output directories (likely generated)
-output/**/*.json
-
-# Markdown files (if they are generated artifacts)
-*.md
 ```
