@@ -8,6 +8,7 @@ Supports both .pdf and .epub formats.
 import os
 import json
 import hashlib
+import re  # MEJORA 3: Importado para el splitting inteligente de oraciones
 from pathlib import Path
 from typing import Dict, List, Optional, Any
 from dataclasses import dataclass, asdict
@@ -30,7 +31,7 @@ except ImportError:
     EPUB_SUPPORT = False
     print("Warning: ebooklib or beautifulsoup4 not installed. EPUB support disabled. Install with: pip install ebooklib beautifulsoup4")
 
-import markdownify
+import markdownify  # MEJORA 1 y 2: Librería lista para ser usada
 
 
 @dataclass
@@ -129,73 +130,77 @@ class BookProcessor:
         )
     
     def _text_to_html(self, text: str) -> str:
-        """Convert plain text to basic HTML."""
-        # Escape HTML special characters
-        text = text.replace('&', '&amp;')
-        text = text.replace('<', '&lt;')
-        text = text.replace('>', '&gt;')
-        
-        # Convert paragraphs
+        """Convert plain text to basic HTML (used mainly for PDFs)."""
+        text = text.replace('&', '&amp;').replace('<', '&lt;').replace('>', '&gt;')
         paragraphs = text.split('\n\n')
         html_parts = []
         for para in paragraphs:
             if para.strip():
-                # Convert line breaks within paragraphs
                 para = para.replace('\n', '<br/>\n')
                 html_parts.append(f'<p>{para.strip()}</p>')
-        
         return '\n'.join(html_parts)
     
-    def _text_to_markdown(self, text: str) -> str:
-        """Convert plain text to Markdown format."""
-        lines = text.split('\n')
-        markdown_lines = []
-        
-        for line in lines:
-            stripped = line.strip()
-            
-            # Detect headers (simple heuristic)
-            if len(stripped) < 100 and stripped.endswith(':'):
-                markdown_lines.append(f'## {stripped[:-1]}')
-            # Detect lists
-            elif stripped.startswith('- ') or stripped.startswith('* '):
-                markdown_lines.append(stripped)
-            elif stripped and len(stripped) > 0:
-                markdown_lines.append(stripped)
-            else:
-                markdown_lines.append('')
-        
-        return '\n'.join(markdown_lines)
-    
-    def _create_knowledge_base_entry(self, page: PageContent, doc_metadata: DocumentMetadata) -> Dict[str, Any]:
-        """Create a knowledge base entry from a page."""
-        # Extract potential chunks for knowledge base
+    # MEJORA 1 y 2: Eliminada la función heurística antigua. 
+    # Ahora usamos markdownify para una conversión precisa de HTML a Markdown.
+    def _generate_markdown(self, html_content: str) -> str:
+        """Convert HTML to high-quality Markdown using markdownify."""
+        # heading_style="ATX" asegura que use # en lugar de === para los títulos
+        return markdownify.markdownify(html_content, heading_style="ATX").strip()
+
+    # MEJORA 3: Chunking inteligente que respeta los límites de las oraciones
+    def _create_knowledge_base_entry(self, page: PageContent, doc_metadata: DocumentMetadata) -> List[Dict[str, Any]]:
+        """Create knowledge base entries with sentence-aware chunking."""
         text = page.text
         chunks = []
         
-        # Split by paragraphs
+        # 1. Dividir primero por párrafos para mantener estructura
         paragraphs = [p.strip() for p in text.split('\n\n') if p.strip()]
+        
+        # 2. Regex para dividir por oraciones (detecta . ! ? seguidos de espacio)
+        sentence_splitter = re.compile(r'(?<=[.!?])\s+')
         
         current_chunk = []
         current_length = 0
+        MAX_CHUNK_SIZE = 500  # Límite de caracteres por chunk
         
         for para in paragraphs:
-            para_length = len(para)
-            if current_length + para_length > 500:  # Chunk size limit
-                if current_chunk:
+            # Dividir el párrafo en oraciones
+            sentences = sentence_splitter.split(para)
+            
+            for sentence in sentences:
+                sentence = sentence.strip()
+                if not sentence:
+                    continue
+                
+                sentence_length = len(sentence)
+                
+                # Caso borde: una sola oración es más larga que el límite (ej. URL larga)
+                if sentence_length > MAX_CHUNK_SIZE:
+                    if current_chunk:
+                        chunks.append(' '.join(current_chunk))
+                        current_chunk = []
+                        current_length = 0
+                    # Forzar división de la oración gigante
+                    for i in range(0, len(sentence), MAX_CHUNK_SIZE):
+                        chunks.append(sentence[i:i+MAX_CHUNK_SIZE])
+                    continue
+                
+                # Si añadir la oración supera el límite, guardamos el chunk actual y empezamos uno nuevo
+                if current_length + sentence_length + 1 > MAX_CHUNK_SIZE: # +1 por el espacio
                     chunks.append(' '.join(current_chunk))
-                current_chunk = [para]
-                current_length = para_length
-            else:
-                current_chunk.append(para)
-                current_length += para_length
-        
+                    current_chunk = [sentence]
+                    current_length = sentence_length
+                else:
+                    current_chunk.append(sentence)
+                    current_length += sentence_length + 1
+                    
+        # Guardar el último chunk si queda algo
         if current_chunk:
             chunks.append(' '.join(current_chunk))
         
         entries = []
         for i, chunk in enumerate(chunks):
-            if len(chunk.strip()) > 50:  # Minimum chunk size
+            if len(chunk.strip()) > 50:  # Tamaño mínimo para ser útil
                 entry = {
                     'id': f"{doc_metadata.file_hash}_page{page.page_number}_chunk{i}",
                     'document': doc_metadata.filename,
@@ -248,11 +253,11 @@ class BookProcessor:
             # Extract text
             text = page.extract_text() or ""
             
-            # Convert to HTML
+            # Generar HTML básico desde el texto plano
             html = self._text_to_html(text)
             
-            # Convert to Markdown
-            markdown = self._text_to_markdown(text)
+            # MEJORA: Usar markdownify sobre el HTML generado para un Markdown mucho mejor
+            markdown = self._generate_markdown(html)
             
             # Calculate word count
             word_count = len(text.split())
@@ -361,15 +366,17 @@ class BookProcessor:
                 # Get HTML content
                 html_content = item.get_content().decode('utf-8', errors='ignore')
                 
-                # Parse HTML to extract text
                 soup = BeautifulSoup(html_content, 'lxml')
+                
+                # MEJORA: Eliminar scripts y estilos para evitar basura en el texto/markdown
+                for script_or_style in soup(["script", "style"]):
+                    script_or_style.extract()
+                
+                clean_html = str(soup)
                 text = soup.get_text(separator='\n', strip=True)
                 
-                # Convert to clean HTML
-                clean_html = self._text_to_html(text)
-                
-                # Convert to Markdown
-                markdown = self._text_to_markdown(text)
+                # MEJORA: Usar markdownify directamente sobre el HTML limpio del EPUB
+                markdown = self._generate_markdown(clean_html)
                 
                 # Calculate word count
                 word_count = len(text.split())
