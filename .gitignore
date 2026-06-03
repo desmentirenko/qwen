@@ -1,1 +1,10 @@
-(pdf_processor.py is a source file, and there are no build artifacts, dependencies, or temporary files in the changes)
+```
+# Build/output directories
+output/
+
+# PDF files (if they are generated/build artifacts)
+*.pdf
+
+# Knowledge base and metadata files
+*.json
+```
