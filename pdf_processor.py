@@ -1,7 +1,8 @@
 #!/usr/bin/env python3
 """
-PDF Book Processor
-Converts PDF books to HTML and Markdown formats, and processes content for knowledge base storage.
+PDF and EPUB Book Processor
+Converts books to HTML, Markdown, and processes content for knowledge base storage.
+Supports both .pdf and .epub formats.
 """
 
 import os
@@ -12,8 +13,23 @@ from typing import Dict, List, Optional, Any
 from dataclasses import dataclass, asdict
 from datetime import datetime
 
-from pypdf import PdfReader
-from bs4 import BeautifulSoup
+# PDF imports
+try:
+    from pypdf import PdfReader
+    PDF_SUPPORT = True
+except ImportError:
+    PDF_SUPPORT = False
+    print("Warning: pypdf not installed. PDF support disabled. Install with: pip install pypdf")
+
+# EPUB imports
+try:
+    from ebooklib import epub
+    from bs4 import BeautifulSoup
+    EPUB_SUPPORT = True
+except ImportError:
+    EPUB_SUPPORT = False
+    print("Warning: ebooklib or beautifulsoup4 not installed. EPUB support disabled. Install with: pip install ebooklib beautifulsoup4")
+
 import markdownify
 
 
@@ -53,8 +69,8 @@ class ProcessedDocument:
     knowledge_base_entries: List[Dict[str, Any]]
 
 
-class PDFProcessor:
-    """Main class for processing PDF books."""
+class BookProcessor:
+    """Main class for processing PDF and EPUB books."""
     
     def __init__(self, output_dir: str = "output"):
         self.output_dir = Path(output_dir)
@@ -73,7 +89,7 @@ class PDFProcessor:
                 sha256_hash.update(chunk)
         return sha256_hash.hexdigest()
     
-    def _extract_metadata(self, reader: PdfReader, file_path: Path) -> DocumentMetadata:
+    def _extract_metadata_pdf(self, reader: PdfReader, file_path: Path) -> DocumentMetadata:
         """Extract metadata from PDF."""
         metadata = reader.metadata or {}
         
@@ -88,6 +104,28 @@ class PDFProcessor:
             author=metadata.get('/Author', ''),
             subject=metadata.get('/Subject', ''),
             keywords=metadata.get('/Keywords', '')
+        )
+    
+    def _extract_metadata_epub(self, book: epub.EpubBook, file_path: Path) -> DocumentMetadata:
+        """Extract metadata from EPUB."""
+        # Get authors from metadata
+        authors = []
+        if hasattr(book, 'metadata') and book.metadata:
+            for meta in book.metadata:
+                if meta[0] == 'creator':
+                    authors.append(meta[1])
+        
+        return DocumentMetadata(
+            filename=file_path.name,
+            file_path=str(file_path.absolute()),
+            file_hash=self._calculate_file_hash(file_path),
+            total_pages=len(list(book.get_items())),  # Chapters/items count
+            total_words=0,
+            processed_at=datetime.now().isoformat(),
+            title=book.title or '',
+            author=', '.join(authors) if authors else '',
+            subject=getattr(book, 'language', ''),
+            keywords=''
         )
     
     def _text_to_html(self, text: str) -> str:
@@ -178,6 +216,9 @@ class PDFProcessor:
     
     def process_pdf(self, pdf_path: str) -> ProcessedDocument:
         """Process a single PDF file."""
+        if not PDF_SUPPORT:
+            raise RuntimeError("PDF support is not available. Install pypdf.")
+        
         pdf_path = Path(pdf_path)
         
         if not pdf_path.exists():
@@ -186,13 +227,13 @@ class PDFProcessor:
         if not pdf_path.suffix.lower() == '.pdf':
             raise ValueError(f"File is not a PDF: {pdf_path}")
         
-        print(f"Processing: {pdf_path.name}")
+        print(f"Processing PDF: {pdf_path.name}")
         
         # Read PDF
         reader = PdfReader(str(pdf_path))
         
         # Extract metadata
-        doc_metadata = self._extract_metadata(reader, pdf_path)
+        doc_metadata = self._extract_metadata_pdf(reader, pdf_path)
         
         # Process each page
         pages = []
@@ -283,6 +324,125 @@ class PDFProcessor:
         
         return result
     
+    def process_epub(self, epub_path: str) -> ProcessedDocument:
+        """Process a single EPUB file."""
+        if not EPUB_SUPPORT:
+            raise RuntimeError("EPUB support is not available. Install ebooklib and beautifulsoup4.")
+        
+        epub_path = Path(epub_path)
+        
+        if not epub_path.exists():
+            raise FileNotFoundError(f"EPUB file not found: {epub_path}")
+        
+        if not epub_path.suffix.lower() == '.epub':
+            raise ValueError(f"File is not an EPUB: {epub_path}")
+        
+        print(f"Processing EPUB: {epub_path.name}")
+        
+        # Read EPUB
+        book = epub.read_epub(str(epub_path))
+        
+        # Extract metadata
+        doc_metadata = self._extract_metadata_epub(book, epub_path)
+        
+        # Process each chapter/item
+        chapters = []
+        full_text_parts = []
+        full_html_parts = []
+        full_markdown_parts = []
+        knowledge_base_entries = []
+        
+        chapter_num = 0
+        for item in book.get_items():
+            # Check if item is an HTML content item (EpubHtml with xhtml media type)
+            if hasattr(item, 'media_type') and 'xhtml' in item.media_type:
+                chapter_num += 1
+                
+                # Get HTML content
+                html_content = item.get_content().decode('utf-8', errors='ignore')
+                
+                # Parse HTML to extract text
+                soup = BeautifulSoup(html_content, 'lxml')
+                text = soup.get_text(separator='\n', strip=True)
+                
+                # Convert to clean HTML
+                clean_html = self._text_to_html(text)
+                
+                # Convert to Markdown
+                markdown = self._text_to_markdown(text)
+                
+                # Calculate word count
+                word_count = len(text.split())
+                
+                # Create chapter content (treating chapters like pages)
+                chapter_content = PageContent(
+                    page_number=chapter_num,
+                    text=text,
+                    html=clean_html,
+                    markdown=markdown,
+                    word_count=word_count
+                )
+                chapters.append(chapter_content)
+                
+                # Accumulate full document content
+                full_text_parts.append(text)
+                full_html_parts.append(clean_html)
+                full_markdown_parts.append(markdown)
+                
+                # Create knowledge base entries
+                kb_entries = self._create_knowledge_base_entry(chapter_content, doc_metadata)
+                knowledge_base_entries.extend(kb_entries)
+        
+        # Update total word count and page count
+        doc_metadata.total_words = sum(c.word_count for c in chapters)
+        doc_metadata.total_pages = len(chapters)
+        
+        # Create full document content with structure
+        full_text = '\n\n---\n\n'.join(full_text_parts)
+        
+        full_html = f"""<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>{doc_metadata.title or epub_path.stem}</title>
+    <style>
+        body {{ font-family: Arial, sans-serif; max-width: 800px; margin: 0 auto; padding: 20px; }}
+        .chapter-break {{ page-break-after: always; border-top: 1px solid #ccc; margin: 20px 0; }}
+    </style>
+</head>
+<body>
+<h1>{doc_metadata.title or epub_path.stem}</h1>
+<p><strong>Author:</strong> {doc_metadata.author or 'Unknown'}</p>
+{''.join(full_html_parts)}
+</body>
+</html>"""
+        
+        full_markdown = f"""# {doc_metadata.title or epub_path.stem}
+
+**Author:** {doc_metadata.author or 'Unknown'}  
+**Processed:** {doc_metadata.processed_at}
+
+---
+
+""" + '\n\n---\n\n'.join(full_markdown_parts)
+        
+        # Create result
+        result = ProcessedDocument(
+            metadata=doc_metadata,
+            full_text=full_text,
+            full_html=full_html,
+            full_markdown=full_markdown,
+            pages=chapters,  # Reusing pages field for chapters
+            knowledge_base_entries=knowledge_base_entries
+        )
+        
+        print(f"  - Chapters: {doc_metadata.total_pages}")
+        print(f"  - Total words: {doc_metadata.total_words}")
+        print(f"  - Knowledge base entries: {len(knowledge_base_entries)}")
+        
+        return result
+    
     def save_document(self, doc: ProcessedDocument, base_name: Optional[str] = None):
         """Save processed document in all formats."""
         if base_name is None:
@@ -312,29 +472,37 @@ class PDFProcessor:
             json.dump(asdict(doc.metadata), f, indent=2, ensure_ascii=False)
         print(f"  Saved Metadata: {meta_path}")
     
-    def process_directory(self, input_dir: str, pattern: str = "*.pdf"):
-        """Process all PDF files in a directory."""
+    def process_directory(self, input_dir: str, pattern: str = "*.*"):
+        """Process all PDF and EPUB files in a directory."""
         input_path = Path(input_dir)
         
         if not input_path.exists():
             raise FileNotFoundError(f"Directory not found: {input_dir}")
         
-        pdf_files = list(input_path.glob(pattern))
+        # Find both PDF and EPUB files
+        pdf_files = list(input_path.glob("*.pdf"))
+        epub_files = list(input_path.glob("*.epub"))
+        all_files = pdf_files + epub_files
         
-        if not pdf_files:
-            print(f"No PDF files found in {input_dir}")
+        if not all_files:
+            print(f"No PDF or EPUB files found in {input_dir}")
             return []
         
-        print(f"Found {len(pdf_files)} PDF file(s)")
+        print(f"Found {len(all_files)} book file(s) ({len(pdf_files)} PDF, {len(epub_files)} EPUB)")
         results = []
         
-        for pdf_file in pdf_files:
+        for book_file in all_files:
             try:
-                doc = self.process_pdf(pdf_file)
+                if book_file.suffix.lower() == '.pdf':
+                    doc = self.process_pdf(book_file)
+                elif book_file.suffix.lower() == '.epub':
+                    doc = self.process_epub(book_file)
+                else:
+                    continue
                 self.save_document(doc)
                 results.append(doc)
             except Exception as e:
-                print(f"Error processing {pdf_file.name}: {e}")
+                print(f"Error processing {book_file.name}: {e}")
         
         return results
     
@@ -370,18 +538,24 @@ def main():
     """Main entry point."""
     import argparse
     
-    parser = argparse.ArgumentParser(description='Process PDF books to HTML, Markdown, and Knowledge Base')
-    parser.add_argument('input', nargs='?', default='.', help='Input PDF file or directory')
+    parser = argparse.ArgumentParser(description='Process PDF and EPUB books to HTML, Markdown, and Knowledge Base')
+    parser.add_argument('input', nargs='?', default='.', help='Input book file (PDF/EPUB) or directory')
     parser.add_argument('-o', '--output', default='output', help='Output directory')
     parser.add_argument('--index', action='store_true', help='Create knowledge base index')
     
     args = parser.parse_args()
     
-    processor = PDFProcessor(output_dir=args.output)
+    processor = BookProcessor(output_dir=args.output)
     input_path = Path(args.input)
     
     if input_path.is_file():
-        doc = processor.process_pdf(input_path)
+        if input_path.suffix.lower() == '.pdf':
+            doc = processor.process_pdf(input_path)
+        elif input_path.suffix.lower() == '.epub':
+            doc = processor.process_epub(input_path)
+        else:
+            print(f"Unsupported file format: {input_path.suffix}")
+            return 1
         processor.save_document(doc)
     elif input_path.is_dir():
         docs = processor.process_directory(input_path)
