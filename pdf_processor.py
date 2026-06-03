@@ -107,7 +107,7 @@ class BookProcessor:
             keywords=metadata.get('/Keywords', '')
         )
     
-    def _extract_metadata_epub(self, book: epub.EpubBook, file_path: Path) -> DocumentMetadata:
+    def _extract_metadata_epub(self, book, file_path: Path) -> DocumentMetadata:
         """Extract metadata from EPUB."""
         # Get authors from metadata
         authors = []
