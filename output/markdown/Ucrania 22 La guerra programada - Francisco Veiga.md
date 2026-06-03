@@ -1,0 +1,13374 @@
+# lu00191601.pdf
+
+**Author:** Unknown  
+**Processed:** 2026-06-03T06:15:15.317721
+
+---
+
+
+
+---
+
+
+
+---
+
+
+
+---
+
+UCRANIA 22
+
+
+---
+
+T
+oda la sobrecogedora sordidez de la guerra queda recogida en esta foto-grafía
+del ucraniano Evgeniy Maloletka (Berdiansk, 1987), al que ya se le
+han concedido varios premios internacionales —entre ellos el preciado V
+isa pour l’image— en base a su labor testimonial durante el sitio de Ma-riúpol,
+entre el 23 de febrero y mediados de marzo de 2022. Suyas son las
+fotos más dolorosas del impacto de la violencia sobre los civiles en la ciudad
+asediada, algunas de ellas ya icónicas. Pero en esta no vemos per-sonas,
+sino el efecto mismo de la brutalidad y la desolación al vacío. Casi podemos
+sentir cómo cruje todo ese bloque de pisos de la era brezneviana, u
+na arquitectura prefabricada y desmañada de hace unos sesenta años, ante e
+l impacto del cañonazo ruso que desgarra un frío amanecer de marzo d
+e 2022. No sabemos si el bloque está total o parcialmente habitado —al-g
+unas ventanas parecen abiertas desde antes del impacto—, pero la escena también
+nos habla de todos esos años de mal gobierno y gestión catastró-fi
+ca: una torre de alta tensión en plena zona residencial, una breznevka s
+oviética, esa deprimente colmena con su fachada todavía sin reformar, p
+orque, presumiblemente, los fondos para hacerlo se perdieron en algún bolsillo
+. T odo ese urbanismo golpeado por la explosión se alza sobre los pequeños
+edifi  cios tradicionales de la más vieja Mariúpol. Miseria y sufri-miento
+en otra ciudad europea golpeada por la guerra en los últimos años, tras
+Vukovar, Sarajevo, Belgrado o Jarkov, en la misma Ucrania.
+© E
+vgeniy Maloletka / AP Photo / Gtres
+
+---
+
+F
+RANCISCO VEIGAU
+CRANIA 22La guerra programada
+ALIANZA EDIT
+ORIAL
+
+---
+
+P
+rimera edición: 2022P
+rimera reimpresión: 2023R
+eservados todos los derechos. El contenido de esta obra está protegido por la Ley, que establece penas de p
+risión y/o multas, además de las correspondientes indemnizaciones por daños y perjuicios, para quienes r
+eprodujeren, plagiaren, distribuyeren o comunicaren públicamente, en todo o en parte, una obra literaria, ar
+tística o científi  ca, o su transformación, interpretación o ejecución artística fi  jada en cualquier tipo de s
+oporte o comunicada a través de cualquier medio, sin la preceptiva autorización.©
+Francisco José Veiga Rodríguez, 2022©
+Alianza Editorial, S. A., Madrid, 2022, 2023V
+alentín Beato, 21; 28037 Madridwww
+.alianzaeditorial.esISBN: 978-84-1362-998-8
+D
+epósito Legal: M. 19.287-2022P
+rinted in SpainSI
+QUIERE RECIBIR INFORMACIÓN PERIÓDICA SOBRE LAS NOVEDADES DE ALIANZAE
+DITORIAL, ENVÍE UN CORREO ELECTRÓNICO A LA DIRECCIÓN:alianzaeditorial@anaya.es
+
+
+---
+
+ÍN
+DICEIN
+TRODUCCIÓN  ..................................................................................... 9
+1. LA GUERRA DE LOS MUNDOS. EL GUION HACKETT PARA U
+NA TERCERA GUERRA MUNDIAL, 1985  ................................... 15
+2. EL AMIGO AMERICANO. ESTADOS UNIDOS, UCRANIA Y EL F
+INAL DE LA UNIÓN SOVIÉTICA, 1986-1991 ..............................  27
+3. UCRANIZAR UCRANIA. POLÍTICA M ULTIVECTORY  EXPAN-RS
+IÓN DE LA OTAN HACIA EL ESTE, 1992-1994  ........................... 43
+4. NARANJA MECÁNICA. EL FIN DE LA ERA KUCHMA Y L A RE-V
+OLUCIÓN NARANJA, 1995 -2004  .................................................... 63
+5. MITOS DE GAS. EL FRACASO DE LA EXPERIENCIA LIBERAL E
+N UCRANIA, 2005-2008  .................................................................. 87
+6. MORIR EN INVIERNO. YANUKOVICH Y LA REVUELTA DELE
+UROMAIDAN, 2009 -2014  ................................................................ 101
+7. MATAR EN PRIMAVERA. ESTALLA LA GUERRA DEL DONBAS, 2014
+...................................................................................................... 121
+8. CAÍN CONTRA CAÍN. GUERRA CIVIL ENTRE NEONAZIS Y N
+EOFASCISTAS  ................................................................................. 139
+
+---
+
+8
+8U CRANIA 22
+9. GRANDES PLANES DE HUMO. EL RÉGIMEN DEL EUROMAI-D
+AN A PLICA LA TERAPIA DE CHOQUE, 2015-2016  ................... 16310.
+VIEJOS Y JÓVENES. DE OBAMA A TRUMP , DE POROSHENKO A
+ZELENSKI, 2017-2019  .................................................................... 17911.
+PELEAS EN CALLES VACÍAS. BAJO LA PANDEMIA, 2020-2021  .  19712.
+#HOTWAR 22. PRIMERA FASE DE LA GUERRA DE UCRANIA, F
+EBRERO-MARZO DE 2022  ............................................................. 2191
+3. CINTA AMERICANA. SEGUNDA FASE DE LA GUERRA DE U
+CRANIA, ABRIL-JULIO DE 2022  .................................................. 237DE
+LA TRAMPA BALCÁNICA A LA TRAMPA 22. CONCLUSIONES E
+N PRIMERA PERSONA  ................................................................... 261B
+IBLIOGRAFÍA Y REFERENCIAS  ........................................................... 311ÍN
+DICE ONOMÁSTICO  .......................................................................... 319
+
+---
+
+I
+NTRODUCCIÓNE
+l título de esta obra hace referencia, lógicamente, al año 2022 en que se desencadenó
+la segunda parte de un conflicto que había comenzado ocho a
+ños antes. Pero también a la célebre novela de Joseph Heller, Tr ampa 22 (C
+atch-22), una sátira antibelicista y de ficción política publicada en 1961, q
+ue se considera una de las obras más importantes de la novelística del siglo
+xx .  A su vez, ese juego de alusiones encierra otras. Como en la obra d
+e Heller, el enemigo está tanto al otro lado como en las propias filas, y más
+especialmente entre aquellos que nos mandan y gobiernan. Esa situa-ción
+se ha puesto plenamente de relieve en la presente guerra de Ucrania, en
+la cual una parte de los responsables políticos y militares, analistas y p
+rofesionales de los medios de comunicación quedaron atrapados en el doble
+rasero, en su propio triunfalismo y en la ineficacia y descontrol que se
+adivina detrás, convirtiendo el conflicto ucraniano, desde su mismo arranque,
+ya en 1991, en una enorme Tr ampa 22en  la cual nadie parece2q
+ue vaya a obtener ningún beneficio claro. Por supuesto, ese mismo me-canismo
+autodestructivo estuvo presente y lo sigue estando, también, en el bando r
+uso.A
+su vez, Ucr ania 22p osee una voluntad de obra historiográfica con2un
+trasfondo experimental en lo narrativo. Por supuesto, nada ni remota-mente
+parecido a la obra de Heller; pero sí que incorpora al autor en
+
+---
+
+10
+0 U CRANIA 22funciones
+de historiador y de fuente de primera mano. Desde 1976 hasta 2
+021 viajé por Europa del Este y otros escenarios de crisis, ya en el si-g
+lo xx/i.sc .  Conocí la Europa al otro lado del Telón de Acero mucho antes de q
+ue nadie pensara que iba a caer algún día. Cuando ello sucedió, fui testigo, d
+esde Rumanía, de las convulsiones que ello generó. Viví de cerca y a veces en
+directo, así como desde escenarios colaterales, algunas de las guerras de la
+antigua Yugoslavia entre 1991 y 2001. Analicé los vaivenes políticos en l
+a T urquía de Erdoğan, a partir de 2003 y hasta el violento golpe de 2016. V
+iví los comienzos de la guerra en Ucrania: estaba en Kiev cuando fue derribado
+el vuelo MH17 de Malaysia Airlines en julio de 2014. Mucha de
+la información obtenida y de las conclusiones extraídas las vertí en mis clases,
+en la universidad. Otra porción sirvió para escribir artículos de p
+rensa y libros, buena parte de ellos publicados en esta misma editorial. Ahora,
+esas vivencias engrosarán también esta obra. Y para incorporarlas a e
+lla recurro al relato en primera persona, incluido en unas largas conclu-siones que el lector encontrará al final de la obra.
+H
+acer eso me violenta. Durante años insistí machaconamente a mis a
+lumnos en la idea de que en los trabajos académicos no se debe de recurrir a
+la redacción en primera persona. Y seguiré haciéndolo. Pero en U crania 22
+v oy a saltarme mi propia recomendación por tres razones. Primero por-2q
+ue en el libro hay elementos de algo que podríamos denominar «reportaje h
+istoriográfico». Mis años como profesor de Historia Contemporánea en la F
+acultad de Ciencias de la Comunicación de la UAB me llevaron a trabajar o
+casionalmente comof reelanceren  algunos de los escenarios descritos más ra
+rriba, lo cual me enseñó mucho sobre cómo buscar y obtener información y
+gestionarla, sin saber qué va a suceder en un futuro próximo. Eso forma p
+arte del trabajo de aquellos profesionales que se ocupan de la Historia a
+ctual, eso es, los últimos treinta años, la última generación.E
+n segundo lugar, porque testimoniar en primera persona puede aña-dir
+un plus de empatía al asombro e incertidumbre de la época que debe-ría
+acompañar al historiador en su tarea; siempre debería hacerlo. En re-t
+rospectiva, resulta habitual que el historiador se cargue de razón en la interpr
+etación del pasado. Pero se pierde el factor emocional del momen-t
+o, que resulta imprescindible para entender esos miedos, ilusiones y deci-siones
+que explican por sí mismos tantas cosas en momentos clave del p
+asado. Como escribió el siempre tan polémico Nassim N. Taleb en su célebr
+e obra E l cisne negro (2007), «evaluamos las cosas solo después de los
+
+---
+
+I
+NTRODUCCIÓN11 hechos,
+como si se reflejaran en un retrovisor, de modo que la historia par
+ece más clara y organizada de lo que es». De ahí que a veces resulte impr
+escindible captar el momento y congelarlo en la memoria para recu-perarlo, lo más viv
+o y fresco posible, cuando se convierta en historia. P
+or último, la lectura de la obra de Enzo T raverso, P asados singulares. E
+l «yo» en la escritura de la historia, p ublicado recientemente en esta misma editorial
+(2022), me animó a experimentar con la idea de que el historia-dor
+puede llegar a ser, él mismo, fuente, documento y relato. Lo cual da p
+ie a un ejercicio de introspección sobre el origen profundo de nuestras conclusiones y formas de v
+er el mundo.E
+n este libro se va a tratar la guerra de Ucrania, la del presente año y la
+que comenzó en 2014. Pero también de los causantes, de los que la hi-cier
+on tristemente posible. Qué buscaban unos y otros, y cómo se alinea-r
+on los intereses y circunstancias, en el nuevo paradigma internacional que
+surgió de la pandemia del COVID, para que estallara un muy peligro-so
+conflicto el 24 de febrero de 2022. Las otras guerras: la de las sanciones y
+la energía en la cual quedó atrapada la Unión Europea, que se convirtió rápidamente
+en un conflicto aparte y que escapa con holgura los límites naturales
+de este libro. Los otros actores cercanos, con sus propios desig-ni
+os: T urquía, Israel, Polonia, Hungría y las ambiciones del proyecto In
+termarium de la Nueva Europa, que poca gente conoce a este lado del V
+iejo Continente. Los vetustos mecanismos: desde la Cuestión Oriental a
+los síntomas anticipatorios en el Cáucaso, esto es, las H ot Wars, l as guerras
+calientes de 2008, 2014 y 2020. Los nuevos mecanismos: la polí-ti
+ca de cinta americana, que incluye la Tr ampa 22, y un sinfín de falacias ló
+gicas. E
+n conjunto, se trata de un libro nervioso, desasosegado e intranqui-l
+izador, escrito en muy poco tiempo, a caballo del conflicto. En él no hay p
+ropaganda de guerra al uso. Al contrario, pretende hacer pensar. Falta todavía
+mucha información, y pasarán años hasta que la vayamos obte-niendo,
+mientras que otros acontecimientos, quizá distantes, nos aporta-rán
+contrastes para entender lo que sucedió en Ucrania. Pero de momen-to,
+los historiadores podemos explicar la trayectoria recorrida hasta llegar a
+l aquí y ahora. Lo cual, muchas veces, nos da una comprensión, incluso i
+ntuitiva, de dónde estamos y qué es lo que se debería hacer a continuación o
+qué nuevos problemas acechan. Es como el trabajo de cualquier médico: después
+de años de estudio y prácticas, cuando se presenta la enfermedad,
+
+---
+
+12
+2 U CRANIA 22la
+diagnostica con precisión. Es posible que no sepa qué va a pasar con el paciente
+en el futuro, pero sus conocimientos le sirven para curar o paliar la dolencia.
+E
+ste libro es también un ensayo de estructura inusual. Arranca del rela-t
+o del general sir John Hackett, a mediados de los años ochenta del s
+iglo xx ,  que cobrará vida nuevamente cuando estalle la guerra de Ucra-nia,
+en 2022, treinta y tantos años más tarde. Pero el camino hacia la tra-gedia
+de la guerra comienza con otro desastre, el de Chernóbil, el gran fa
+llo tecnológico del que parte la descomposición de la Unión Soviética y
+que define un periodo enmarcado por otro gran desastre: la pandemia de C
+OVID, en 2020. A lo largo de todos esos años, iremos viendo cómo la tragedia
+ucraniana se va gestando, tiempo antes de que llegue Putin al p
+oder. Y percibiremos que una serie de acontecimientos que creímos deci-siv
+os en los años noventa del siglo pasado se supeditaban en realidad al pulso
+que se estaba generando en Ucrania y en torno a Rusia, ya por en-tonces.
+I
+remos conociendo a los protagonistas de la Ucrania independiente, algunos
+olvidados como juguetes rotos: Viktor Yushchenko, líder de la R
+evolución Naranja, en quien tantas esperanzas se pusieron. Y que, como e
+l resto de los estadistas aupados por las revoluciones de colores, quedó en na
+da. Personajes ambiciosos, pero también torturados, como Leonid K
+uchma o Viktor Yanukovich, que fueron a parar a la papelera de la his-t
+oria. Nos asomaremos al problema histórico esencial de Ucrania, que quizá
+nosotros, por desgracia, podamos entender mejor que otros pueblos. S
+aldrán a la luz los oligarcas ucranianos, la «tercera fuerza», tan poderosos y
+astutos como los rusos, en algunos casos. Y viviremos con la gente de la calle
+las revueltas y revoluciones en el Maidan de Kiev, hasta llegar al Eu-r
+omaidan, que dio paso a la guerra civil. A partir de la guerra del Donbas, entender
+emos lo que sucedió en 2022, no sin pasar antes por otro conflic-to
+decisivo: la guerra del Alto Karabaj, en 2020. Poroshenko, el «rey del chocolate»,
+y el joven humorista Zelenski cierran la galería de líderes ucra-nianos
+que quizá habrían podido evitar la tragedia o tal vez sucumbieron a la
+T rampa 22.E
+l lector notará que el volumen de nota s a pie de página varía según los
+capítulos. Ello tiene que ver con el intento de evitar las sobrecargas de c
+itas en relación con acontecimientos ya muy asentados en la historia. Por el
+contrario, he querido documentar con más abundancia extremos más
+
+---
+
+I
+NTRODUCCIÓN13 polémicos,
+por recientes, por aquello de preservar esos detalles de la inme-d
+iatez de los acontecimientos que dan frescura a la historia; y que luego, con
+el tiempo, tienden a disolverse en un relato más estereotipado. Esas citas
+incluyen noticias y análisis de prensa y testimonios extraídos de redes sociales, desde tuits hasta entr
+evistas publicadas en YouT ube.P
+ara terminar, quiero dar las gracias a Manuel Florentín en primer l
+ugar, que creyó en este proyecto, quizás por esa doble naturaleza suya de e
+ditor y periodista. Espero que no le decepcione. A Arturo Esteban, que siguió
+al detalle la guerra de Ucrania y me ayudó mucho compartiendo d
+etalles relevantes sobre su evolución militar . A mi amigo y maestro, el p
+rofesor Enrique Ucelay Da Cal, cuyo punto de vista es indispensable en t
+odo lo relativo a la política estadounidense y las relaciones internaciona-l
+es. A la profesora y compañera Sinem Eryilmaz, eminente otomanista, que s
+iempre evita que me pierda en el laberinto turco. A Arnau Roura, quien d
+esde Polonia completó mi colección de análisis sobre In termarium.  Y a la d
+octora Pilar Pérez, que me aclaró algunos interrogantes médicos, como el s
+upuesto envenenamiento de Yushchenko o las autopsias a los falsos cadáve-r
+es de torturados en Timişoara, en 1989, entre otros detalles por el estilo.P
+ero, sobre todo, quiero expresar mi agradecimiento a los protagonis-t
+as de las historias relatadas en el epílogo. Algunos, como el doctor G
+heorghe Brătescu o el señor Selahattin Beyazıt, ya no están entre noso-t
+ros. Otros aparecen en los relatos con nombres supuestos. A todos ellos, muchas
+gracias por su amabilidad y por confiar en mí en esos momentos de
+nuestras vidas en los que solo podemos hacer eso: cruzar los dedos y confiar
+.B
+arcelona, 4 de julio de 2022
+
+---
+
+
+
+---
+
+C
+APÍTULO 1L
+A GUERRA DE LOS MUNDOSEL
+GUION HACKETT P
+ARA UNA TERCERA GUERRA MUNDIAL, 1985Dies iræ, dies illa,
+Solv
+et sæclum in favilla,T
+este David cum Sibylla!Q
+uantus tremor est futurus,quando iudex est v
+enturus,cuncta stricte discussur
+us!Dies I
+rae, siglo x/i.sc/i.sc/i.sc L
+a T ercera Guerra Mundial estalló el 4 de agosto de 1985. Como todas las grandes
+guerras clásicas, comenzó en verano, por aquello de aprovechar el b
+uen tiempo y porque el común de los mortales, en el país atacado, suele e
+star de vacaciones o buscando ausentarse de sus preocupaciones cotidia-n
+as durante el resto del año. La movilización previa, en el Pacto de Varsovia, s
+e había extendido durante cuatro semanas, y al final, el ataque había caído como una losa indefectible.
+La
+magnitud del asalto cuando se sintió por primera vez en toda su furia y fur
+or fue, no obstante, menos asombrosa, particularmente para aquellos, en el
+mundo occidental (y estos eran la mayoría), que habían prestado poca atención
+en el pasado a los presagios para el futuro. Las bombas traían muer-t
+e y devastación en tierra, los aviones explotaban en fragmentos de fuego en e
+l cielo. Los barcos estaban siendo hundidos en el mar y los hombres en ellos c
+onvertidos en pulpa, electrocutados, quemados hasta morir o ahogados. O
+tros hombres morían espantosamente en el clamor llameante y la confu-sión
+de la batalla terrestre. Otra guerra mundial había estallado sobre la hu-m
+anidad. Si bien el curso de la vida en las cortas tres semanas de la T ercera
+
+---
+
+16
+6 U CRANIA 22G
+uerra Mundial no tuvo tiempo de verse tan radicalmente afectado como en l
+os cinco o seis años de cada una de las dos primeras, es probable que las con-s
+ecuencias de esta guerra sean de mayor alcance que cualquiera antes de eso1 . Las
+huestes del Este, masas de acero transportadas sobre cadenas chirrian-tes,
+asaltaban Occidente como lo habían hecho las hordas de Yinyis Yan en
+el siglo x/i.sc/i.sc/i.sc ,  cuando un monje franciscano, o quizás un papa, compuso Dies
+Irae: « ¡Será un día de ira, aquel día en que el mundo se reduzca a ce-nizas,
+como predijeron David y la Sibila! ¡Cuánto terror habrá en el futuro cuando
+el juez haya de venir para hacer estrictas cuentas!». El retumbar de l
+as orugas mecánicas y los graves disparos de gran calibre, trasfondo de las f
+renéticas transmisiones como graznidos en lenguas bárbaras, el tambori-leo
+de las aspas de los helicópteros de ataque y los desgarros de los cohetes s
+aliendo a matar el blanco, se extendieron y desperdigaron por las ordena-das campiñas de E
+uropa Central.P
+ero, de hecho, la guerra había comenzado el día 27 de julio, cuando t
+ropas del Pacto de Varsovia entraron en la debilitada Yugoslavia para ayu-d
+ar a las autoridades federales. La situación allí se había ido de las manos tras
+la muerte del mariscal Tito, cinco años antes, y las tropas soviéticas y yugoslav
+as unieron fuerzas para castigar a la díscola Eslovenia. Los esta-dounidenses
+enviaron ayuda desde Italia y, fatalmente, se produjo el pri-m
+er choque. Washington había intentado mostrarse discreto con lo ocurri-d
+o, pero un documentalista italiano filtró desde Eslovenia la filmación de los
+combates y de los primeros carros soviéticos ardiendo. Y las imágenes dier
+on la vuelta al mundo, reventando cualquier intento de salida diplo-mática a la situación.
+L
+a T ercera Guerra Mundial nunca acaeció. Este relato fue fruto de la v
+eterana fantasía del general británico sir John Hackett, GCB, CBE, DSO &
+Bar, MC. El libro se tituló: L a T ercera Guerra Mundialy  se publicó enld
+os versiones: la primera en 1979, y la segunda, que tuvo mucho más éxito
+comercial, en 1982. Llevaba como subtítulo el añadido: L a Historia no
+relatada.  Para entonces, hacía poco de la muerte de Tito y de las protes-tas
+obreras organizadas en Polonia por el sindicato católico Solidaridad, que
+por poco no tumbaron al régimen comunista y habían terminado con un
+golpe de Estado militar. Ambos sucesos le habían dado al autor del li-1
+Hackett (1982): pos. 169.
+
+---
+
+L
+A GUERRA DE LOS MUNDOS17 b
+ro un trasfondo político de desestabilización en el Este mucho más fide-digno para su ficción bélica.
+E
+l título lo decía todo: era seco, austero, como la apariencia del mis-mo
+general sir John Hackett, bigote recortado de estilo militar, nervudo, r
+ecto y perpendicular al swagger stickqu e a veces lucía bajo el brazo en losstickpases
+de revista. No era para menos. L a T ercera Guerra Mundial, de estilo á
+rido y sin concesiones a la literatura, era, más bien, un prolijo y largo i
+nforme convertido en una obra de historia ficción, aunque se incluían en él
+algunos personajes imaginados para relatar el ataque, también desde las filas de los combatientes.
+E
+l autor de la obra, el general Hackett, era un coriáceo veterano de la S
+egunda Guerra Mundial, un héroe aguerrido e imaginativo, impulsor de las
+míticas unidades especiales británicas: el Special Air Service, el Long R
+ange Desert Group y el Popski’s Private Army. Organizó y comandó la 4
+.ª Brigada Paracaidista que saltó sobre Arnhem, en Holanda, en 1944. A
+quel legendario desastre glorificado por la historia militar británica, don-de
+él mismo fue herido de gravedad, y tras reponerse logró escapar con a
+yuda de la resistencia local. Su biógrafo, Roy Fullick, definió su vida c
+on un descriptivo subtítulo: «En persecución de la exactitud».U
+na vez terminado el conflicto, Sir John Sh asH ackett mandó duran-ste
+un tiempo la T rans-Jordan Frontier Force, en Palestina, y luego medró e
+n el Ejército británico, y más allá. Dirigió el Royal Military College of Science
+devino comandante en jefe del Northern Ireland Command en 1
+961. Y hasta fue nombrado ministro de Defensa, dos años más tarde. P
+ero eso no fue todo. La culminación real de su carrera llegó en 1965, cuando
+fue nombrado general en jefe del Ejército británico en el Rin, y d
+el Northern Army Group de la OTAN. P
+or lo tanto, el autor de L a T ercera Guerra Mundial sabía muy bien de l
+o que escribía; y desde luego no tuvo problemas con la censura a pesar d
+e estar revelando el resultado de decenas de informes, análisis y planes de contingencia
+de la OTAN con respecto al Pacto de Varsovia. El general H
+ackett buscaba, con toda la intención, poner de relieve que el Bloque del Este
+estaba maduro para que se pudieran explotar con eficacia letal sus talones
+de Aquiles nacionalistas: comenzando por Yugoslavia y terminan-do por algunas r
+epúblicas soviéticas. S
+egún el relato ficticio de Hackett, a la altura del 14 de agosto, las f
+uerzas del Pacto de Varsovia ocupaban ya el norte de la República Federal
+
+---
+
+18
+8 U CRANIA 22d
+e Alemania, así como Holanda. Por el sur, habían invadido casi toda B
+aviera y avanzaban hacia la frontera francesa. Las grandes ciudades ha-bían
+sido sobrepasadas sin intentar asaltos frontales (Berlín, Hamburgo), p
+ero los soviéticos no habían logrado crear una brecha lo suficientemente a
+mplia y profunda como para lanzar por ella a la enorme masa de blinda-dos,
+explotar con éxito la ruptura, embolsar grandes unidades enemigas y conseguir
+la victoria definitiva. Las fuerzas de la OTAN, por su parte, habían
+sido vapuleadas —en especial las tropas alemanas—, pero en con-j
+unto resistían bien. No se había producido ningún colapso en el frente. Y entonces, sucedió
+.L
+os soviéticos empezaron a perder resuello sobre el terreno. Las defen-s
+as anticarro de los aliados le causaban al invasor más estragos de los espe-rados,
+los blindados del Ejército Rojo no eran de la mejor calidad y la coor
+dinación era todo un problema, tanto entre reservistas mal entrena-d
+os y tropas de primera línea, así como entre las unidades de los diferentes países
+del Pacto de Varsovia. Pero, sobre todo, la doctrina militar soviética r
+esultaba muy rígida: solo contemplaba el avance sin descanso, en oleadas sucesiv
+as que iban siendo sustituidas por las siguientes, conforme las pri-meras
+eran aniquiladas o quedaban fuera de combate. Hackett puntuali-zaba
+que las fuerzas de choque incluían «batallones barrera» del KGB. compr
+ometidos a evitar pánicos y retiradas y liquidar elementos poten-cialmente hostiles entr
+e la población.E
+l día decisivo, siempre en el relato ficticio del general Hackett, fue el 15
+de agosto, cuando se solaparon la primera contraofensiva de la OTAN e
+n dirección a Bremen con un nuevo empuje del Pacto de Varsovia en sentido
+contrario. El choque fue titánico pero, sobre todo, hizo que las fuer
+zas occidentales anticiparan algunos golpes decisivos. Un ataque aéreo de
+F-111 estadounidenses contra líneas de suministro en Polonia, que además
+contaron con el apoyo de saboteadores polacos, aleccionados por radio
+desde Occidente. O un bombardeo de alfombra de los B-52 esta-dounidenses llegados desde sus bases en las A
+zores. P
+ero lo más interesante, a casi cuarenta años vista, es que la ficción cuenta
+de pleno con las defecciones. Unidades y soldados, soviéticos y sus aliados,
+incapaces de soportar el ritmo brutal de la ofensiva, empiezan a f
+allar, a desertar. El caso más espectacular es el del T ercer Ejército de Cho-q
+ue, soviético, cuyo comandante, el general Ryzanov, decide cambiar de b
+ando. Convierte su unidad en Ejército Ruso de Liberación, envía enlaces
+
+---
+
+L
+A GUERRA DE LOS MUNDOS19 a
+tratar con el enemigo y da orden de disparar contra sus antiguos cama-radas.
+L
+os soviéticos pierden su ritmo de avance, no van a llegar al Rin en el t
+iempo previsto. Las reservas tampoco arriban desde Polonia, porque los bombar
+deos de la OTAN y los saboteadores polacos han complicado la l
+ogística. Falta infantería para acompañar a los tanques en su avance y es-tos
+son destruidos por las escuadras cazacarros del enemigo. T odo el dis-positiv
+o de ataque del Pacto de Varsovia se tambalea.E
+n Polonia, la Polonia de nuevo católica del sindicato Solidaridad, apenas
+acallada por la fuerza, se está cociendo una nueva revuelta. Se pro-d
+ucen rendiciones masivas de unidades de ese país en la línea de frente. El descontento se extiende a los P
+aíses Bálticos, a Ucrania. E
+n esa tesitura, el 19 de agosto, el Politburó de la Unión Soviética y el C
+onsejo de Defensa deciden lanzar un ataque nuclear selectivo contra un m
+iembro europeo de la Alianza Atlántica. El objetivo seleccionado será una
+ciudad importante, pero en ningún caso la capital. Se evitaba atacar a los
+Estados Unidos para evitar una escalada que llevara a un intercambio generalizado
+de misiles y a la MAD, la Destrucción Mutua Asegurada. Se planifica
+un ataque nuclear limitado, el envío de una advertencia como p
+aso previo a discutir con Washington un inmediato alto el fuego. La re-unión
+al más alto nivel concluye con un pequeño golpe interno cuando se impide
+entrar en la sala a los elementos más radicales, partidarios de un ataque nuclear a gran escala.
+La
+víctima será la ciudad de Birmingham, con su millón de habitan-tes.
+A  priori, la ciudad cuna de la revolución industrial, no parece un ob-j
+etivo muy acorde con la ética de una potencia comunista, pero segura-m
+ente Hackett la escoge para su ficción porque «Brum» es la segunda ciudad
+más poblada del Reino Unido, después de la capital. Posiblemente el
+autor también intentó subrayar, de alguna forma, que, por entonces, el K
+remlin actuaba como una superpotencia con unos objetivos estratégicos que ex
+cluían ya las consideraciones políticas.D
+e esa forma, el 20 de agosto de 1985, a las 10:30 GMT , los soviéti-cos
+frieron la ciudad de Birmingham en una gigantesca sartén nuclear, sin temblarles
+el pulso. Cinco minutos después, el primer ministro británico y
+el presidente de los Estados Unidos tomaron la decisión de hacer lo mis-mo
+con una ciudad soviética. La escogida fue Minsk, capital de la por entonces R
+epública Socialista Soviética de Bielorrusia.
+
+---
+
+20
+0 U CRANIA 22A
+las 13:50 GMT, cuatro misiles nucleares de entre 200 y 300 kiloto-nes,
+dos estadounidenses y otros dos británicos, lanzados desde submari-n
+os, pulverizaron Minsk. Aquí sí que el general Hackett entra en detalles. Lo
+hace para dar a entender al lector que la OTAN sí que tenía bien pensa-dos
+sus objetiv os de represalia estratégica.Las
+descomunales explosiones atómicas fueron faros de fuego abrasa-dor
+es que se elevaron conjuntamente hasta veinticinco kilómetros de altu-ra,
+vistos desde Riga, capital de Letonia, o Vilna, la de Lituania; también desde
+Kiev y Varsovia, según datos ofrecidos por el mismo autor, por su-p
+u e s t o .  T i r a n d o  p o r  l o  b a j o ,  l a  c i f r a  d e  5 0 . 0 0 0  m u e r t o s  e n  u n  p r i m e r  m
+omento fue seguida por una imponente fuga improvisada, con lo puesto, d
+el resto de la población de la ciudad en situación de hacerlo, y de locali-dades
+aledañas. Como resultado, un enorme caos, un pánico imposible de contr
+olar o mitigar.N
+ada de eso había sido casualidad, sino un efecto buscado, una ca-rambola
+explicada por el autor de la ficción realista, el general sir John H
+ackett, experto en algo así como «nacionalismos de interés estratégico»:U
+crania, situada inmediatamente al sur de Bielorrusia, es mucho más grande e
+importante. Ocupa un área mayor que la de Francia y tiene una población d
+e aproximadamente el mismo tamaño. Antes de la guerra producía más a
+cero que la República Federal de Alemania, con importantes factorías de armamento
+en Kiev y Járkov. Kiev fue la capital de la Primera Rusia, antes de
+la invasión tártara y antes del surgimiento de Moscú. Pero Ucrania nunca había
+sido un Estado independiente. Fue un campo de batalla entre polacos y
+rusos, turcos e incluso suecos, antes de que Rusia lo absorbiera finalmente en
+1654. Sin embargo, los recuerdos de la grandeza anterior y la idea de la independencia
+de Ucrania nunca habían muerto por completo. De hecho, h
+abían sido revividos por la persecución estalinista y por la represión de un m
+ovimiento independentista fragmentario en 1966. Después de Minsk, los ucranianos
+podían temer que Kiev o Járkov fueran los siguientes en la lista de
+objetivos aliados. Había otra ansiedad de mayor alcance aún: la insurrec-ción
+ahora estaba extendida en Polonia y recibía un apoyo activo y creciente de
+los aliados occidentales. Como hemos visto, esto ya estaba debilitando el e
+sfuerzo militar soviético en Alemania. La destrucción de Minsk haría aún más
+difícil para la Unión Soviética controlar la situación en Polonia. Si Po-lonia
+escapaba de la hegemonía soviética, probablemente una de sus prime-ras
+ambiciones sería recuperar el territorio polaco perdido ante Bielorrusia y
+
+---
+
+L
+A GUERRA DE LOS MUNDOS21 U
+c r a n i a .  U c r a n i a  h a r í a  b i e n  e n  n o  p e r d e r  m u c h o  t i e m p o  e n  r e c l a m a r  s u  p
+ropia independencia y velar por sus propios intereses, en lugar de aquellos de sus amos so
+viéticos.A
+l norte de Bielorrusia, la breve independencia de los tres Estados Bál-ticos,
+Letonia, Lituania, Estonia, también había sido aplastada por la URSS e
+n la Segunda Guerra Mundial, pero nunca habían sido asimilados por com-p
+leto y ahora probablemente serían los primeros candidatos para la libertad. P
+or lo tanto, Minsk demostró ser políticamente más importante en la muer-te
+que en la vida. Su destrucción desencadenó la disolución de toda la zona fr
+onteriza occidental de la Unión Soviética, no solo mostrando la vulnerabi-lidad
+del poder soviético sino liberando, a través de las ondas de choque psicológicas
+de cuatro misiles nucleares, las pasiones nacionalistas que ha-bían estado dormidas durante tanto tiempo
+2 . E
+l efecto dominó provocado por la destrucción de Minsk suponía detonar el
+miedo de los ucranianos a que, con la desafección polaca y la revolución nacional,
+llegaran tarde en la defensa de sus fronteras como nuevo Estado independiente.
+Y el resultado fue la revuelta ucraniana, favorecida por la infiltración
+en el KGB de un agente ucraniano de alto nivel, un carácter ficticio llamado
+Vasyl Duglenko:Este
+desenlace particular no había estado en mente cuando el joven Vasyl D
+uglenko, un prometedor graduado de la academia de policía de Kiev, fue infiltrado
+por nacionalistas ucranianos en el KGB, gracias a una recomenda-ción
+favorable de nada menos que el mismo Jruschov. Sin embargo, fue esta a
+cción, y el posterior nombramiento de Duglenko para la sección de seguri-d
+ad del Kremlin, lo que aseguró que el sistema soviético pudiera ser derro-cado
+desde dentro, y que sería seguido por el establecimiento de naciones separadas
+sobre las ruinas del imperio soviético. La mecánica de la conspira-ción
+es difícil de desentrañar. Para citar mal el viejo epigrama, si la traición p
+rospera no es traición sino un cambio constitucional de régimen: y la trama secr
+eta se barre bajo la alfombra con la esperanza de que no sirva de modelo para
+el próximo intento de cambio. Pero se requerían tres elementos princi-pales
+para el éxito del trascendental golpe que derrocó al PCUS: la red ucra-n
+iana en el KGB que tenía acceso al santuario interior del Puesto de Mando que
+se estaba utilizando en ese momento, al que el Politburó y el Consejo de D
+efensa habían transferido sus funciones del Kremlin; la desafección de al-2
+Hackett (1982): pos. 5963.
+
+---
+
+22
+2 U CRANIA 22gunos
+de los miembros del Politburó que habían luchado bajo el liderazgo del
+ideólogo jefe del Partido, Malinsky, contra la decisión nuclear y ahora v
+eían reivindicada su actitud en la espantosa devastación de la capital de B
+ielorrusia, con un tremendo sufrimiento humano y la gigantesca oleada de sentimientos
+que podría conducir a la desintegración en las regiones occi-d
+entales, e influyentes oficiales del Alto Mando Soviético ansiosos por pre-s
+ervar un núcleo de fuerza militar como base y garantía de un Estado sovié-t
+ico sucesor. Porque estos eran conscientes de que cualquier otro ataque nuclear
+contra la Unión Soviética destruiría las posibilidades de superviven-cia
+de la autoridad organizada y sabían que ahora solo las fuerzas armadas podrían pr
+oporcionar esto3 . Los
+entresijos del derrumbe de la Unión Soviética no interesan demasia-d
+o. Pero sí la constatación de que, a comienzos de los años ochenta del siglo
+pasado, un general británico de la OTAN explicó los argumentos centrales
+de la historia que se iba a relatar en 2022, cuando dio comienzo la
+guerra en Ucrania. La T ercera Guerra Mundial del general John Hackett f
+ue toda una profecía autocumplida. Pero no hay que creer en mecanis-mos
+enrevesados. Las sandalias del pescador, l a novela de Morris West que en
+1963 anunciaba la llegada de un papa del Este al Vaticano, seguramen-t
+e tuvo más mérito como vaticinio. Lo que escribió el general Hackett no era
+sino pura doctrina argumental de la OTAN, destilación de planes de contingencia,
+que cuarenta años más tarde, aunque rancia, seguía vigente.E
+n esencia, el esquema Hackett era el siguiente: se produce el ataque s
+oviético/ruso por sorpresa. El agresor avanza a toda velocidad desplegan-do
+masas de tropas y medios blindados en una oleada imparable que avan-za
+como una gigantesca B litzkriegy  que hará que la guerra no se prolon-ggue
+más allá de unas tres semanas, o menos; lo cual desembocará en la ocupación
+militar de toda Europa Occidental. Esa es la única opción po-s
+ible. No hay otra. La arremetida y la ocupación. Pero el envite es tan desmesurado
+que el atacante sucumbe por el esfuerzo, colapsa. Y el resul-tado final de toda la historia es el hundimiento del r
+égimen enemigo. R
+esulta un final literario muy parecido el de L a Guerra de los Mundos d
+e H. G. Wells, la mítica novela de ciencia ficción publicada en 1898 y ambientada
+por su autor en 1904. Los marcianos invaden la Tierra, nada par
+ece oponérseles. Los trípodes blindados arrasan todo a su paso con los 3
+Hackett (1982): pos. 5946 a 5979.
+
+---
+
+L
+A GUERRA DE LOS MUNDOS23 ray
+os calóricos. Los invasores, por cierto, son seres parecidos a los osos que se
+alimentan de humanos a los cuales chupan la sangre. Londres es evacua-do,
+miles de personas escapan como pueden sin orden ni concierto y sin d
+estino alguno. Y en el último momento, cuando todo parece perdido y el n
+arrador se ha resignado a su suerte, los extraterrestres mueren masiva-mente
+al no poseer defensas contra las bacterias terrestres. «Las tremendas máquinas,
+tan maravillosas en su poder y complejidad, tan extraterrestres en
+su forma, mostrábanse fantásticas, vagas y extrañas entre las sombras. E
+l peligro había pasado como en un milagro, la destrucción de Senaquerib s
+e había repetido, Dios se había apiadado de los hombres y el ángel de la M
+uerte había exterminado a los invasores».La
+visión milagrera de la derrota del Mal, como Reagan llamaba por e
+ntonces a la Unión Soviética, vino reforzada por la sorprendente elección de
+un papa polaco, Karol Wojtyla, en 1978. Lo cual, a su vez, había tenido un
+enorme peso moral en el respaldo de las protestas de los trabajadores polacos y el auge de S
+olidaridad, el sindicato nacional-católico.P
+aradójicamente, en una entrevista que el general Hackett dio al US N
+ews & World Reporte n octubre de 1980, negó que existiera riesgo detT
+ercera Guerra Mundial4 . P
+eriodista: General Hackett, sobre la base de su experiencia como editor y
+principal contribuyente al libro L a T ercera Guerra Mundial, ¿podría usted decir que está cr
+eciendo el peligro de una guerra mundial? G
+eneral Hackett: No, no lo creo. Desde mi punto de vista, una guerra mun-dial,
+si es que llega, ocurrirá por inadvertencia o accidentalmente y no por u
+n gran propósito. Probablemente ocurrirá, y una vez más tengo que decir si
+es que llega, debido a que se haya disparado una situación altamente ines-t
+able, a causa de algunos relativamente pequeños incidentes no en el centro de las cosas sino en la periferia.
+[...]
+P
+eriodista: Retrocediendo a los acontecimientos particulares, Sir John, ¿considera
+usted la guerra entre Occidente y la Unión Soviética como inevitable o evitable?
+4
+CESEDEN, Boletín de información n.º 142-X, febrero de 1981 [consultable en red, PDF].
+
+---
+
+24
+4 U CRANIA 22G
+eneral Hackett: Pienso que es evitable. El momento de peligro llegará c
+uando las contradicciones internas en la Unión Soviética y en el Pacto de V
+arsovia comiencen a destruir la coherencia de todo el sistema. Esto no c
+onducirá necesariamente a los rusos a un aventurismo deliberado en el e
+xterior para distraer la atención del descontento interno. Lo que sí es p
+robable que ocurra es que se eleve el grado de inestabilidad en el mundo, d
+onde una convergencia de crisis podría desencadenar la guerra mundial q
+ue nadie desea. Esto es lo que me asusta, aunque no veo la guerra como i
+nevitable.Y
+resulta paradójico porque desde diciembre de 1979 en adelante, y hasta poco
+después de 1985, se vivió un agravamiento de la Guerra Fría (fue, literalmente,
+una segunda Guerra Fría) por causa de la invasión soviética de
+Afganistán. Fueron años realmente agitados, que r etrospectivamente hacen
+dudar del amable optimismo del general Hackett. Y, sobre todo, a
+quel año y medio con Andropov al frente de la Unión Soviética, durante el
+cual el mundo pudo haber ido a la guerra nuclear en al menos tres oca-siones,
+todas acaecidas en el maldito 1983: el derribo, por un caza soviéti-c
+o, del avión coreano de pasajeros KAL 007, el 31 de agosto, cuando s
+obrevolaba por error territorio restringido. No mucho más tarde, el t
+eniente coronel Stanislav Petrov, «el hombre que salvó al mundo», inter-p
+retaba correctamente como una falsa alarma la detección de lanzamien-tos
+de misiles nucleares desde los Estados Unidos; fue el 26 de septiembre. F
+inalmente, las maniobras militares de la OTAN Able Archer 83, entre el 2
+y el 11 de noviembre, en que los soviéticos llegaron a creer que el ejerci-c
+io era en realidad una forma de enmascarar un ataque nuclear real contra e
+l Pacto de Varsovia. A mediados de los ochenta, el ambiente era de incer-t
+idumbre en Europa, atizada por la violencia verbal del presidente esta-d
+ounidense Ronald Reagan contra el «Imperio del Mal» y la aparente ines-tabilidad
+del régimen soviético, en el cual, tras la muerte de Leonid B
+reznev, los líderes solo parecían sobrevivir poco más de un año: Yuri A
+ndropov, quince meses; Konstantín Chernenko, apenas trece meses.P
+or fin, la llegada al Kremlin de Mijaíl Gorbachov, en marzo de 1985, par
+eció dar un viraje milagroso a la apuesta del general Hackett. En su ficción,
+era posible terminar con la Guerra Fría, y de paso con la Unión S
+oviética, pero solo pagando el peaje traumático de una guerra. Aunque no
+llevaría a la Destrucción Mutua Asegurada (MAD), sí costaría vidas y
+
+---
+
+L
+A GUERRA DE LOS MUNDOS25 r
+uina. Gorbachov y su per estroikah icieron realidad lo increíble: terminar oikala
+pesadilla entre sonrisas, sin disparar un solo tiro. Y eso empezaba el mismo
+año en que sir John Hackett había previsto el comienzo de la T er-cera G
+uerra Mundial.L
+os estadounidenses, en realidad, en el fondo, nunca creyeron en e
+l milagro.
+
+---
+
+
+
+---
+
+C
+APÍTULO 2E
+L AMIGO AMERICANO ES
+TADOS UNIDOS, UCRANIA Y
+EL FINAL DE LA UNIÓN SOVIÉTICA, 1986/hyphen.cap1991T
+his is the W ay the W orld Ends: Not with a Bang but a Whimper
+.T
+. S. EliotY
+sin embargo, el relato de Hackett, en cierta manera, se cumplió. Solo que
+las piezas del puzle que él proponía no encajaron de esa forma, sino de
+otra. Como si fueran proteicas, con sus propios seudópodos, los frag-m
+entos o fenómenos de la historia no ficticia pueden cambiar y adaptarse a
+contactos que la ficción imaginada por los humanos no puede prever. P
+ero a veces parecen tener lejanos vínculos familiares. Por lo tanto, si: el c
+onflicto esloveno y la descomposición de Yugoslavia acompañaron al des-mor
+onamiento del Bloque del Este, aunque no lo generaron en base a la teoría
+del dominó. Tampoco hubo ofensiva soviética ni guerra en Europa, p
+ero sí desastre nuclear. No fue debido a ataques con misiles sobre Bir-m
+ingham y Minsk, sino por causa del accidente de la central de Chernó-bil,
+Ucrania, el 26 de abril de 1986. A la 1:23 de la madrugada estalló el r
+eactor nuclear número 4 de la planta de energía atómica cercana a Pri-p
+iat, a unos ciento treinta kilómetros de Kiev. Desde allí, la nube radiacti-v
+a, que se regeneraba cada día con el incendio que siguió, se extendió por B
+ielorrusia, los Países Bálticos, Ucrania, la zona más occidental de la U
+nión Soviética. Desde allí pasó a Escandinavia, Polonia y más allá. T odo e
+se veneno fue más potente que el de la bomba que destruyó Hiroshima en 1945.
+Varias veces superior.
+
+---
+
+28
+8 U CRANIA 22E
+l libro de Andrew Leatherbarrow1 ,  a partir del cual se rodó la impre-sionante
+serie Cher nóbil ( Craig Mazin y Johan Renck, 2019), deja claros algunos
+extremos relativos a la tragedia. Uno de ellos, que «fue la primera gran
+crisis en el flamante liderazgo del más reciente Secretario General de la
+URSS, Mijaíl Gorbachov». Otro, que «los efectos del accidente ayuda-r
+on a que muchos políticos soviéticos de la línea dura aceptasen por fin que
+una guerra nuclear era impensable, imposible de vencer, y que des-t
+ruiría el planeta»2 .  Lo que había sucedido en Chernóbil no equivalía a los efectos
+de una sola bomba en un ataque nuclear, y aun así, la radiación r
+esultante del accidente había llevado al límite los recursos de la U nión S
+oviética. Como puntualizaba el mismo Gorbachov, un misil SS-18 po-dría
+tener el efecto de cien explosiones en Chernóbil3 .  Y en su momento, un
+médico británico que había investigado sobre los efectos de lo sucedido concluy
+ó: «la gente que cree que puede prestarse asistencia médica rele-v
+ante a las víctimas de la guerra nuclear se equivoca»4 .  En consecuencia, ya
+en octubre, solo siete meses más tarde, Gorbachov se reunió con el p
+residente Reagan para discutir cómo se podría organizar y desarrollar el desarme
+nuclear. Poco más de un año después, el 8 de diciembre de 1987, se
+firmaba el T ratado de Fuerzas Nucleares de Alcance Medio, destinado a eliminar
+los misiles tierra-tierra de ambas potencias con alcance entre 500 y
+5.000 kilómetros, arsenal que había desatado intensas polémicas en Eu-r
+opa, porque estaba destinado a librar la guerra nuclear , caso de que se desatara,
+en el territorio del Viejo Continente, no en el de los Estados U
+nidos y la Unión Soviética.P
+or lo tanto, el accidente nuclear en Chernóbil mejoraba mucho el r
+elato del general Hackett. Aunque había sido una lamentable tragedia, y p
+ese a que nunca se llegó a saber el impacto sanitario real de las radiacio-nes,
+en toda su extensión y a lo largo del tiempo, no cabe duda de que los bombar
+deos de Birmingham y Minsk habrían dado lugar a una catástrofe humanitaria imposible de ev
+aluar. M
+uchos años más tarde, en 2017, alguien en Birmingham dio con la historia
+de la T ercera Guerra Mundial según Hackett y redactó una escue-1
+Leatherbarrow (2017).2
+I bid., p . 165.3
+Mikhail Gorbachev, «T urning Point at Chrnobyl», en P roject Syndicate, 14 de abril de 2006 [consultable en r
+ed].4
+Leatherbarrow (2017): p. 164.
+
+---
+
+E
+L AMIGO AMERICANO29 ta,
+aunque un tanto dolida, crónica sobre ese bombardeo nuclear que n
+unca existió. «Si hubiera sucedido, millones de nosotros estaríamos muer-t
+os desde hace treinta años», escribió consternado Andy Richards para Bi r-mi
+ngham Live.  T odo lo que habría quedado de Birmingham y de Minsk h
+abrían sido ruinas cubiertas por inmensas calzadas, convertidas en monu-m
+entos a la paz con los nombres de Peace City West y Peace City East. Como
+las desgracias nunca vienen solas, la crisis de Chernóbil dejó o
+tro tipo de poso del que se habló mucho menos: el deterioro de las rela-ciones
+entre Gorbachov y el liderazgo del KPU, el Partido Comunista de U
+crania. U
+na de las papeletas a las que tuvo que enfrentarse el joven líder so-viético
+en su política de renovación ya desde 1985 fue cómo deshacerse del
+denominado «clan de Dnipropetrovsk». Se conocía por ese nombre a una
+pirámide de influencias del Partido, compuesta por cargos y persona-jes
+influyentes del KPU en Moscú. Quien le había terminado de dar for-ma
+era el jefe del Partido en Ucrania, Vladimir Cherbitsky, aliado incon-dicional
+de Leonid Breznev, por vínculos de lealtad personal. De hecho, ambos
+eran originarios del pujante óblast de Dnipropetrovsk. Y esa rela-c
+ión duró hasta el momento de la muerte de Breznev , en 1982. P ero el «clan
+de los ucranianos» siguió teniendo mucha mano en Moscú bajo A
+ndropov y Chernenko. Cuando Gorbachov llegó al Kremlin, no vio mo-mento
+de deshacerse de una red de personalidades muy conservadoras que guar
+daba las características esencias breznevianas, inmovilistas y clánicas. N
+i que decir tiene que Cherbitsky y los suyos no demostraban tampoco simpatías
+por el campechano y rupturista Gorbachov. Pero la mutua ani-madv
+ersión no contenía trasfondo nacionalista alguno: al fin y al cabo, el m
+ismo Gorbachov era medio ucraniano por parte de madre, y la presencia d
+e representantes de esa república en Moscú era habitual desde la muerte de S
+talin. Jruschov, aunque había nacido casi en la frontera, había hecho su carr
+era política en el Partido ucraniano y como representante de este en la capital so
+viética.La
+catástrofe de Chernóbil tuvo lugar tan solo un año después de que G
+orbachov se hiciera cargo del poder y aceleró el desencuentro con Cher-b
+itsky y su «clan de Dnipr opetr o vsk». E l inter cambio de r epr oches fue a
+margo. El ucraniano apenas había atendido en la primera fila la gigantes-ca
+operación de contención de daños y evacuación de afectados. ¿En tres ocasiones,
+quizá, se había acercado hasta el lugar de los hechos? En cam-
+
+---
+
+30
+0 U CRANIA 22b
+io, desde Moscú se había insistido, hasta la amenaza, en seguir adelante con
+los festejos del 1.º de Mayo en la capital ucraniana, con miles de personas
+en las calles de la capital que resultaron contaminadas en mayor o
+menor medida por las nubes radiactivas de la cercana central incendia-da.
+¿O había sido culpa de la inercia administrativa o la irresponsabilidad e
+n Kiev? De cualquier forma, las autoridades comunistas ucranianas hu-bier
+on de hacerse cargo de los refugiados.G
+orbachov logró purgar a Cherbitsky y desmontar su red de influen-cias
+en Moscú en septiembre de 1989. No fue sencillo. Y a cambio, sin quer
+erlo, ayudó a impulsar la independencia de Ucrania. Como resume con
+acierto el historiador ucraniano Serhii Plokhy, «la élite política ucra-niana
+se sentía traicionada, abandonada y despechada. El gobierno central solo
+les traía problemas»5 .  Y es que el peso de los ucranianos en Moscú iba más
+allá de lo que representaba el clan de Dnipropetrovsk. Arrancaba de los
+años cincuenta, cuando se había llegado a un acuerdo tácito con Rusia p
+ara que los ucranianos compartieran el poder en la Unión Soviética. En par-t
+e, la clave radicaba en que los rusos gobernaban la Unión Soviética a partir del
+PCUS, dado que no existía ningún Partido Comunista Ruso, por lo que necesitaban los v
+otos de los delegados ucranianos.E
+n conclusión, la reforma aperturista y meritocrática de Gorbachov, combinada
+con el desastre de Chernóbil, había desencadenado, aunque de f
+orma progresiva, a lo largo de seis años, el efecto descrito por el general H
+ackett en su T ercera Guerra Mundial.  La explosión del reactor número 4 llhabía
+tenido un efecto similar al del imaginario ataque nuclear contra M
+insk: desmantelar la Unión Soviética en su frente occidental a partir de la defección de las R
+epúblicas Bálticas y Ucrania.P
+or supuesto, se trata de un enunciado general, porque las cosas tam-p
+oco resultaron tan sencillas. Las repúblicas que lideraban los afanes y entusiasmos
+independentistas durante el periodo de la perestroika gorba-cho
+viana fueron las de los Países Bálticos y las del Cáucaso. Y lo cierto es que
+ese entusiasmo no era capaz por sí mismo de arrastrar al resto de las r
+epúblicas soviéticas. Las del Cáucaso, porque estaban inmersas en san-grientos
+conflictos civiles entre ellas. Las bálticas, porque eran vistas en la m
+isma Unión Soviética como un caso aparte, desde un punto de vista social,
+político e incluso histórico y no poseían tirón en el resto del terri-5
+Plokhy (2015): p. 82.
+
+---
+
+E
+L AMIGO AMERICANO31 t
+orio soviético. Además, representaban un porcentaje muy pequeño del i
+nmenso territorio de la Unión Soviética. Lo mismo sucedía con el total de s
+u población. Dicho de otra forma, la Unión Soviética habría podido se-g
+uir subsistiendo sin esas dos regiones. En cambio, la independencia de U
+crania era decisiva. Y sin embargo, en esa república, el sentimiento inde-p
+endentista —un paso más allá del nacionalista— fue relativamente tardío.L
+a clave del vuelco que dio la situación tuvo mucho que ver con un personaje
+tan ambicioso como oportunista, uno de los primeros grandes políticos
+populistas del siglo xx/i.sc ,  capaz de sacar de la botella al nacionalis-mo r
+uso: Boris Yeltsin.S
+e  h a  h a b l a d o  y a  m u c h o  d e  e s e  e n o r m e  p e r s o n a j e ,  a l t o  y  r o b u s t o ,  cor
+onado por su característica mata de pelo blanco. De sus comienzos como
+uno de los asesores de Gorbachov, para pasar luego a ser crítico y fustigador
+de su jefe. Más tarde, se postula como rebelde contra el sistema, c
+oncluye dando la espalda al propio Partido y tiene el valor de forjarse su p
+ropio liderazgo al frente del nuevo nacionalismo ruso. Lo cual le lleva a auparse
+hasta la presidencia de la mayor de las repúblicas de la Unión So-viética: R
+usia.E
+l paralelismo entre Yeltsin y el líder serbio Slobodan Milošević es per
+fectamente posible. Ambos eran appar atchiksc omunistas que a lo largoatchiksde
+la década de los ochenta habían entendido la importancia que estaba adquiriendo
+el nacionalismo en Europa del Este y Rusia. Los dos eran conscientes
+de la posibilidad de desintegración de sus respectivos Estados (
+Unión Soviética y Yugoslavia) y la ambición de ambos les impulsaba a sacar el may
+or provecho posible de esa situación en su propio beneficio.La
+estrategia de Yeltsin, cuyo objetivo principal, recordemos, era sacar d
+e en medio a su rival, Mijaíl Gorbachov, consistió en hurtarle el control de R
+usia al Estado que presidía, la Unión Soviética. Así, el 12 de junio de 1
+990, Yeltsin hizo aprobar por el Sóviet Supremo de la República Socialis-t
+a Federativa Rusa una proclamación de soberanía de las leyes rusas sobre l
+as soviéticas, lo que iba a ser una verdadera bala de plata en la recámara d
+el revólver político con el cual iba a liquidar a la Unión Soviética, solo un
+año y medio más tarde. El paso de proclamar «leyes rusas y no sovié-t
+icas» propició el control de los recursos económicos, bancarios, fiscales y
+energéticos de la república, sustrayéndolos del poder soviético e inclu-s
+o empezó a hablarse de la necesidad de crear unas fuerzas armadas cien p
+or cien rusas.
+
+---
+
+32
+2 U CRANIA 22C
+omo es comprensible, en medio de ese caos creciente, los intentos p
+or estabilizar económicamente a la Unión Soviética fracasaban o na-cí
+an muertos. Y no porque el sistema soviético no fuera reformable, c
+omo se demostró en la República Popular China, sino porque la pug-n
+a entre Yeltsin y Gorbachov generaba un caos en las altas instancias d
+el poder que restaba toda credibilidad a la pervivencia de la Unión So-v
+iética. S
+olo quedaba refundarla bajo unas nuevas bases. Los nacionalismos imperantes
+en cada una de las repúblicas, con sus correspondientes élites a
+l frente, se encargarían de ello. El 17 de marzo de 1991 se llevó a cabo un r
+eferéndum para aprobar el proyecto de una Unión renovada, elaborado p
+or Gorbachov. Este acontecimiento suele ser olvidado en los manuales de h
+istoria, pero tuvo su importancia. Era una propuesta, que él creyó eficaz —ingenuamente—
+como respuesta a las presiones de los nuevos naciona-lismos
+más acuciantes: los bálticos y los caucásicos, pero también el ruso y el
+aprendiz de brujo Yeltsin. El resultado de todo ello fue el denominado P
+acto de 9 + 1 (o Acuerdo de Novo-Ogariovo), por el cual los presidentes d
+e nueve repúblicas (entre ellos Yeltsin) y Gorbachov se comprometían a f
+irmar un nuevo T ratado de la Unión para reformar las relaciones entre M
+oscú y las repúblicas. Se trataba de establecer un sistema más descentra-lizado,
+basado en la idea confederal, aunque intentando salvar lo esencial d
+e la Unión Soviética. El camino hacia el T ratado de la Unión fue tormen-toso,
+teniendo en cuenta que seis repúblicas, las más abocadas a la inde-pendencia,
+lo boicotearon desde el principio (las tres bálticas, Georgia y Armenia,
+en el Cáucaso, y Moldavia). Pero se logró articular un acuerdo p
+reliminar que fue firmado en Novo-Ogariovo —residencia de Gorba-cho
+v— el 23 de abril. El 20 de agosto fue la fecha fijada para firmar el acuer
+do definitivo. Pero antes tuvieron lugar acontecimientos decisivos; entr
+e ellos, el cambio de opinión de Ucrania.E
+l 1.º de agosto de 1991, poco más de dos años después del accidente de
+Chernóbil y ya hundido el Bloque del Este, el presidente estadouniden-s
+e George Bush aterrizaba en Kiev a bordo del avión presidencial Air For-c
+e One, procedente de Moscú. Allí había dejado a un Gorbachov suspicaz, que no v
+eía claro a qué venía tanto interés por Ucrania.S
+erhii Plokhy, un reconocido historiador ucraniano, autor de libros m
+uy ilustrativos sobre Rusia, la Unión Soviética y el mundo eslavo en g
+eneral, relata con cierto detenimiento la visita de Bush padre a Ucrania
+
+---
+
+E
+L AMIGO AMERICANO33 e
+n 1991 en su conocido libro E l último imperio. Los días finales de la Unión S
+oviética (2014). aLa
+corta visita del presidente Bush a Kiev fue la continuación del via-j
+e a Moscú para firmar el tratado START de limitación de armas nucleares de
+alcance intermedio, y para preparar una gran conferencia internacional que
+debería llevar la paz a Oriente Medio. Por entonces, y de cara a la galería
+internacional, Gorbachov seguía presentándose como el jefe de Es-tado
+de una superpotencia que aspiraba a reorganizar el mundo en pie de igualdad
+con los Estados Unidos. Por ello, la noticia de que el presidente B
+ush planeaba viajar a Ucrania, tratando a esa República Socialista Sovié-tica
+como a un Estado independiente, levantó gran inquietud en Moscú. G
+orbachov intentó disuadir a Bush de que la hiciera y hasta se orquesta-r
+on algunas maniobras diplomáticas inusuales en ese sentido. Pero los es-tadounidenses
+se mantuvieron en su decisión, pretextando la imposibili-dad pr
+otocolaria de cancelar el evento.E
+ra comprensible la desazón de los líderes soviéticos. Por entonces, el d
+estino de Ucrania estaba en el alero, puesto que sus dirigentes se habían echado
+atrás en la decisión de firmar el T ratado de la Unión. Y sin esa firma,
+no saldría adelante, y las consecuencias podrían ser imprevisibles, para
+lo que quedaba de la Unión Soviética, pero también para la neutrali-zación definitiv
+a de la Guerra Fría y el destino del mundo. L
+os estadounidenses argumentaban que no era para tanto. Le intentaron q
+uitar hierro el asunto. Advirtieron a Moscú de que desmontar el viaje a Kiev p
+odría tensar las relaciones entre Gorbachov y los ucranianos. Pero no dejaba d
+e ser un dilema de hierro, puesto que la presencia de Bush en Kiev podría a
+lentar el separatismo ucraniano. Al final, Gorbachov accedió en un gesto de b
+uena voluntad que no tenía más remedio que hacer. Lo que quedaba de su p
+restigio político estaba en su política exterior, en la buena fama que se había g
+anado en Occidente. En la Unión Soviética era un traidor, un flojo, un pusi-l
+ánime dispuesto a cualquier cosa por mantenerse en el poder. De cara al exte-r
+ior era el hombre del milagro, el que con su buena voluntad y su clarividencia h
+abía liquidado la Guerra Fría y evitado una guerra mundial con consecuen-c
+ias mucho más desastrosas para todos que la ficción descrita por Hackett.Y
+Bush aterrizó en el aeropuerto internacional de Boryspil en su fla-m
+ante Air Force One, un Boeing 747 decorado en estilo countr ys ureño.yE
+n la prensa de la época el acontecimiento fue vestido con tonos de baja intensidad.
+
+
+---
+
+34
+4 U CRANIA 22B
+ush, recibido sin júbilo, pero con esperanza, por las gentes de Kiev, advirtió a
+los parlamentarios, e indirectamente a los legisladores de las otras repúbli-c
+as soviéticas, sobre el peligro de aislamiento que pueden correr quienes no sepan
+utilizar el camino de la independencia. Alcanzó sus dos objetivos pri-m
+ordiales: no debilitar la figura política de Gorbachov y ofrecer su apoyo a
+los sueños reformistas e independentistas de los ucranios y, por extensión, a todas
+las repúblicas de la URSS —escribió un cronista de la época presente en la capital ucraniana
+6 . Años
+después, el historiador Serhii Plokhy recordaba cómo en los Estados U
+nidos, William Safire, un redactor de T he New York Times, r epublicano de
+la línea dura, calificó despectivamente a Bush como «el Pollo Kiev» por la
+tibieza de un discurso en el que «intentaba disuadir a los ucranianos de q
+ue reclamaran la autodeterminación»7 .  El calificativo tuvo tanto éxito que incluso
+posee una entrada propia en Wikipedia: «Chicken Kiev speech». E
+l discurso que «indignó a los nacionalistas ucranianos y a los conservado-r
+es estadounidenses» por ser un «colosal error de juicio».¿
+Lo fue? La anécdota es interesante porque constituye un primer indi-c
+io del sentimiento de agresivo escepticismo ante la increíble desescalada p
+acífica de la Guerra Fría. Gorbachov era una anormalidad, no podía durar, e
+ra ingenuo pensar en una reconciliación ñoña entre los Estados Unidos y una U
+nión Soviética «buena» para que juntas pacificaran al mundo. La Guerra F
+ría era un juego de suma cero, solo podría tener un ganador y un perdedor, y
+lo mejor que se podía hacer era anular a la Unión Soviética de una vez por t
+odas, despiezarla. Los halcones como Safire desdeñaban los peligros que i
+mpondría forzar la mano, adoptar políticas agresivas que podían llevar a la d
+esestabilización y la violencia, a una guerra civil o a conflictos armados e
+ntre repúblicas soviéticas que poseían armas nucleares.A
+hora bien, a más de treinta años vista, vale la pena evaluar qué había d
+e verdad en esa versión que podemos encontrar en las hemerotecas. Plo-khy
+nos da una primera respuesta en las peticiones que los dirigentes ucra-nianos,
+encabezados por su presidente Kravchuk, aprovecharon para hacer a
+Bush: un consulado ucraniano en los Estados Unidos y cinco mil millo-nes
+de dólares de inversión en el país. También, ayudas de todo tipo para 6
+«Bush advierte en Kiev contra el “aislamiento suicida” de las repúblicas soviéticas», por Albert M
+ontagut, en E l País, 2 de agosto de 1991 [consultable en r ed].7
+Plokhy (2015): p. 93.
+
+---
+
+E
+L AMIGO AMERICANO35 h
+a c e r  f r e n t e  a l  d e s a s t r e  n u c l e a r  d e  C h e r n ó b i l .  D e  p a s o ,  l a  c o n c e s i ó n  a  U
+crania del estatus comercial de país más favorecido. ¿Qué podían ofrecer los
+ucranianos a cambio? Prácticamente nada. A pesar de lo cual y de la apar
+ente tibieza de Bush ante la causa separatista ucraniana, ya existía un consulado estadounidense en Kiev desde 1990.
+S
+e suele olvidar que el presidente George Bush padre fue director de la
+CIA en los años setenta, en unos momentos en que la Agencia estaba enfrascada
+en Latinoamérica en la Operación Cóndor, un gigantesco ope-r
+ativo destinado a derrocar o prevenir gobiernos de izquierdas o a reprimir oposiciones
+políticas de esas tendencias. Lo cual quiere decir que en 1991 conocía
+bien cómo funcionaban las operaciones secretas de desestabiliza-ción
+contra Estados y gobiernos extranjeros. También era evidente que poseía
+buenos contactos en los aparatos de inteligencia estadounidenses que
+le permitían interactuar con ellos de una forma quizá no tan habitual c
+omo el resto de los presidentes de la gran potencia americana, como ve-r
+emos a continuación.D
+e entrada, cabe considerar que sus alegaciones de que el viaje a Kiev n
+o pretendía apoyar las tendencias secesionistas de Ucrania o que no de-seaba
+perjudicar a Gorbachov podemos tomarlas como una mera cobertu-r
+a de sus verdaderas intenciones. Es cierto que tenía simpatías hacia el p
+residente ruso, pero a esas alturas de 1991, Bush sabía perfectamente que a
+Gorby apenas le quedaba recorrido, que su tiempo se había terminado y que
+era una pieza sacrificable. Ciertamente, debía guardar las apariencias, por
+diplomacia y por precaución, caso de que la deriva de la Unión Sovié-tica tomara r
+umbos peligrosos. P
+ero sabía la que se le venía encima a Gorbachov. Tan solo veinte días después
+del encuentro con Bush en Moscú y la firma del tratado START , a
+caeció el Golpe de Agosto contra el T ratado de la Unión, organizado por elementos
+duros del PCUS y el KGB. Como se recordará, Gorbachov fue puesto
+en arresto domiciliario en su propia dacha de Crimea por los gol-p
+istas. Mientras tanto, nadie prestó atención al presidente ruso, Boris Yelt-sin,
+el cual, cuando los carros de combate de los golpistas quedaron esta-cionados
+en largas filas, en la vía pública, sin recibir órdenes de sus mandos superior
+es, se dirigió a la Casa Blanca —la sede del Parlamento y gobierno r
+usos—, se encaramó al tanque número 300 de la División de Tamán y l
+eyó un comunicado dirigido a los moscovitas y ciudadanos de Rusia en el que pedía el r
+etorno del país a la vía constitucional.
+
+---
+
+36
+6 U CRANIA 22P
+ues bien, ese gesto decisivo del presidente ruso, que en pocos días l
+levaría a la desintegración definitiva de la Unión Soviética había sido pro-piciado
+por el presidente Bush, quien desde Washington convenció a la NSA
+de que resultaba imprescindible suministrar información de inteli-gencia
+electrónica a Yeltsin que demostraba, en el momento apropiado, que
+la junta golpista había perdido la iniciativa. Se llegó al extremo de a
+signarle a Yeltsin un experto en comunicaciones de la Embajada de los Estados U
+nidos en Moscú8 . La
+inusitada iniciativa demostraba dos cosas. Por un lado, que Bush poseía
+la capacidad de persuadir al director de la NSA sobre la necesidad de
+dar un paso tan arriesgado que comprometía la futura capacidad esta-d
+ounidense de monitorizar las comunicaciones militares rusas. En segundo l
+ugar, que Bush estaba muy bien informado sobre lo que sucedía en la Unión S
+oviética en los momentos finales de su existencia. Porque la información c
+lasificada, al más alto nivel, que se le pasó a Yeltsin procedía del rastreo de l
+as comunicaciones entre los responsables del golpe, en especial del jefe del K
+GB, Vladimir Kriuchkov, y del ministro de Defensa, Dmitri Yázov, con las un
+idades del Ejército y de los servicios de inteligencia y seguridad a lo largo y
+ancho del territorio de la Unión Soviética. Por lo tanto, el nivel y calidad de
+la información SIGINT de que disponía el presidente Bush eran, sen-cillamente,
+descomunales. Y esa es una consideración decisiva sobre sus i
+ntenciones y designios para con Ucrania cuando visitó Kiev poco antes del G
+olpe de Agosto en Moscú.E
+n el verano de 1991, George Bush padre buscaba propiciar la desin-tegración
+de la Unión Soviética de la forma más segura posible, colocar en e
+l Kremlin a algún estadista ruso todavía más dócil que Gorbachov y con-v
+ertir a Ucrania en un país aliado de los Estados Unidos. T odo ello de la manera
+más disimulada posible —de otra forma, el orgullo nacional heri-d
+o de los rusos haría todo ello inviable— y actuando al margen de simpa-tías
+personales que en la R ealpolitik no poseen mucho sentido. Porque lo cier
+to era que Boris Yeltsin no había sido del agrado de Bush desde un primer
+momento. Lo consideraba —en lo cual coincidía parte del entorno p
+residencial— un advenedizo excéntrico y un pelmazo.S
+e habían conocido en septiembre de 1989, cuando Yeltsin visitó por p
+rimera vez los Estados Unidos y forzó una entrevista de difícil definición 8
+Andrew (1996): p. 530.
+
+---
+
+E
+L AMIGO AMERICANO37 p
+rotocolaria con el presidente Bush. Este no quería disgustar a Gorbachov y
+organizó un encuentro «casual»: la recepción oficial fue con el Consejero d
+e Seguridad Nacional, Brent Scowcroft; pero mientras esta se desarrollaba, e
+l presidente compareció en el despacho. Ese primer encuentro y el posterior s
+eguimiento de las comparecencias públicas de Yeltsin —conferencias, en-t
+revistas, reuniones con políticos y empresarios— dejaron tras de sí adjetivos c
+omo: «estrafalario», «voluble», «taimado», «excéntrico», «energúmeno» o «
+tosco». Pero los estadounidenses no tuvieron más remedio que aceptarlo a p
+artir de junio de 1990, cuando escaló hasta convertirse en presidente del n
+uevo Parlamento ruso. Estaba demostrando más habilidad que Gorba-chev
+para manejarse en los nuevos términos de la política populista, y con todas
+sus peculiaridades, parecía gustar a los rusos. Era lógico que el pre-sidente
+de los Estados Unidos y sus consejeros se encogieran de hombros.Esa
+tendencia se consolidó en el verano de 1991. El 12 de junio, Yelt-s
+in fue elegido presidente de la RSFS de Rusia en las primeras elecciones m
+ultipartido y poco después regresó a los Estados Unidos. Una vez más, s
+e esforzó por eclipsar a Gorbachov ante Bush. Le informó personalmente de
+un plan de golpe de Estado en marcha —supuestamente el Golpe de A
+gosto— y ambos telefonearon a Gorbachov desde la Casa Blanca para adv
+ertirle.P
+ocos días más tarde, durante el viaje oficial de Bush a Moscú, Yeltsin r
+epitió los numeritos histriónicos para desbordar el protocolo y significar-se
+como un presidente de Rusia que no tenía por qué quedar por detrás del pr
+esidente de una federación soviética en vías de extinción. Y
+al cabo de veinte días, el momento de gloria: el Golpe de Agosto y B
+ush convenciendo a la ultrasecretista NSA para que le desvelase su arca-n
+o mejor guardado, solo descorrer un poco la cortina para que el nuevo h
+ijo pródigo se atreviera a salir a la calle, se encaramó a un vehículo mili-tar
+golpista y, con ayuda de la transmisión televisiva vía satélite, hiciera que
+el nacionalismo ruso aplastara a los tanques del comunismo y convir-t
+iera a Gorbachov en un cadáver político. Esos centímetros de diferencia, es
+os segundos de margen que a veces consiguen obtener los servicios de i
+nteligencia con su información exclusiva y que separan la catástrofe de la vi
+ctoria.Lo
+demás ya vino solo, puede decirse. El día 23 de agosto, fracasado e
+l golpe en Moscú, se dispararon las pasiones. Intentando machacar a su inv
+eterado enemigo Gorbachov y convertirlo en un cadáver político, Yelt-
+
+---
+
+38
+8 U CRANIA 22sin
+lo humilló ante las cámaras, en un encuentro con los diputados del P
+arlamento transmitido por televisión. Se le echó literalmente encima y le exigió
+que suspendiera las actividades del Partido Comunista, a lo que el t
+odavía presidente de la Unión Soviética accedió, desbordado ante las sos-pechas de que desde allí había llegado apo
+yo decisivo al fracasado golpe.La
+noticia de lo sucedido en Moscú atizó y desencadenó una reacción p
+arecida en Kiev, aunque quizá respaldada por más apoyo popular. Miles de m
+anifestantes nacionalistas y anticomunistas pidieron en las calles la prohi-b
+ición del Partido en Ucrania. En el Parlamento, los diputados se percata-r
+on de que todo estaba perdido. No es que resultara impensable la recupera-c
+ión de algo parecido al «clan de Dnipropetrovsk», sino que ya no cabía e
+sperar de Moscú ni siquiera instrucciones o apoyo de algún tipo, dado que e
+l mismo PCUS había sucumbido. Ante esa tesitura, la mayor parte de los pa
+rlamentarios y dirigentes del KPU, presionados además por las multitu-d
+es exaltadas, optaron por unir fuerzas con los nacionalistas y la oposición de
+mocrática y proclamar la independencia de Ucrania, que se efectuó tras la l
+ectura en sede parlamentaria de un exaltado manifiesto, el día 24. Al frente d
+e ellos, el gran símbolo de la ambivalencia, reconvertido en nacionalista: el pr
+esidente del Parlamento o Rada Suprema, Leonid Kravchuk, devenido l
+íder de la nomenklatura comunista ucraniana despechada con Moscú.E
+l inesperado viraje de los acontecimientos en Ucrania tuvo un efecto b
+umerang en Moscú. Hasta el momento, la presión independentista había p
+rovenido de repúblicas no eslavas que, hasta cierto punto, eran periféricas al g
+ran núcleo eslavo de la Unión Sociética. Era bien sabido que los bálticos d
+eseaban abandonar la Unión, que, recuperada su soberanía tras la Primera G
+uerra Mundial, se habían constituido en repúblicas independientes reinte-g
+radas después por la fuerza, una vez terminada la Segunda Guerra Mundial y
+no sin que antes —especialmente los estonios y lituanos— hubieran resis-t
+ido hasta el final haciendo causa común con las tropas alemanas. En cuanto a
+las repúblicas del Cáucaso, estaban más pendientes de ajustar viejas cuentas h
+istóricas entre ellas que por la labor de seguir en la Unión Soviética. P
+ero Ucrania era diferente. Era la «segunda gran república» de la fede-r
+ación soviética, la gran hermana eslava, verdadera matriz de la Rusia his-tórica a par
+tir del siglo x/i.sc/i.sc/i.sc . Y
+lo cierto era que los ucranianos se mantuvieron firmes en su deci-s
+ión. En Moscú, Yeltsin y Gorbachov cesaron temporalmente en su mu-tuo
+hostigamiento para intentar resolver el brete. Se envió urgentemente
+
+---
+
+E
+L AMIGO AMERICANO39 una
+delegación negociadora encabezada por Aleksandr Rutskoi, Serguéy S
+tankevich —un estrecho colaborador de Yeltsin—, Anatoli Sobchak, el todopoder
+oso alcalde de Leningrado —y patrón de Vladimir Putin, por entonces—,
+y un par de diputados ucranianos. Pero una vez aterrizado el a
+vión en Kiev, los ucranianos los sometieron a un marcaje tan severo que no
+les permitieron desembarcar. Al cabo de unas horas se emprendió una negociación
+muy dura en la que los rusos hubieron de rebajar sus preten-s
+iones y, sobre todo, su tono belicoso. Por primera vez se había hablado de r
+eclamación de territorios y poblaciones rusas. De Crimea, cedida a Ucra-n
+ia por Jruschov en 1954, en el tricentenario del protectorado ruso sobre el
+Estado cosaco ucraniano; y también del Donetsk, en el Donbas. Se ha-bía
+hecho en el marco de un comunicado emitido por el jefe de prensa de Y
+eltsin —a instancias de este— según el cual, si una república rompía la-z
+os con Rusia en el seno de la Unión, aquella tendría derecho a reclamar «territorios que le corr
+esponden»9 . Al
+final se consiguió que los ucranianos aceptaran negociar un nuevo T
+ratado de la Unión, propuesto inicialmente por el presidente kazajo, N
+ursultán Nazarabayev. Para ello, Gorbachov volvió a ganar iniciativa c
+omo presidente de una Unión cogida con alfileres y con un Yeltsin tem-poralmente fuera de combate por agotamiento ner
+vioso. C
+on todo, este vaivén frenético y confuso tenía los días contados. El p
+residente Bush podía aparentar que se mantenía a la espera, respetuoso con l
+as dinámicas internas de aquella Unión Soviética en franca descomposición. P
+ero no dejaba de ser una pose. Estaban en juego varias consideraciones que h
+acían de aquella dinámica una cuenta atrás sin vuelta de hoja. El agotamien-t
+o de la figura de Gorbachov era evidente, al margen de que él mismo abri-g
+ara ilusiones de revertir la situación. Lo veían todos los consejeros del presi-d
+ente estadounidense y él mismo, y quedó meridianamente claro cuando se r
+eunió con el estadista soviético, por última vez, en Madrid en el marco de la C
+onferencia de Paz para Oriente Medio, de octubre a noviembre de 1991.O
+tra cosa era que no terminaran de fiarse de Yeltsin, cuya figura había subido
+como la espuma en pocos meses, era aclamado por el pueblo ruso y
+demostraba una actitud a veces servil hacia Bush, al que informaba per-sonalmente
+de cualquier acontecimiento o maniobra que pudiera enalte-cer
+su estatura ante la de Gorbachov. Pero seguía siendo un personaje poco 9
+Plokhy (2015): p. 210.
+
+---
+
+40
+0 U CRANIA 22o
+rtodoxo, capaz de sabotear sus propias promesas y de imponer los hechos consumados.
+S
+obre todo, lo que hacía que la situación evolucionara en un sentido i
+rreversible hacia la destrucción final de la Unión Soviética era el nuevo p
+royecto socioeconómico neoliberal que los asesores de Yeltsin estaban poniendo
+en marcha a toda máquina, sin dilación y sin dudas. Tanto los e
+conomistas Guennadi Búrbulis como Yegor Gaidar andaban diseñando el
+modelo de terapia de choque que debía cambiar la economía de la repú-blica
+en un tiempo récord, salvándola de la ruina que suponía mantener l
+os restos del sistema soviético, que, además, debería invertir sumas ingen-tes
+si quería conservar unidas al resto de las repúblicas. Búrbulis había pasado
+horas explicándole a Yeltsin cómo debía funcionar el cambio, que, f
+orzosamente, debía excluir cualquier intento de conservar la Unión. Algo a
+lo que, inicialmente, Yeltsin se había negado; pero Búrbulis no tardó en v
+encer sus reticencias, ya a finales de septiembre. Menudo era el presiden-te r
+uso a la hora de pillarlas al vuelo. E
+l programa que pronto defendería y aplicaría Yeltsin en toda su cru-d
+eza, diseñado por Gaidar y Búrbulis, era de inspiración netamente ame-r
+icana, producto de la inventiva de Milton Friedman, y lo habían testado a
+fondo los Chicago Boyse n el Chile del general Pinochet, quien no tarda-sr
+ía en convertirse en un referente de la nueva Rusia de Yeltsin, por cierto. E
+l heraldo estadounidense de ese pensamiento económico neoliberal en R
+usia —y previamente en la Polonia poscomunista— era el joven y talen-t
+oso Jeffrey Sachs, anteriormente asesor del gobierno boliviano. El ameri-cano
+fue llamado a Moscú en octubre, aunque durante su estancia en V
+arsovia, a comienzos de 1990, ya había mantenido contacto con el que s
+ería otro hombre de Yeltsin, el economista Grigori Yavlinski, que había viajado
+hasta allí para observar en directo la marcha de las reformas neoli-b
+erales en Polonia, asistidas por Sachs. Volvieron a encontrarse durante el v
+iaje del ruso a los Estados Unidos, en otoño de ese mismo año; y el ameri-c
+ano se convirtió oficialmente en asesor del equipo de Yeltsin, en diciembre d
+e 1991. Aunque previamente ya había trabajado, desde la Universidad de H
+arvard, en un proyecto para implementar las reformas económicas en Ru-sia
+al que titularon G rand Bargain («Gran Oferta»)10 ,  estos hombres fue-10
+Jeffrey Sachs, «What I did in Russia», PDF online, 23 de julio de 2016; academia.info: https://www
+.jeffsachs.org/newspaper-articles/b4gxflntzkl76ajz2w6yey8ss7sn9m.
+
+---
+
+E
+L AMIGO AMERICANO41 r
+on los que pusieron en pie el primer plan para la transformación de una e
+conomía socialista en otra de mercado. Detrás de todo ello aleteaba la ten-d
+encia estadounidense, compatible con el proyecto de extender la globaliza-c
+ión liberal, a transformar al enemigo vencido en un aliado a su imagen y s
+emejanza, como se había hecho a partir de 1945, con Alemania y Japón. C
+on todo, Sachs no deja de hacer un par de alusiones interesantes a la i
+nevitabilidad de la dialéctica forzosamente destructiva de una Unión Sovié-t
+ica que, de hecho, para Búrbulis, ya ni siquiera existía por aquellas mismas f
+echas11 .  Un asesor que en pocos años adquiriría gran celebridad como vice-p
+residente de George Bush hijo, el halcón y secretario de Defensa Dick C
+heney, no se cansaba de repetir que Washington tenía que intervenir en M
+oscú, forzar la desintegración final de la Unión Soviética y prevenir así q
+ue, de una forma u otra, la superpotencia soviética12  volviera a resurgir. Esa
+era la pesadilla que iba a surgir en los sueños de Nuevo Orden M
+undial de los Estados Unidos, una y otra vez. El regreso de un nuevo d
+ictador, un líder carismático o un militar golpista que se llevara por de-l
+ante al débil Gorbachov de turno y restaurara al Imperio del Mal. Como muchas
+obsesiones, esta terminó por convertirse en profecía autocumpli-da años más tar
+de, y se encarnó en Vladimir Putin13 . D
+e esa forma, en W ashington todo estaba decidido. Se efectuaría de f
+orma más o menos rápida o progresiva, pero la Unión Soviética debería m
+orir y descomponerse. Eso sí, su final no habría de ser producto de una explosión, sino de apenas un gemido, parafraseando a
+T . S. Eliot. Y
+si eso iba a ser así, desde luego que Washington querría tener de su l
+ado o bajo su control a la «segunda república» de la Unión Soviética, la r
+ica y poblada Ucrania. En ese encuadre, el viaje de Bush a Kiev en agosto de
+1991 no fue marginal. El discurso del «pollo Kiev» no fue sino una forma
+de guardar las formas y evitar las explosiones. Y dentro de ese guion, c
+laro que tenían importancia los nacionalistas ucranianos, y sus contactos con
+la comunidad ucraniana de los Estados Unidos, que, además, darían sus v
+otos a Bush o al Partido Republicano.L
+a clara reticencia ucraniana a formar parte de cualquier proyecto de U
+nión, ni más firme ni más laxa, federal o confederal, condenó cualquier 11
+«Guennadi Búrbulis: Rusia padece un síndrome imperial», en magazinedigital.com, 15 de diciembr
+e de 2017, texto de Gonzalo Aragonés.12
+Plokhy (2015): p. 236.13
+Pozner (2018).
+
+---
+
+42
+2 U CRANIA 22i
+ntento de Gorbachov por sacarla adelante. El 25 de noviembre fracasó el último
+plan del último líder soviético para preservar la Unión. Pero para entonces,
+en los Estados Unidos se estaba llevando a cabo una intensa campaña
+para que Bush reconociera la independencia ucraniana, como ya habían
+hecho otros países. En realidad, al día siguiente se iba a celebrar u
+na reunión del Consejo del Atlántico Norte para tratar la situación en U
+crania y, en especial, cuál iba a ser el destino de las armas y cabezas nu-clear
+es que se mantenían en su territorio14 .  Robert Gates, el director de la C
+IA, también había aludido e n un discurso a la cuestión ucraniana. El 2
+7 de noviembre, Bush recibió a una delegación de la comunidad ucrania-na
+en los Estados Unidos, que le pedía el reconocimiento de la indepen-d
+encia de su país de origen, advirtiendo de una más que improbable campa-ñ
+a militar soviética contra Ucrania dirigida por Gorbachov. El presidente anunció
+su intención de reconocer a la nueva república una vez celebrado el r
+eferéndum para la independencia del 1 de diciembre.Ese
+día, la consulta obtuvo un 92,32% de votos favorables. Una se-mana
+más tarde, se reunieron en Minsk los presidentes de Rusia, Boris Y
+eltsin; Ucrania, Leonid Kravchuk, y Bielorrusia, Stanislav Shushkévich. E
+l motivo oficial era discutir sobre suministros de energía entre las repú-b
+licas. El presidente Bush estuvo informado de todo el proceso y lo que había detrás de él. G
+orbachov no tuvo ninguna noticia de ello. E
+l denominado Pacto de Belavezha —un complejo turístico donde se celebraban
+cacerías de los líderes del Pacto de Varsovia— se firmó el 8 de d
+iciembre de 1991, con la intención expresa de disolver la Unión de Re-p
+úblicas Socialistas Soviéticas, constituida en 1922 por esas mismas repú-blicas que ahora la liquidaban.
+T
+odo se hizo con la mayor de las discreciones y la seguridad corrió a cargo
+de una unidad especial del KGB. Ese mismo día, una vez firmado el documento,
+Yeltsin telefoneó al presidente Bush para notificárselo. Pero n
+o tuvo valor o ganas para hacer lo mismo con Gorbachov. Le dejó la tarea al
+bielorruso Shushkévich. En la llamada estuvo incluida la noticia de que los
+amotinados ya habían hablado previamente con el presidente de los Estados U
+nidos.14
+Plokhy (2015): p. 309.
+
+---
+
+C
+APÍTULO 3UC
+RANIZAR UCRANIAP
+OLÍTICA M ULTIVECTORY  EXPANSIÓN DE LA OTAN RH
+ACIA EL ESTE, 1992/hyphen.cap1994La
+unidad es una anomalía. La polarización es normal. El escepticismo
+sobre la democracia liberal también es nor-mal.
+Y el atractivo del autoritarismo es eterno.Anne A
+pplebaum, T wilight of Democracy (2021) yAl
+día siguiente de proclamar su independencia, Ucrania se enfrentaba al muy
+complejo desafío de convertirse en un Estado viable, reconocido in-ternacionalmente,
+negociando los términos de la separación con Rusia de la
+mejor manera posible, evitando el colapso económico y logrando una identidad
+nacional cohesionada. Dicho de otra manera, se trataba de «ucranizar
+Ucrania», lo antes posible, en un mundo que solo en apariencia era feliz.
+E
+l desafío era titánico, por cuanto se iba a llevar a cabo en medio de una e
+xtraordinaria improvisación. Muchas de las grandes empresas en terri torio ucraniano
+ni siquiera mantenían relaciones institucionales con Kiev, sino con
+los pertinentes ministerios en Moscú. ¿Cómo se iban a negociar los o
+portunos reajustes legales, administrativos y presupuestarios en el menor tiempo
+posible? Ucrania no poseía un Ejército propio, sino una colección de
+unidades dispersas, heredadas de las fuerzas armadas soviéticas, sin co-nexión
+orgánica entre sí, sin que ni tan solo existiera un Ministerio de D
+efensa o un Estado Mayor. S
+in embargo, la determinación ucraniana se impuso. T ras el Pacto de B
+elavezha se había proclamado la denominada Comunidad de Estados I
+ndependientes (CEI), que, como su nombre indicaba, no podía ser una n
+ueva Unión Soviética, porque no tendría instituciones de gobierno en
+
+---
+
+44
+4 U CRANIA 22c
+omún. Se discutió la posibilidad de mantener unas fuerzas armadas com-par
+tidas, pero los ucranianos se negaron. Con el país al borde de la quie-bra,
+buscaron fondos donde pudieron para construir su propio ejército, pagando
+los sueldos de las fuerzas estacionadas en su territorio. Y a lo largo
+de 1992, la representación ucraniana se ausentó sistemáticamente de los div
+ersos tratados de defensa mutua de la CEI. L
+o mismo sucedió con las políticas monetarias. El desorden finan-c
+iero, los problemas de crédito y la impresión de rublos, que todavía e
+ran utilizados en todas las repúblicas, pusieron en marcha la inflación. E
+l mismo FMI recomendó la creación de un Banco Central que gestio-n
+ara una política monetaria común, aunque fuera de forma transitoria; p
+ero una vez más, los ucranianos no quisieron comprometer su indepen-d
+encia, y se negaron. Esta opción no estaba motivada por pulsiones na-c
+ionalistas, sino por el hecho de que los rusos estaban aplicando una po
+lítica neoliberal que restringía la impresión de más papel moneda, m
+ientras que el resto de las repúblicas prefirieron seguir echando mano d
+e las planchas1 . Esa
+política supuso que los ucranianos pronto empezaron a inundar a l
+a vecina Rusia con sus rublos inflacionarios, especialmente para pagar sus deudas;
+es decir, exportaron la inflación a Rusia, que a mediados de 1993 decidió
+emitir los nuevos rublos nacionales, que desplazaron a los soviéti-c
+os y, de paso, los ucranianos. Pero esta política no benefició en nada a U
+crania; era hija del desorden y la incompetencia. Así, entre 1991 y 1999, la «
+segunda república», la niña bonita, perdió el 60% de su PIB2 .  Para 1993 l
+a inflación andaba por un astronómico 10.000%, la producción indus-trial
+seguía colapsada y el nivel de vida de los ucranianos en caída libre3 , de
+forma similar al de los rusos. En cierta manera, el desplome de la eco-nomía
+ucraniana era una buena muestra de los desastres a que habrían llev
+ado las políticas reformistas de Gorbachov, si bien las políticas de la «terapia
+de choque» de Yeltsin produjeron también un reguero de calami-d
+ades y pobreza. A lo largo de los años noventa, Rusia y Ucrania fueron 1
+D’Anieri (2019): pp. 35-37. Parte de la estructura de este capítulo está basada en este exce-lente libr
+o.2
+«Ukrainian GDP», World Economic Outlook Database, from International Monetary Fund (IMF), octubr
+e de 2007.3
+«The IMF and Ukraine: What Really Happened, A Commentary by Lorenzo Figliuoli and B
+ogdan Lissovolik, IMF Resident Representatives in Ukraine», en International Monetary F
+und, Views & Commentaries, 31 de agosto de 2002 [consultable en red].
+
+---
+
+U
+CRANIZAR UCRANIAA 45 sufrientes
+laboratorios en los que se comprobó la dificultad que implicaba la transición del socialismo al capitalismo
+.P
+ero en el caso de Ucrania pervivían complejidades muy específicas, que
+generaban cuadraturas del círculo con Rusia, a cada paso. Una muy especial
+era el complejo militar industrial de esta república. Es poco cono-cido
+por el gran público que, en tiempos de la Unión Soviética, la Repú-b
+lica Socialista Soviética de Ucrania aportaba, ella sola, el 30% de la pro-ducción
+de la industria de armamento de toda la Unión, así como el 40% de
+la investigación científica militar. Sin lugar a duda, el complejo militar-industrial
+ucraniano era la rama más desarrollada de la economía estatal4 y
+## daba trabajo en torno a un millón de personas. F abricaban cualquier cosa
+desde potentes y fiables motores para todo tipo de vehículos hasta buques
+de guerra enormes y sofisticados. En Ucrania se botó el primer y único
+portaeronaves soviético, el A lmirante Kuznetsov, en 1985, y también e
+l crucero lanzamisiles Mo skvá, destinado a ser el cazador de portaaviones estadounidenses,
+y que fue hundido por las tropas ucranianas en el mar N
+egro en abril de 2022. Asimismo, en la ciudad de Dnipro se ensambla-ban
+buena parte de los misiles nucleares de alcance intercontinental; y en J
+árkov se diseñaron y fabricaron carros de combate que se enfrentaron en las
+guerras de 2014 y 2022, tripulados por rusos y ucranianos. Además de ello,
+la tecnología de radares o los célebres aviones Antonov, vendidos en numer
+osos países de todo el mundo.A
+demás de por su agricultura y su industria militar y pesada, en gene-ral
+—en la que estaba empleada el 55% de la población activa—, Ucrania también
+era rica en minerales. Lógicamente, la Unión Soviética en su con-junto
+era el cliente de toda esa producción, que, además, en un elevado por
+centaje, era de semielaborados, lo cual hacía que la economía ucrania-na
+fuera totalmente dependiente de la URSS, primero, y de Rusia des-pués.
+Ese cuadro se completaba con el desaforado consumo de energía, por
+causa de las anticuadas infraestructuras y tecnología. A principios de s
+iglo xx ,  el Donbas figuraba entre los mayores productores de carbón d
+e Europa, pero esos yacimientos se habían ido agotando. Por lo tanto, la dependencia
+de los hidrocarburos rusos y turkmenos se hizo muy elevada. P
+ara paliar en algo esa situación, a lo largo de la década de los setenta las autoridades
+ucranianas se lanzaron a un programa de construcción de cen-4
+GlobalSecurity.org, véase: Ukraine Defense Industry.
+
+---
+
+46
+6 U CRANIA 22trales
+nucleares que terminaron por hacer del país el segundo en cuanto a p
+roducción de ese tipo de energía, solo por detrás de Francia. Una de esas centrales,
+que compartía los problemáticos reactores RBMK con las de-más, fue pr
+ecisamente la de Chernóbil5 . La
+economía era como un lastre descomunal que mantenía a Ucrania a
+nclada en Rusia. De hecho, los rusos tendían a creer, en aquellos prime-r
+os años que los ucranianos volverían al redil, a una reintegración natural. T
+arde o temprano se arrepentirían y regresarían al seno de la Madre Rusia. Y
+el hecho es que muchos ucranianos también empezaron a verlo así en los p
+rimeros años de la independencia; y asimismo los países occidentales llega-r
+on a creerlo.La
+gestión política no ayudaba a que Ucrania saliera adelante por su c
+uenta. El primer presidente, Leonid Kravchuk, venía a ser como una es-p
+ecie de Gorbachov ucraniano, aunque con mucho menos talento y caris-m
+a. Era apenas un reformista timorato, que aunque hubiera tenido más empuje
+tampoco habría ido demasiado lejos: estaba atado de pies y manos por
+la administración heredada del periodo soviético, por una mayoría de políticos
+que, con mayor o menos disimulo, mantenían su mentalidad s
+oviética y seguían ligados entre sí por medio de clanes y redes de influen-c
+ia. Durante años, los presidentes de gobierno habían sido cargos de em-p
+resas públicas yap paratchiksyd e todo tipos6 .  Pero ese conservadurismo no l
+ibró a los ucranianos de la pobreza, de forma parecida a como la sufrieron l
+os rusos por causa de la estrategia opuesta, la doctrina del shock ap licada shockp
+or Yeltsin y su equipo de economistas neoliberales. Y
+en junio de 1993 llegó el final de la ilusión. Ese mes, 400.000 tra-bajador
+es de la región de Donbas fueron a la huelga, respaldados por las élites
+locales. Era una advertencia muy seria que, además, implicaba la amenaza
+de detener el trabajo en las acerías. El gobierno prometió subidas de
+sueldos que no podría abonar. Y al final la salida al conflicto se pactó a par
+tir de dos concesiones: la dimisión del primer ministro y elecciones p
+residencias y parlamentarias para 1994. En las causas del malestar y en su arr
+eglo no solo estuvieron presentes la ausencia de reformas y la mala ges-tión
+económica, sino que también se mezcló, de forma explícita, el cuestio-namiento
+de la independencia por parte de una región de mayoría ruso-5
+Dyczok (2000): pp. 34-35.6
+I bid.: p . 34, tabla 2.1.
+
+---
+
+U
+CRANIZAR UCRANIAA 47 p
+arlante y de trabajadores industriales, y la propuesta de una reintegración co
+n Rusia7 .  La huelga de 1993 en el Donbas fue la primera grieta en aquella
+unanimidad en el referéndum de 1991, cuando votó por la inde-pendencia
+incluso una mayoría de esa región, y aun de Crimea, como constató estupefacto el mismo
+Yeltsin ante los resultados.T
+al como argumenta Paul D’Anieri, la protesta de los trabajadores del D
+onbas anticipó las dinámicas y tácticas de las de 2004 y 2014, con las t
+iendas de los contestatarios plantadas en la plaza del Maidan, en pleno c
+entro de Kiev. Pero la salida a la crisis mediante el pacto entre las fuerzas e
+nfrentadas solo se repetiría en el primero de los casos, no ya en el segundo.Y
+a tenemos tres interacciones en juego: la dividida economía de la U
+crania recién independizada entre sí con la rusa, todo ello en el marco de una
+transición al capitalismo, entre caótica e indecisa. Subamos otro nivel en
+el complejo puzle: la correlación entre los vencedores de la Guerra Fría, especialmente
+los Estados Unidos y todo ese conjunto sufriente de econo-mías y sociedades postsocialistas, incluy
+endo, sobre todo, la ucraniana.La
+independencia de Ucrania y el posterior desmoronamiento de la U
+nión Soviética arrancaron, al tiempo que se desintegraba Yugoslavia, en u
+n rosario de guerras fratricidas. El periodo 1991-1995 fue duro y caótico en
+todo el espacio exsoviético y en la Europa del Este. Ni la Comunidad E
+uropea ni las Naciones Unidas acertaban con un plan de paz que resol-viera
+el laberinto mortal de las guerras en Croacia y Bosnia. Mientras tanto,
+en el Cáucaso y algunas repúblicas exsoviéticas del Asia Central, c
+omo Tayikistán, estallaban combates que se iban convirtiendo en guerras metastásicas.
+D
+urante ese periodo, Washington hizo más bien poco para encauzar la
+situación. El presidente Bush ya había hecho la gran apuesta de su man-dato
+en la guerra del Golfo (1990-1991), rematada por la intrigante de-sintegración
+pacífica de la Unión Soviética. Después de ello, no cabía lan-z
+a r s e  a  n u e v a s  a v e n t u r a s  e n  e l  s i e m p r e  b u l l e n t e  á m b i t o  d e  E u r a s i a .  S e  habló
+mucho por entonces de la necesidad de poner en pie un «Plan Mar-shall
+para el Este», aunque era una reivindicación más buenista que real. La
+cantidad necesaria anualmente para reorganizar las economías de ese ámbito
+inmenso que es «el Este» resultaba muy elevada, pero los verdade-r
+os problemas de fondo eran dos. Por una parte, el temor a la inestabilidad 7
+D’Anieri (2019): p. 45.
+
+---
+
+48
+8 U CRANIA 22política
+en Rusia: en 1992 nadie podía apostar en firme por la permanen-c
+ia de Y eltsin en el poder . La terapia de choque neoliberal empezaba a e
+ncontrar serias reticencias y las fuerzas de la oposición estaban consi-guiendo
+ganar las primeras batallas contra el histriónico presidente. Desde luego,
+latía ahí el círculo vicioso del uróboro mordiéndose la cola, puesto que
+la falta de ayuda financiera internacional abocaba a que el empobreci-miento
+de la economía y la población rusas perpetuara la inestabilidad. P
+ero en el trasfondo real jugaba el deseo de los principales aportadores potenciales,
+los estadounidenses, de disfrutar de la victoria obtenida con el f
+inal de la Guerra Fría, ahorrándose por una vez los sacrificios y contribu-ciones en pr
+o de la lucha por el Bien contra el Mal. E
+l cambio de dinámica llegó con el joven Bill Clinton, al que los demó-c
+ratas presentaron como un nuevo JFK, fantasía que volvería a repetirse con otr
+os candidatos de ese mismo partido tras el progresivo enconamiento e
+ntre las presidencias de las dos grandes opciones políticas estadounidenses. C
+linton, cuarenta y seis años, en enero de 1993, cuando llegó a la Casa B
+lanca, sería el gestor de la victoria americana tras el final de la Guerra Fría. E
+l rey de la política de cinta americana, e l hombre que parchearía los peli-g
+rosos desajustes heredados en Palestina, Bosnia y Rusia en apenas dos a
+ños. En septiembre ya obtuvo su primera gran victoria en política exte-r
+ior, tras la firma de los denominados acuerdos de Oslo, entre palestinos e israelíes.
+Las reuniones secretas en la capital noruega inspiraron la dinámi-ca
+audaz de los Acuerdos de Dayton que pondrían fin a la guerra de Bos-nia a finales de 1995.
+E
+ntre tanto, en Rusia, Yeltsin encontraba cada vez más resistencia p
+olítica a la aplicación de una terapia de choque que no terminaba de dar r
+esultados, mientras el nivel de empobrecimiento de la población crecía r
+ápida e inexorablemente, al ritmo de una inflación salvaje. El año 1993 f
+ue especialmente nefasto para él, enfrentado a un Parlamento en rebel-d
+ía que buscaba destronarlo y que ya había logrado la destitución de G
+aidar como primer ministro, en diciembre del año anterior. La batalla final
+arrancará en torno a la discusión en torno a unos presupuestos vota-d
+os por el Parlamento y que no cumplían con la austeridad recomendada por
+el FMI. A
+esas alturas, Washington veía ya materializarse su peor pesadilla: un e
+scenario involutivo en el cual se ponía al frente de Rusia a un caudillo, u
+n general, un nuevo Lenin o un Stalin que resucitaría la extinta Unión
+
+---
+
+U
+CRANIZAR UCRANIAA 49 S
+oviética de entre sus cenizas. O quizás un régimen peor, por desconoci-d
+o. ¿Podría ser el coronel Aleksandr Rutskoi, veterano piloto de combate y
+Héroe de la Unión Soviética, tras haber sido derribado en dos ocasiones s
+obre Afganistán y una sobre Pakistán? Vicepresidente de Yeltsin en 1991, ahora
+acaudillaba la feroz oposición parlamentaria. La caza del Octubre R
+ojo, f ilm de 1990 sobre el superventas de Tom Clancy; El  Santo, película d
+e 1997: ambos fueron éxitos cinematográficos de la época con el trasfondo a
+rgumental de un golpe de Estado que instaura a un dictador ruso, fanati-zado y enloquecido
+.T
+ras ganar el referéndum del 25 de abril por escaso margen, resultaba r
+espaldada la política económica de Yeltsin y el presidente tenía la facul-t
+ad de convocar elecciones parlamentarias anticipadas. Y a la vuelta de v
+erano, en septiembre, se aprueba el Decreto 1400, por el cual Y eltsin d
+isolvía el Parlamento y además se desconectaba las líneas telefónicas de l
+a Casa Blanca.E
+ntonces los diputados rebeldes se atrincheran en el edificio, inclu-y
+endo a Rutskoi con chaleco antibalas y kalashnikov al hombro. Y apelan a
+voluntarios para defenderlo. T ras las barricadas se reunieron más de diez mil
+personas, quizá quince mil. Casi dos semanas más tarde, carros de c
+ombate de la División Taman —la misma que había intentado el Gol-p
+e de Agosto de 1991—, ahora afectos a Yeltsin, bombardean la Casa Blan-c
+a, le prenden fuego, rinden a los insurrectos y, al precio de más un centenar d
+e muertes y 19.000 detenciones, triunfa el golpe del 4 de octubre de 1993.S
+e desconoce si en esta ocasión Yeltsin volvió a recibir alguna forma d
+e ayuda americana, como sucedió en 1991. Sí es sabido que un plantel de e
+xpertos redactaba decretos de privatización, diseñaba la nueva bolsa d
+e Moscú y manejaba el mercado ruso de fondos de inversión. En abril, la campaña
+para el referéndum estuvo gestionada por empresas estadouni-denses
+expertas en publicidad, que desarrollaban las estrategias de neuro-már
+keting, bloqueaban a la oposición, que no podía acceder a los medios de
+comunicación, ridiculizaban a Rutskoi e implantaban la imagen de Y
+eltsin como estadista fuerte y esencial, moderno y, sobre todo, ruso, d
+e pura cepa. Reivindican la imagen del golpista y dictador Pinochet. Y, si es necesario, de los estadios como campos de concentración.
+E
+l triunfo del golpe de octubre fue saludado desde Washington con aplausos
+de alivio. Y nunca se le llamará «golpe»: será bautizado de forma más pudor
+osa «crisis constitucional rusa de 1993».
+
+---
+
+50
+0 U CRANIA 22A
+partir de ese momento, Ucrania vuelve a recibir las atenciones de E
+stados Unidos. Ha sido conjurado el peligro de involución en Rusia y por
+lo tanto se puede —y se debe— actuar para recolocar al espacio exso-viético en la senda del cambio
+. P
+aradójicamente, Clinton no actuó en base a la política del cheque en b
+lanco. En abril de 1993 logró que se aprobara un paquete de ayudas para todo
+el conjunto de la CEI, pero la cantidad comprometida era exigua, lo justo
+para apoyar a Yeltsin frente a la oposición en el momento crucial del r
+eferéndum. Los estadounidenses no hubieran respaldado ayudas masivas p
+ara Rusia y/o Ucrania. La acción del joven presidente se centró más bien e
+n la intervención, directa, en la resolución de algunos conflictos que im-pedían
+normalizar y estabilizar la situación en toda la zona, desde Sarajevo hasta M
+oscú, incluyendo Kiev en ello. T
+uvo mayor recorrido la resolución de uno de los problemas centrales e
+n las relaciones entre Rusia y Ucrania, que estaba afectando muy negati-v
+amente a Kiev: el contencioso en torno al armamento nuclear.E
+l dilema ucraniano se había manifestado ya tras su declaración de soberanía,
+en 1990. En principio, existía consenso entre los nacionalistas para
+desembarazarse de las cabezas nucleares del Ejército soviético que estaban
+desplegadas en su territorio. El recuerdo del drama de Chernóbil estaba
+aún caliente, y, al fin y al cabo, la gestión operativa de todo ese sistema
+de armas estaba en manos del alto mando soviético, fuera del con-t
+rol ucraniano. P
+ero, progresivamente, se fue afianzando la idea de que el armamento n
+uclear no se podía devolver a Rusia sin alguna forma de compensación. C
+on bastante rapidez, en los meses de negociación sobre la permanencia de U
+crania en la Unión, el mismo Kravchuk se convirtió en adalid de la políti-c
+a de tira y afloja con el armamento nuclear. El dilema residía en que, a pesar d
+e no poder utilizar esos sistemas, su permanencia en Ucrania hacía más por l
+a seguridad de la república que su mera devolución. De entrada, era una b
+aza en la negociación de temas duros como, por ejemplo, el destino de C
+rimea o la flota soviética del mar Negro. O ayudas económicas, incluso d
+e Occidente. Y así, en marzo de 1992, Kravchuk anunció que se detenían l
+os envíos de armamento nuclear a Rusia. E
+sos manejos y jugueteos terminaron poniendo nerviosos —y algo m
+ás— a los mismos estadounidenses, que se afanaban en cumplir los acuer-d
+os de desarme nuclear firmados en su día con Gorbachov, los START-I y
+
+---
+
+U
+CRANIZAR UCRANIAA 51 S
+TART-II. En mayo, la firma de los Protocolos de Lisboa pareció encarri-lar
+la situación, cuando Ucrania, Bielorrusia y Kazajistán aceptaron el S
+TART-I y el T ratado de No Proliferación Nuclear como Estados inde-pendientes.
+Con todo y con eso, el Secretario de Estado estadounidense le dejó
+bien claro a Kravchuk, en persona, que las ayudas de Washington dependerían de la desnuclearización de U
+crania8 . A
+un así, los tira y afloja continuaron. En parte, porque el nuevo pri-m
+er ministro era Leonid Kuchma, quien tenía experiencia en el asunto como
+antiguo director que había sido de la factoría Yuzhmash, en Dniepro-p
+etrovsk, donde se construían los misiles intercontinentales soviéticos. Como
+aún no se había ratificado en la Rada la firma del START-I, volvió a
+surgir la declaración de Ucrania como «potencia nuclear temporal». En j
+ulio, el Parlamento en Moscú votó por la pertenencia a Rusia de la ciudad y base
+naval de Sebastopol, en Crimea, lo cual añadió más gasolina al fuego.T
+odo esto sucedía, vale la pena recordarlo, mientras Yeltsin se estaba echando
+un pulso más que peligroso con la oposición y se disponía a di-solv
+er el Parlamento. En esa situación la confianza de Washington hacia K
+iev, y de Kiev en Washington no terminaba de fluir. Vale la pena hacer el
+ejercicio de historia transversal, puesto que si bien Paul D’Anieri hace un
+correcto ejercicio de descripción y análisis de la crisis ucraniana y de la c
+risis rusa, en paralelo, falta la visión de conjunto de un momento tremen-damente delicado: el año 1993.
+Ese
+primer año de Clinton en la Casa Blanca coincide con el gran t
+emor a que Y eltsin sea depuesto por la oposición radical, cada vez más claramente
+definida como neosovietista y ultranacionalista. El presidente estadounidense
+también está alarmado ante la desastrosa situación en U
+crania: Kravchuk ha tocado fondo y en el país crecen los partidarios de u
+na reintegración con Rusia, lo cual queda de manifiesto durante las huel-g
+as del Donbas en junio. Dicho de otra manera, sin saber lo que vendría después,
+en el verano de 1993 podría haber ocurrido que Yelstin saliera derr
+otado en su pulso con el Parlamento y los ucranianos hubieran ayuda-d
+o a la oposición con un acercamiento a Rusia. En consecuencia, ambas t
+ransiciones habrían fracasado a la vezy  la peor pesadilla de Washington sezhabría
+materializado: un nuevo proyecto de Unión. Debe tenerse muy p
+resente que en la disolución de la Unión Soviética y en la imposibilidad 8
+D’Anieri (2019): p. 49.
+
+---
+
+52
+2 U CRANIA 22de
+mantener alguna forma de Unión, incluso en un marco tan laxo como el de CEI, la cerraz
+ón ucraniana había jugado un papel primordial. P
+or lo tanto, en cuanto puede y como puede, Clinton apuntala a la independencia
+ucraniana y apoya a Yeltsin. Mientras las opciones nacio-nalistas
+pervivan en Rusia y Ucrania, la reintegración será imposible. Al f
+in y al cabo, los nacionalistas ucranianos, aliados con Kravchuk, intentan r
+eactivar el entusiasmo nacional desafiando a los rusos con las dilaciones en
+la devolución del armamento nuclear soviético; y estos, unidos contra K
+iev, desde Yeltsin hasta Rutskoi, siguen presionando para obtener el con-t
+rol de Sebastopol, de la Flota del Mar Negro y de ventajas inherentes al suministr
+o de hidrocarburos que los ucranianos no pueden rechazar. Y
+entonces, el 12 de enero de 1994 tiene lugar un hecho trascendental que
+pasó desapercibido en la prensa occidental y olvidado para los libros d
+e Historia: el presidente Bill Clinton hizo escala en Kiev en su vuelo ha-c
+ia Moscú, donde junto con Yeltsin y Kravchuk firmaría el Acuerdo T rila-t
+eral sobre el control de armas nucleares. Pero tan importante como esa c
+umbre fue el anuncio de que Ucrania había sido invitada a unirse al P
+artenariado o Asociación para la Paz (Partnership for Peace o PfP). «
+Nuestra reunión de esta noche da paso a una nueva era en nuestras rela-ciones»,
+anunció el presidente americano. Y poco más tarde, en Moscú, tras
+firmar el Acuerdo T rilateral, los Estados Unidos dieron garantías de s
+eguridad a Ucrania; aunque no equivalían al Artículo 5.º de la OTAN, era
+un paso importante que los ucranianos habían insistido en demandar ante
+Washington.Así
+que la jugada fue audaz, porque la Asociación para la Paz se había fundado
+apenas dos días antes, en Bruselas. De esa forma, Ucrania fue el primer
+país invitado a formar parte de «un programa de cooperación bila-teral
+práctica entre países socios euroatlánticos individuales y la OTAN. P
+ermite a los socios construir una relación individual con la OTAN, eli-g
+iendo sus propias prioridades de cooperación». En conjunto, la Asocia-ción
+era un tinglado para extender la influencia de la OTAN hacia el Este de
+manera suave y amistosa. Buena prueba de ello fue que en ese mismo año
+de 1994, incluso Rusia se convirtió en miembro: la Rusia gobernada d
+e forma presidencialista por un Yeltsin triunfante, que mostraba trazas de p
+oder convertirse en una autocracia, a tenor de los resultados de las elec-ciones
+de diciembre de 1993. De cualquier forma, lo importante eran los antiguos
+países integrantes del Pacto de Varsovia, y no tanto Rusia, a la
+
+---
+
+U
+CRANIZAR UCRANIAA 53 que
+solo interesa mantener tranquila. Es decir, la Asociación para la Paz fue
+la antesala de la integración de los países del Europa del Este en la A
+lianza Atlántica, primero, y en la Unión Europea, después, o casi al mis-m
+o tiempo. Pero el caso de Ucrania fue especial, por ser el mismo Clinton q
+uien llevó la oferta a ese país como primer beneficiario, cuando allí cre-cían
+las dudas sobre la viabilidad de la independencia tras las huelgas del v
+erano de 1993 y las elecciones que se aproximaban.La
+apuesta de Washington por mantener separados a rusos y ucrania-nos
+sin generar por ello una guerra, continuó con una jugada política que a
+banderó el ganador de los comicios de julio, Leonid Kuchma, el sucesor del
+quemado Kravchuk en la presidencia: lo que el nuevo mandatario ucraniano
+bautizó como política exterior «multivector» . En realidad, la pro-ectorectorpuesta
+no dejaba de ser «gatopardismo inverso»: volvamos al pasado para seguir
+hacia adelante. O como el J e vous ai compris!d e De Gaulle a los!franceses
+de Argelia en 1958: «Os entiendo, tomo nota, y ahora voy a hacer
+lo que me parezca mejor». Kuchma parecía dispuesto a aprender la práctica
+de la política de doble rasero que ejercían con fruición los vence-dor
+es de la Guerra Fría.La
+campaña electoral para las presidenciales resulta decisiva porque en l
+as parlamentarias de marzo se ha podido constatar la pulverización del voto a
+los partidos: los candidatos independientes se habían llevado más del 60%
+de los votos; los comunistas del KPU, casi el 15%, y más abajo de e
+so, los derechistas conservadores del NRU (Movimiento Popular de Ucra-nia)
+con un 6%, los socialistas con un 3,65%, el KUN de los nacionalistas e
+l 1%... y la irrelevancia. Por lo tanto, el presidente iba a marcar el rumbo de
+los destinos de Ucrania en los próximos años. Y eso es precisamente lo que hiz
+o.La
+cuestión de las relaciones con Rusia fue central en la campaña. Y en
+ella, Leonid Kuchma, el competidor de Kravchuk, tenía la sartén por el m
+ango. Frente al desgastado presidente, derribado por la huelga de los trabajador
+es del Donbas, Kuchma centralizaba un holding d e empresas de holdinglos
+sectores metalúrgico, de maquinaria y agrícolas, apoyado por una fuer-t
+e representación de las élites económicas: todas tenían en común su pre-fer
+encia por hacer negocios con Rusia. T ras este candidato, el voto del este y
+el sur de Ucrania; mientras tanto, Kravchuk, que había comenzado sien-do
+un comunista oportunista, era ahora el campeón de los nacionalistas y l
+e respaldaba el voto del oeste, donde había sido débil en 1991. Las elec-
+
+---
+
+54
+4 U CRANIA 22ciones
+de 1994 aportaron otra novedad en la Ucrania independiente: se h
+abía regionalizado el voto y el este, más populoso que el resto, demostra-ba
+su poder. Precisamente, durante las parlamentarias de marzo, los óblast d
+e Donetsk y Lugansk añadieron por su cuenta papeletas para un referén-dum
+demandando un estatus especial para el idioma ruso, la adopción de una
+administración federal y la integración de Ucrania en la CEI9 .  En efecto,
+mucho antes de que Putin llegara al poder, existía un sentimiento identitario
+rebelde en el Donbas. Lo mismo sucedió en Crimea, donde el gobernador
+elegido, Yuri Meshkov, incluyó otro referéndum de tapadillo junto
+con las papeletas de voto. En él se planteaban preguntas sobre la posibilidad
+de una autonomía, una doble ciudadanía o un tratado bilate-ral de gobierno sobr
+e la península.Y
+Kuchma ganó las elecciones; por un 52%, frente al 45% de Krav-chuk, en segunda vuelta.
+Y
+entonces, él mismo fue desactivando la esencia de los deseos de su electorado
+. El mecanismo resultó paradójico pero eficaz: habiendo conse-g
+uido representación, que su voz se escuchara, que su presencia fuera teni-da
+en cuenta, el sur y este ucranianos, en buena medida rusoparlantes, se terminar
+on sumando al esfuerzo nacional y dejando de lado la reintegra-c
+ión a Rusia. De otro lado, Kuchma consiguió evitar la imagen de que el nacionalismo
+gobernaba en Kiev. Y en tercer lugar, la política de equili-b
+rios entre Rusia y los Estados Unidos, en base a políticas multivector, evitaba
+encrespar los oleajes políticos internos, puesto que la estabilidad, la
+tranquilidad y la diversificación eran vitales para normalizar la econo-mía y sacar adelante la transición.
+D
+entro de esa dinámica, Kuchma dio preferencia a la creación de una clase
+media que estructurase al nuevo país independiente, puesto que, desde
+un punto de vista cultural y nacional, Ucrania era un país bastante d
+iverso. Además, no había forma de sentar las bases de la privatización sin el
+alumbramiento y desarrollo de clases medias nacionales. Sin embargo, la
+necesidad de desarrollar esos cambios de forma rápida, así como la in-fluencia
+de la cercana y poderosa Rusia, impulsaron el surgimiento de un pujante y peligr
+oso sustrato social de oligarcas.E
+n el paradigma ruso-ucraniano —aunque también aparecerá en o
+tras repúblicas exsoviéticas— el oligarca es un magnate de los negocios 9
+D’Anieri (2019): p. 72.
+
+---
+
+U
+CRANIZAR UCRANIAA 55 surgido
+prácticamente de la nada10 .  En un medio soviético o postsoviético en
+el cual, por definición, no existe capital privado para adquirir las em-p
+resas del Estado en vías de privatización, los oligarcas amasaron grandes for
+tunas haciéndose con el control de las materias primas y de las empre-sas
+extractivas, en especial las de energía, en ocasiones prácticamente en r
+égimen de monopolio. Para llevar a cabo tamaños golpes de mano, los oligar
+cas contaban con una innata capacidad para el trapicheo y el camba-lache
+—al menos en una primera fase— saltándose las leyes o aprovechan-d
+o los vacíos legales, la protección desde el poder, local o central, y, en un momento
+determinado, aunque no siempre, valiosos contactos con las finanzas
+internacionales de forma directa o a través de Israel por el origen judío
+de algunos de los oligarcas, caso del ruso Roman Abramovich o el uc
+raniano Íhor Kolomoiski, que también contaba con la nacionalidad chi-p
+riota e israelí. Esos contactos podían servir para drenar capitales con los cuales
+adquirir las empresas locales. En el caso de los oligarcas ucranianos, se
+beneficiaron en muchas ocasiones de las relaciones con sus cofrades r
+usos. De ahí que la nueva casta sirviera a los fines de la política multivec-t
+or de Kuchma como placa giratoria entre Occidente y Rusia —es decir, sin
+casarse con ninguna línea política— a la vez que daba lugar a una «priv
+atización nacionalizada» de los activos ucranianos. S
+in embargo, el precio a pagar terminó siendo muy elevado, tanto e
+n ese país como en Rusia. Los oligarcas podían derivar en simples clep-t
+ócratas, como fue el caso de Pavlo Lazarenko. Parte de su fortuna la h
+izo siendo primer ministro, entre 1996 y 1997; pero en 2006 fue con-d
+enado en los Estados Unidos por blanqueo de capitales y extorsión. S
+olo durante su periodo en el gobierno drenó unos 200 millones de d
+ólares. En una lista de los diez cleptócratas más importantes del mun-d
+o, Lazarenko ocupaba el octavo lugar, tan solo tres puestos menos que e
+l presidente serbio Slobodan Milošević e inmediatamente por detrás d
+el dictador haitiano Jean Claude «Bébé Doc» Duvalier y el presidente p
+eruano Alberto Fujimori11 .  Este tipo de conductas solo se entienden a p
+artir de la política de «propinas» que entregaban los oligarcas a Kuch-m
+a y su gente.10
+Richard Sakwa, buen conocedor del fenómeno oligárquico en Rusia, integra muy acertada-m
+ente la evolución de este «tercer poder» en la historia del periodo, en su obra F rontline Ukrai-ne
+(2016). e11
+«Suharto tops corruption ranking», en BBC News, 25 de marzo de 2004.
+
+---
+
+56
+6 U CRANIA 22D
+e cualquier forma, la cuestión primordial para la Ucrania de los años n
+oventa era cómo reinventarse a base de complejos equilibrios. Aprovechar e
+l cortejo de Washington para abrirse a los mercados occidentales sin provo-c
+ar la peligrosa ira de Moscú, lo que podría descarrilar la transición econó-m
+ica y desgarrar la sociedad ucraniana de este a oeste y de norte a sur.E
+l centro de gravedad en esos ejercicios de funambulismo estaba en la aceptación,
+por parte de las potencias implicadas, del doble juego que pudiera
+desarrollar Ucrania. Venía a ser como un triángulo amoroso en el c
+ual Rusia y los Estados Unidos aceptaban tolerarse entre sí en su respec-t
+ivo flirteo con Ucrania, y para ello necesitaban irse acostumbrando a la situación y ponerse de acuer
+do en ciertos límites. L
+os toma y daca eran, básicamente, los siguientes: Rusia pedía la de-v
+olución del puerto y la base de Sebastopol, en Crimea, así como de una par
+te sustancial de la Flota del Mar Negro. Ucrania negociaba con la de-v
+olución al completo del armamento nuclear soviético y el acercamiento a l
+os Estados Unidos, pidiendo garantías sobre sus fronteras, y en ese con-texto
+coqueteaba con alguna forma no habitual de acercamiento y semiin-tegración en la O
+TAN. E
+n  e s t a  ú l t i m a  c u e s t i ó n ,  e l  p r i m e r  g e s t o  c l a r o ,  c o m o  v i m o s ,  f u e  l a  integración
+de Ucrania en la Asociación para la Paz, en enero de 1994. T
+ras el relevo en la presidencia ucraniana, ya con Kuchma, Kiev mostró un may
+or entusiasmo por la Asociación. Participaba en todas las actividades y
+ejercicios conjuntos y no tardó en enviar a la guerra de Bosnia a 400 soldados
+en la Fuerza de Implementación (IFOR) de la OTAN, en di-c
+iembre de 1995. Para entonces, el mismo Kuchma había propuesto una «Car
+ta sobre una asociación distintiva entre Ucrania y la OTAN»12 . A
+raíz de esos movimientos se abrió paso una de las primeras adver-t
+encias de Moscú, que llevarían a la guerra abierta un cuarto de siglo más t
+arde. En 1995, el politólogo ruso Arkady Moshes (más tarde emigrado a F
+inlandia) escribió: «Los políticos en Kiev deben entender que Ucrania está
+declarando el objetivo de unirse a la OTAN, lo cual será visto como un
+cambio hacia una política abiertamente hostil hacia Rusia, con todas las consecuencias r
+esultantes13 . 12
+D’Anieri (2019): p. 89.13
+Arkady Moshes, «Zybkii neutralitet Ukrainy», M oskovskiye Novosti, n.º 26, 30 de junio-7 de julio de 1996, p
+. 10; cit. en D’Anieri (2019): p. 102.
+
+---
+
+U
+CRANIZAR UCRANIAA 57 P
+ero en marzo de 1997, el ministro de Defensa ucraniano, Hennady U
+dovenko, se dirigió a los delgados de la OTAN, en plena reunión, en B
+ruselas, pidiendo taxativamente: «Espero que la OTAN respalde a Ucra-n
+ia en sus esfuerzos por lograr su objetivo estratégico de integración com-pleta
+en las estructuras de seguridad europeas y euroatlánticas, incluida la O
+TAN». Pocos meses más tarde pidió garantías de seguridad para Ucrania «similar
+es al Artículo 5» (sic),  cosa que la O TAN rechazó.¿
+No podría hacer la Alianza Atlántica una serie de concesiones y ex-cepciones
+a la medida de Ucrania? En el debate sobre las peligrosas impli-caciones
+de la expansión de la Alianza Atlántica hacia el Este, se suele ol-v
+idar el protagonismo entusiasmado de los países que dieron el primer p
+aso para dejar atrás, cuanto antes, su pasado en el Pacto de Varsovia y, d
+e paso, hacer méritos para la integración en la UE a través de la Asocia-ción para la P
+az. D
+espués se debatió mucho sobre la supuesta promesa hecha a Gorba-c
+hov, en febrero de 1990, por parte del secretario de Estado James Baker d
+e que la Alianza no se movería «ni una pulgada» hacia el Este. Y que r
+enovó poco después ante el ministro de Exteriores soviético, Edvard S
+hevardnadze14 . La
+discusión, a día de hoy, se ha vuelto bizantina y no parece que se p
+ueda encontrar algo así como el cabo del hilo que nos lleve a conclusio-ne
+s válidas en relación con la guerra que estalló en Ucrania en 2022. En aq
+uellos días se estaba precipitando la posibilidad de que Alemania se r
+eunificara, y esa era la verdadera piedra de toque para un final de Guerra F
+ría realmente pacífico y armonioso, el mejor de los mundos soñados. L
+os dirigentes de las grandes potencias, incluyendo a Helmut Kohl, esta-b
+an en un estado cercano al éxtasis: Gorbachov parecía dispuesto a dar el c
+onsentimiento soviético a la reunificación, en parte porque como visio-n
+ario creía realmente en la posibilidad de erigir una «casa común europea» y
+en parte también porque necesitaba de los créditos y ayudas a fondo p
+erdido que pudieran suministrar los occidentales para mantener a flote l
+a economía soviética y sacar adelante las reformas que aseguraran su su-p
+ervivencia. P
+ero para ello era fundamental que esos mismos dirigentes le dieran algunas
+seguridades a fin de poder callar o tranquilizar a los halcones en el 14
+Véase el extenso trabajo de Sarotte (2021).
+
+---
+
+58
+8 U CRANIA 22K
+remlin. Años de propaganda soviética habían insistido en que la reunifi-cación
+alemana llevaría a un IV Reich, y algo que deseaba, precisamente, l
+a OTAN. Y ahora parecía que la pesadilla podría hacerse realidad. En consecuencia,
+comenzando por Baker y continuando con Kohl, Mitte-r
+rand y Margaret Thatcher, todos fueron bañando a Gorby en una catara-ta
+de seguridades que nunca pasaron de ser difusas y no se plasmaron en ni
+ngún documento. Según algunos autores, las seguridades de Baker se re-f
+erían a que la OTAN nunca pasaría al otro lado de la antigua República F
+ederal de Alemania, aglutinando a lo que había sido la desaparecida Re-pública
+Democrática de Alemania15 .  Otros, a la luz de documentos esta-d
+ounidenses desclasificados hace algunos años, vienen a admitir que las p
+romesas parecen sugerir, en efecto, que la Alianza Atlántica no iría más allá
+de la Alemania reunificada16 .  Pero todo eran seguridades voluntaria-mente
+nebulosas, en sinuosa o resbaladiza retórica diplomática; lo que G
+orby quiso oír, entre sonrisas, palmadas en la espalda y francos apretones de
+manos, en alegres reuniones de amables y educados estadistas occiden-t
+ales. En esa nube de cordialidad, el mismo Gorbachov acariciaba la idea d
+e que el Pacto de Varsovia continuaría existiendo y Alemania podría per-t
+enecer a ambas organizaciones, en aras de reforzar la seguridad conjunta d
+e Europa, la casa común de todos.P
+ero en r ealidad, B aker y los demás sabían que no podían darle al s
+oviético garantías claras y por escrito, porque nunca terminaron de fiarse d
+e que sus reformas funcionarían o de que aguantaría en el poder. T odo estaba
+saliendo demasiado bien como para que no apareciera tarde o tem-prano
+el temido dictador. De hecho, en ese mismo año de 1990, recorde-m
+os, Yeltsin empezaba a hacerle sombra a Gorbachov, atizando el disolu-t
+ivo nacionalismo ruso. Y de hecho, tras la reunificación de Alemania, se d
+isuelve el Pacto de Varsovia, y sus antiguos miembros europeos comien-z
+an a buscar la integración en la OTAN como medida de protección con-tra
+Alemania, aunque por entonces a nadie se le habría ocurrido decir que existía ese temor
+. También se lo callaron Thatcher y Mitterrand17 . 15
+D’Anieri (2019): p. 61.16
+«Los documentos que muestran que Estados Unidos prometió a Rusia que la OTAN no se expandiría
+hacia el Este», por Joaquín C. Bretel, P ijamaSurf, 17 de marzo de 2022 [consultable e
+n red]; «Ucrania (I): “Ni una pulgada hacia el Este”: lo que Gorbachov escuchó», por Luis Castr
+o, en Conv ersación sobre la Historia (blog), 21 de febr ero de 2022 [consultable en red].istoria17
+«Thatcher contra Berlín», por Walter Oppenheimer, E l País, 8 de noviembre de 2009 [con-sultable en r
+ed].
+
+---
+
+U
+CRANIZAR UCRANIAA 59 P
+or último, las inciertas y atropelladas garantías se le ofrecieron a Gor-b
+achov pero, a la vez y específicamente, a  la Unión Soviética.  Una vez que e
+sta entidad dejó de existir y fue sustituida por Rusia, con un nuevo estadis-t
+a en Moscú, se podía alegar que incluso aquellos velados cantos de sirena h
+abían caducado, pues muy otros eran el contexto y los protagonistas.La
+situación en toda Europa del Este evolucionaba por entonces con mucha
+rapidez, y en cualquier esquina parecía esperar, agazapado, el de-sastr
+e. Es comprensible que en 1990 Baker y los demás no pudieran ni quisieran
+comprometerse. Otra cosa diferente fueron las maniobras de Clinton
+para atraerse a Ucrania, cuatro años más tarde, en medio de la disputa
+que mantenía con Rusia por la posesión de Sebastopol y su base, l
+a Flota del Mar Negro, el precio de los hidrocarburos y la bronca  política interna con centr
+o en el Donbas.P
+recisamente, las guerras de la antigua Yugoslavia contribuyeron mucho a
+corroer las relaciones entre Rusia y las potencias occidentales. Estas pronto co
+nsideraron que Moscú era más un estorbo que una solución, y cuando la O
+TAN se implicó activamente en la guerra de Bosnia, a partir de febrero d
+e 1994, el malestar ruso creció muchos enteros ante lo que consideró un c
+astigo específico contra los serbios. Nadie tenía en cuenta las iniciativas u o
+piniones de Moscú, y esto atizó un fuerte complejo dostoyevskiano como p
+erdedores, humillados y ofendidos, por cuanto el país se esforzaba con bue-n
+a voluntad por asimilar los cambios recetados por el neoliberalismo ameri-c
+ano, que no arrojaban los frutos esperados, a pesar de lo cual los occidenta-l
+es estaban tratando a Rusia como una potencia de tercera fila.A
+partir de ahí, empezaron a abusar de Yeltsin. Cierto que nunca ha-bía
+dejado de ser un personaje con una imagen internacional muy defi-ciente,
+por no decir francamente mala. Pero, aun así, le quitaron la poca dignidad
+que le quedaba. Y al hacerlo, al ir demasiado lejos, también so-c
+avaron el amor propio de los rusos, sin que estos olvidaran que Yeltsin era e
+l hombre de los americanos, el que llamaba a Bush para informarle de las jugarr
+etas que le hacía a Gorbachov mientras empujaba a la Unión Sovié-tica por el pr
+ecipicio.M
+oscú intentó evitar una intervención militar de la OTAN en Bos-nia,
+porque eso excluía explícitamente esa opción para Rusia, la dejaba en una
+posición subordinada y generaba un agravio comparativo, por cuanto empe
+zaba a tener problemas de separatismo ella misma, en el Cáucaso N
+orte, en Chechenia. A pesar de los pesares, la OTAN intervino directa-
+
+---
+
+60
+0 U CRANIA 22mente
+en Bosnia en abril de 1994 y más adelante, aunque de forma más i
+ndirecta, en apoyo de los croatas y los musulmanes bosnios, en el verano de
+1995, con lo que contribuyó de forma decisiva al final de la segunda fase de las guerras de
+Yugoslavia. E
+sa demostración de músculo atrajo a los antiguos miembros del Pacto d
+e Varsovia como la luz a las polillas. Polonia, Chequia y Hungría accede-r
+ían a la OTAN en 1999. Eslovenia, Eslovaquia, Bulgaria, Rumanía y, so-b
+re todo, los Países Bálticos, exrepúblicas de la Unión Soviética, lo harían e
+n 2004. Mientras tanto, como ya se explicó, los ucranianos enviaron a B
+osnia, una vez concluida la guerra, a un contingente de tropas encuadra-d
+os en la IFOR. Allí se ganaron cierta mala fama por trapichear y vender co
+mbustible de sus vehículos a los bosnios. Los contingentes internaciona-le
+s que les acompañaron en la misión procuraban tenerlos controlados.P
+ero, en cualquier caso, la OTAN salió reforzada de la guerra, pues par
+ecía demostrar cuán necesaria podría llegar a ser en la procelosa evolu-c
+ión de la Posguerra Fría. Los americanos ya no tuvieron dudas de que era necesario expandirla más.
+Ante
+la visible decadencia rusa, en Washington y Kiev se disiparon los r
+eparos para avanzar en el acercamiento. En noviembre de 1994, Kuchma v
+iajó a los Estados Unidos y regresó con la promesa de 900 millones de dólar
+es en ayuda, que se sumaban a otros 700 por parte del FMI. Al mes siguiente,
+en la cumbre de Budapest de la OSCE, los Estados Unidos, G
+ran Bretaña y la misma Rusia garantizaron la seguridad de Ucrania y sus f
+ronteras. En mayo del año siguiente, Clinton volvió a Kiev, y se deshizo en pir
+opos sobre la europeidad de Ucrania. Y
+finalmente, en 1997, llegó un gran acuerdo tranquilizador a varias bandas.
+En mayo se firmó en París la denominada A cta fundacional sobre l
+as relaciones mutuas de cooperación y seguridad entre la OTAN y Rusia. El  r
+esultado  final había sido objeto de duras e intensas negociaciones por par
+te del secretario general de la OTAN, Javier Solana, y el ministro ruso d
+e Asuntos Exteriores, Evgeni Primakov. En su día se le dio bastante bom-b
+o y platillo: «La OTAN y Rusia han arrinconado la Guerra Fría. Inaugu-r
+aron una nueva era para la seguridad europea y mundial basada en la cooperación»,
+se podía leer en el diario E l País18 .  En el documento, Moscú 18
+«La OTAN y Rusia llegan a un acuerdo que abre una nueva era para la seguridad europea y mundial», por Xavier
+Vidal-Folch, en E l País, 15 de may o de 1997 [consultable en red].
+
+---
+
+U
+CRANIZAR UCRANIAA 61 toleraba
+la expansión de la OTAN hacia el Este —se le ofreció la membre-s
+ía a República Checa, Hungría y Polonia— a cambio de que la Alianza no
+desplegara armas nucleares en los nuevos territorios «salvo en casos de c
+risis». Pero había también acuerdos sobre el crecimiento de las fuerzas conv
+encionales. En definitiva, era un convenio regulador, un pacto para no
+hacerse daño innecesariamente y una forma de restañar el orgullo heri-d
+o de Rusia por su arrinconamiento durante la intervención en Bosnia. D
+e paso, indirectamente, se intentaba apuntalar la política neoliberal de Y
+eltsin, muy tocada para entonces: Rusia fue invitada a unirse al grupo G-7 de economías líder
+es.U
+crania se benefició del acuerdo, por supuesto; en asuntos de defensa y
+armamento. Hubo T ratado de Amistad, hubo división de la Flota del M
+ar Negro, parte de las instalaciones portuarias de Sebastopol se alquila-r
+on a Rusia, se acordó el pago de la deuda de Ucrania para con su vecino y
+, muy en especial, se pactó, de nuevo, pero muy formalmente, que, de acuer
+do con las disposiciones de la Carta de las Naciones Unidas y las obligaciones
+del Acta Final sobre Seguridad y Cooperación en Europa, se r
+espetarían la integridad territorial de Rusia y Ucrania y la inviolabilidad de las fr
+onteras.P
+ero las buenas intenciones y las sonrisas, la cordialidad entre trajes y corbatas
+no iban a durar mucho. Apenas dos años. De hecho, la nueva bomba de r
+elojería ya estaba en marcha por aquellas fechas.
+
+---
+
+
+
+---
+
+C
+APÍTULO 4NA
+RANJA MECÁNICAE
+L FIN DE LA ERA KUCHMA Y
+L A REVOLUCIÓN NARANJA, 1995 /hyphen.cap2004Este
+título sería ideal para una historia acerca de la aplica-ción
+de los principios pavlovianos o mecánicos a un orga-nismo que, como una fr
+uta, cuenta con color y dulzura.Anthony B
+urgess, 1962M
+uchas personas e incluso unos cuantos estadistas en todo el mundo oc-cidental
+incluyeron aquel 1999 en el pensamiento mágico. El último año del
+siglo, también del primer milenio. El nuevo ciclo traía grandes prome-s
+as y miedos; se hablaba, medio en broma medio en serio, del «efecto 2000», el
+«error del milenio», la carencia informática de softwar e, a escala mundial que
+supuestamente podría llevar a fallos generalizados y catástrofes en cas-cada
+de alcance incalculable, a partir de los errores en cadena de los siste-mas informáticos.
+A
+sí que 1999 no debía dejar cuentas pendientes detrás de sí. Pare-c
+e que esa ansiedad tuvo algo que ver con la precipitación con la que l
+as potencias gestoras de la OTAN decidieron intervenir de forma di-r
+ecta en la guerra de Kosovo y solucionarla atacando a Serbia, a partir d
+el 24 de marzo de 1999, sin haber recibido previamente la autoriza-c
+ión del Consejo de Seguridad de las Naciones Unidas. El resultado f
+ue el bombardeo por la OTAN, durante 78 días y de forma ininterrum-p
+ida, de un país europeo, incluyendo su capital, Belgrado. La opera-c
+ión generó potentes cortocircuitos diplomáticos internacionales en v
+arias direcciones.Y
+una vez más, pero de una forma más patente que durante la guerra de Bosnia, el gobierno r
+uso quedó descolocado y ninguneado.
+
+---
+
+64
+4 U CRANIA 22E
+n plena ofensiva aérea, durante la cumbre de la OTAN de abril, Y
+eltsin había ofrecido al ex primer ministro Viktor Chernomyrdin como enviado
+especial diplomático. Él, precisamente Chernomyrdin, que había tenido
+una influencia decisiva en que el presidente serbio, Slobodan M
+ilošević, aceptara el ultimátum de la OTAN. Pero desde su cuartel gene-r
+al en Bruselas y también desde Washington, creían que si la ofensiva di-plomática
+tenía éxito en detener la guerra, la Alianza Atlántica perdería el p
+rotagonismo que había buscado desde el principio, e incluso podría que-dar
+cuestionada la necesidad de una campaña aérea que se prolongaba más y
+más y estaba empezando a generar rechazo entre algunos de los miem-b
+ros de la Alianza.L
+os rusos, por su parte, ansiaban que la pesadilla terminara cuanto a
+ntes. Aquello era una demostración de fuerza de la OTAN, en toda regla, en
+la que ya se hablaba de integrar a los Países Bálticos y que recabaría energías e imagen para expandirse hacia el Este.
+E
+so fue precisamente lo que sucedió en Ucrania, donde inicialmente h
+ubo políticos y parlamentarios que condenaron el ataque contra Serbia. P
+ero al final, el presidente Kuchma, sin llegar a aplaudir el ataque de la OTAN, sí
+comentó que Ucrania se aprovecharía del nuevo estatus de la Alianza. Su política
+multivector parecía estar dando sus frutos. Mientras tanto, en R
+usia, todo era frustración. El bombardeo les había pillado por sorpresa, y
+el resultado fue, según muchos observadores, que Rusia sería el próximo o
+bjetivo de la OTAN. Saltaron los reproches hacia Chernomyrdin y se abrier
+on amplias dudas sobre si el gobierno lo había hecho bien. P
+ero esta situación era, a su vez, reflejo de la terrible crisis económica que
+el país había sufrido el verano anterior, en 1998. Ni siquiera hacía un a
+ño que Rusia había visto cómo se desplomaba el rublo. Y es que la caída d
+e los precios de las materias primas a nivel mundial había golpeado la economía
+del enorme país euroasiático, y, además de las pérdidas en ex-por
+taciones —sobre todo de hidrocarburos—, habían caído en picado los impuestos
+que pagaban estas empresas, dejando al Estado en una situa-ción
+muy débil. La crisis del 98, aunque en parte fue consecuencia de la crisis
+asiática del año anterior, supuso la puntilla al experimento neoliberal y
+la terapia de choque en los que Y eltsin y su equipo de economistas ha-bían
+embarcado al país en 1991. Así que 1999 fue el año de la gran humi-llación,
+del descrédito: Rusia se había intentado pasar al mundo capitalis-t
+a y no le había salido bien; y ahora hasta los mismos estadounidenses
+
+---
+
+N
+ARANJA MECÁNICAA 65 d
+espreciaban a los rusos, los veían como a unos incapaces de mantener un imperio
+militar o económico. Yeltsin estaba visiblemente acabado, ya ni s
+iquiera provocaba risa, y su Rusia había caído todavía más bajo que la U
+nión Soviética de 1991: ya apenas desempeñaba el rol de potencia regio-n
+al. Por eso, precisamente por eso, Putin reivindicó la anexión de Crimea, en 2014, como un desquite por la humillación de K
+osovo.P
+ero precisamente esa historia arrancaba en 1999. Cuando termina-r
+on los bombardeos en Kosovo, después de meses de inestabilidad política y
+de baile de carteras ministeriales, de las desapariciones no explicadas de Y
+eltsin, en Moscú se inauguraba nuevo gobierno con un personaje aún desconocido
+a su frente, Vladimir Putin, con solo 47 años. Mientras tan-t
+o, en Ucrania, Kuchma comenzaba en noviembre su segundo mandato c
+omo presidente, y al mes siguiente nombraba primer ministro a Viktor Y
+ushchenko, solo dos años más joven que Putin. P
+ara entonces, el nuevo primer ministro ya era co nocido en Ucrania como
+el economista liberal que, al frente del Banco Nacional de Ucrania, había
+logrado modernizar y regular el funcionamiento de la banca en el país,
+detener la terrible inflación de los años noventa, defender las finanzas ucranianas
+del impacto de la crisis rusa y estabilizar la recién introducida moneda nacional, la grivna.
+P
+arecía lógico que los bancos y gobiernos occidentales vieran con res-p
+eto a Yushchenko y que su nombramiento como primer ministro pare-ciera
+una apuesta ganadora para abordar las necesarias reformas económi-c
+as a gran escala y reestructurar la deuda. Era un hombre de Occidente y c
+ercano a los americanos, lo recomendaba el FMI y la decisión para su nombramiento
+surgió de una conversación entre Kuchma y el vicepresi-dente estadounidense Al G
+ore. S
+in embargo, como suele decirse, la procesión iba por dentro. Vista d
+esde el ángulo estadounidense, la política multivector les favorecía a e
+llos; pero en realidad solo era una de las balanzas, y la que atendía a los i
+ntereses rusos se estaba haciendo más pesada. El auge de los oligarcas, q
+ue era un factor de primer orden en la política adaptativa de Kuchma, s
+e estaba convirtiendo con rapidez en un lastre que descompensaba la d
+eriva por la transición de esa frágil nave que era Ucrania. Y eso era así p
+orque, en parte, esos oligarcas habían crecido sobre el control de unos r
+ecursos o unos tráficos que forzosamente estaban vinculados con la eco-n
+omía rusa; y con los oligarcas rusos, también. Y, de otra parte, porque
+
+---
+
+66
+6 U CRANIA 22e
+sos personajes se articulaban en relación con clanes locales: el clan de D
+onetsk, el clan de Dnipropetrovsk, el clan de Kiev. Y a su vez, se aco-m
+odaban con el poder, incluyendo al mismo Kuchma y otros sectores d
+el gobierno de la nación y la administración, que se vinculaban al mun-d
+o de los oligarcas por medio de las propinas, las comisiones, las mordi-d
+as, la corrupción galopante. E
+n efecto, existía un Kuchma cosmopolita y otro Kuchma mucho más
+sórdido, bajo la superficie de las cámaras y la diplomacia internacio-nal.
+Esa figura siniestra quedó en evidencia durante el largo y ominoso «Escándalo del casete», «T
+apegate» o «Kuchmagate». T
+odo comenzó con la desaparición de un periodista, Georgiy Gongad-z
+e, a mediados de septiembre de 2000. De origen georgiano, se estableció en U
+crania tras emigrar ya con un cierto éxito profesional previo en su país de or
+igen. Independiente hasta la médula, creyendo quizá que su nacionalidad g
+eorgiana le protegería hasta cierto punto, pronto comenzó a convertirse en a
+zote de los oligarcas, de Kuchma y de la corrupción que se extendía a rau-da
+les por su país de adopción. Recibió amenazas, sufrió hostigamiento y p
+resiones de los servicios de seguridad y, al final, desapareció. R
+eapareció como cadáver, dos meses más tarde. Decapitado, porque, tras
+el secuestro, sus captores le dispararon accidentalmente en la cabeza y la
+bala alojada en ella podría haberse convertido en una pista que delataba su
+condición de agentes de seguridad. Al parecer, seguía vivo mientras se p
+rodujo el cercenamiento. Su cuerpo apareció bañado en dioxina y medio quemado,
+en un chapucero intento de dificultar la identificación. A con-t
+inuación se produjo un siniestro vaivén de desapariciones y reapariciones de los r
+estos.A
+las pocas semanas de que se encontrara el cadáver de Gongadze, un diputado
+socialista, Oleksandr Moroz, hizo pública una grabación que dijo
+se había hecho en secreto. En ella se escuchaba al mismísimo presi-d
+ente Kuchma quejándose de las intromisiones del periodista y sugiriendo que
+fuera deportado o «entregado a los chechenos» —de los que se podía esperar
+cualquier cosa—. De esa forma estalló el «Escándalo del casete», q
+ue se prolongó durante cuatro años y puso la política ucraniana patas a
+rriba. No porque fuera novedad la muerte de un periodista en ese país —una
+placa en Kiev recuerda a los dieciocho asesinados en el ejercicio de s
+u profesión antes de la guerra del 2022—, pero sí por la implicación di-r
+ecta del presidente en persona.
+
+---
+
+N
+ARANJA MECÁNICAA 67 L
+a primera e inmediat a consecuencia política del escándalo fue el sur-gimiento
+de un movimiento cívico de protesta bautizado, muy gráfica-mente,
+como «Ucrania sin Kuchma», organizado por la oposición y que p
+ropugnaba la dimisión del presidente. En el liderazgo compartido desta-caban
+un activista de los derechos humanos y político independiente c
+omo era Volodymyr Chemerys, cuyo nombre quedó muy asociado a esta campaña,
+el socialista Yuri Lutsenko y la inquietante Yulia Timoshenko, la economista
+e ingeniera de minas, la llamada «princesa del gas» por su ac-tividad
+en el negocio —con manejos no siempre claros— y líder del recién c
+reado partido B atkivshchyna( Patria), que dimitió de su cargo de vicepri-amera
+ministra para Combustible y Energía a fin de unirse contra Kuchma, liderando su pr
+opio Comité de Salvación Nacional. «
+Ucrania sin Kuchma» comenzó sus protestas reuniendo a los contes-tatarios
+en el Maidan, la principal y más céntrica plaza de Kiev, el 15 de d
+iciembre de 2000. La mayoría eran jóvenes y recurrieron a una estrategia que
+devendría habitual: la protesta permanente en tiendas de campaña, organizando
+actividades políticas, pero también espectáculos. Las fuerzas que
+los agrupaban eran los socialistas, la derecha nacionalista del partido R
+uj (Movimiento Popular de Ucrania) y la ultraderecha de UNA-UNSO (
+Asamblea Nacional Ucraniana-Autodefensa Popular Ucraniana), muy vi-sibles
+con sus parkas y pantalones camuflados y sus grandes banderas rojas con cr
+uces negras potenzadas.Las
+autoridades evitaron los enfrentamientos frontales y se limitaron a
+o c a s i o n a l e s  h o s t i g a m i e n t o s  d e  l a  p o l i c í a ;  y  a l  f i n a l ,  p o r  i n i c i a t i v a  d e l  ayuntamiento,
+declararon que la plaza estaba en obras de reforma, lo cual supuso
+la instalación de barreras y vallas que incomodaron y complicaron l
+as protestas. Con todo, «Ucrania sin Kuchma» tuvo un abrupto final el 9 d
+e marzo de 2001, cuando se produjeron enfrentamientos a gran escala e
+ntre los manifestantes y las unidades de la Berkut o policía antidisturbios, e
+n el Maidan. El activo protagonismo de la ultraderecha en los choques y la
+distancia entre «Ucrania sin Kuchma» y la mayoría de la oposición par-lamentaria llev
+aron a su extinción.P
+or otra parte, Kuchma no dimitía, a pesar de la gravedad de las acusa-c
+iones y las pruebas que iban y venían como cuchillos. En vez de ello, reor-g
+anizó sus fuerzas y cerró filas con sus aliados con vistas a las elecciones p
+arlamentarias de 2004. Eso supuso un escoramiento hacia las fuerzas polí-t
+icas prorrusas, con el apoyo de los correspondientes oligarcas y del podero-
+
+---
+
+68
+8 U CRANIA 22s
+o Partido de las Regiones, el de los rusófonos del este y sudeste del país, que a
+la altura de 2001 decía tener medio millón de militantes. Que a su vez f
+ormó frente en el propio bloque de Kuchma, de corte populista y clientelar, Z
+a Yedinu Ukrainu o  ZYU (Por una Ucrania Unida), cuyo nombre parecía i
+nspirado en el oficialista Rusia Unida, de Putin. Aunque no era un peso p
+esado, el ZYU tenía su base de masas en el óblast de Donetsk.S
+in embargo, Kuchma no lograba ir más allá en la organización de una
+fuerza de maniobra que asegurara la mayoría para la presidencia. A d
+iferencia de Putin, que enseguida erigió su Rusia Unida, el ucraniano dependía
+demasiado del Partido de las Regiones, sin muchos más aliados. P
+ero lo que provocó un vuelco en la situación política ucraniana fue l
+a retirada de Yushchenko al frente del gobierno, en abril de 2001, tras la p
+érdida de un voto de confianza impulsado en el Parlamento por los co-m
+unistas, respaldados por las grandes empresas, cercanas a los intereses r
+usos. La maniobra sumió al país en la confusión, según informaba la p
+rensa occidental1 .  En realidad la situación no se podía aguantar más. L
+a defensa numantina de Kuchma al frente de la presidencia llevaba for-z
+osamente a polarizar claramente al país, entre los prooccidentales y los p
+rorrusos, el oeste y el este de Ucrania, los diferentes intereses económi-cos, los clanes y r
+egiones.C
+omo Yulia Timoshenko ya había caído meses antes, invitó a Yush-c
+henko a organizar un bloque opositor . Mientras tanto, el dimitido pri-m
+er ministro fundó una coalición liberal conservadora denominada N
+uestra Ucrania. T odas estas formaciones chocaron en las elecciones par-lamentarias
+de marzo de 2002, sin arrojar un claro vencedor. Por número d
+e votos, Nuestra Ucrania obtuvo un 23,57% (112 diputados); los comu-nistas
+del KPU consiguieron un 19,99% (65 escaños) y el bloque pro-K
+uchma, el ZYU, se quedó en un 11,78%; pero en base a la regulación electoral
+estipulada por la ley, recibió un premio de 121 diputados. T odo había
+ido por los pelos: la popularidad de Yushchenko subía como la es-puma
+en el oeste de Ucrania, entre los prooccidentales, pero los partida-r
+ios de Kuchma seguían controlando el Parlamento en virtud de la inge-niería
+electoral. Ambos bandos, sin embargo, estaban fragmentados, lo que hacía temer una escalada incontr
+olada de las tensiones, como así fue.1
+«Ukraine’s popular PM forced out», por Ian T raynor, en The Guardian, 27 de abril de 2001 [consultable en r
+ed].
+
+---
+
+N
+ARANJA MECÁNICAA 69 La
+política multivector de Kuchma, que ya para entonces se revelaba c
+omo mero oportunismo, no contribuía a apaciguar la situación. Seguía empeñado
+en enviar señales esperanzadoras a Occidente. En febrero de 2002,
+dentro de la campaña electoral, Kuchma presentó un cronograma por
+el cual Ucrania podría cumplir con los requerimientos para acceder a la
+UE en 2011; y en mayo, el Consejo de Defensa y Seguridad discutió la forma de implementar la candidatura a la O
+TAN. E
+l viejo Kuchma sabía cómo hacerles cosquillas a los americanos, pero aquel
+no era buen momento para andarse con tales juegos. Inicialmente, W
+ashington le había dado un voto de confianza al presidente ucraniano. U
+na consultora de riesgos estadounidense, Kroll Inc., investigó por su c
+uenta y aseguró que podía demostrar la inocencia de Kuchma en el atroz asesinato
+del periodista Gongadze. Pero eran momentos delicados: Geor-g
+e Bush hijo acababa de llegar a la Casa Blanca, en enero de 2001, y el 11 de
+septiembre tuvo que afrontar el shock d e los atentados de Al Qaeda shockcontra
+las T orres Gemelas y el Pentágono. T ras la invasión de Afganistán y el
+fracaso en capturar a Osama bin Laden, el nuevo presidente se puso a p
+reparar la campaña de Irak y el derrocamiento de Sadam Husein. Y pre-cisamente
+en esa situación, en el otoño de 2002, el Departamento de Es-tado
+hizo público que Kuchma había aprobado la venta del radar Kolchu-g
+a-M a los iraquíes. Ese sensor pasivo —en realidad no era propiamente un
+radar— era una de las joyas de la industria armamentística ucraniana, p
+roducida por la factoría T opaz de Donetsk desde 1987, pero muy mejo-r
+ada a partir de 1993 y vendida por Ukrspecexport, compañía, por cierto, que
+en años sucesivos iba a darle buenos quebraderos de cabeza a los ame-ricanos
+por sus ventas de armas a grupos terroristas de Oriente Medio y a focos de conflictos cr
+ónicos, como Sudán del Sur. E
+n todo caso, el asunto generó un profundo malestar en Washington. D
+e nuevo se había producido una filtración a base de casetes grabados al p
+residente y los americanos comenzaron a denunciar que en Ucrania se estaba pr
+oduciendo una deriva autoritaria. K
+uchma no se dejó impresionar y siguió insistiendo en echar una m
+ano. En 2003, reunió un contingente de 1.600 soldados en apoyo de la coalición
+estadounidense que había invadido Irak. A esas alturas, los ame-r
+icanos creían que mantener la zanahoria de la OTAN ante Kiev era una de
+las pocas estrategias que tenían de contrarrestar —o eso creían— la p
+resión rusa, y por ello no rompían la cuerda; pero poco más.
+
+---
+
+70
+0 U CRANIA 22S
+in embargo, durante el verano de 2004 Kuchma dio claras mues-t
+ras de abandonar ese juego. Solo en dos años, entre 2000 y 2002, el p
+residente ucraniano se había reunido dieciocho veces con Putin. Esos e
+ncuentros llevaron al establecimiento de acuerdos y planes o incluso g
+estos amistosos, inconcebibles poco tiempo antes, tales como pasar re-vi
+sta juntos a la Flota del Mar Negro en Sebastopol o el envío de Viktor C
+hernomyrdin, «hombre de confianza de Moscú para todo» y antiguo d
+irector de Gazprom, como embajador a Kiev, gestos ambos ya efectua-d
+os en 2001. T ras ello, el enérgico presidente ruso le propuso al ucrania-n
+o la integración del país en diversos proyectos para el ámbito exsovié-t
+ico, tales como el Espacio Económico Común o la Comunidad Económica E
+urasiática, ambos con la ambición de ser una alternativa a la Unión E
+uropea. O la plena integración de Ucrania en la Comunidad de Esta-d
+os Independientes, incluyendo el nombramiento de Kuchma como lí-d
+er del consejo de la CEI.E
+n Bruselas, estos acercamientos no agradaban en absoluto, y era ló-gico
+que así fuera. Por una parte, complicaban y hasta cortocircuitaban los mecanismos
+institucionales responsables de la política exterior de la Unión E
+uropea, tanto en un sentido integrador como en el ejercicio del célebre soft
+power.  Por otra, el acercamiento de Ucrania a Rusia le suponía a la E
+uropa comunitaria un efecto perverso: la doble dependencia del gas ruso, no
+tanto en lo que tocaba al aumento unilateral de los precios por parte de l
+os rusos como por el hecho de que los todopoderosos oligarcas ucrania-n
+os, o el mismo gobierno de Kiev, podrían ellos también contribuir a la subida
+de esos precios en su deseo de maximizar beneficios, haciendo de intermediarios,
+y sin importarles ya tanto el acercamiento a Occidente. T
+odo ello muy difícil de contrarrestar y muy imprevisible, debido a la elev
+ada corrupción entre las élites ucranianas.D
+e hecho, durante la etapa que estuvieron integrados en el gobierno, t
+anto Yushchenko, en su calidad de primer ministro, como Timoshenko, por
+entonces viceprimera ministra para Combustible y Energía, habían trabajado
+en toda una serie de medidas para regular el mercado del gas en U
+crania, poniendo coto a la especulación y los beneficios desmesurados, el
+intercambio de favores y la transparencia de los precios. T odo ello, en principio,
+explica la presión de determinados partidos en la Rada, aliados con
+los oligarcas y clanes, para forzar la moción de censura que derribó a Y
+ushchenko. Como afirma Paul D’Anieri, esas fuerzas utilizaban a las em-
+
+---
+
+N
+ARANJA MECÁNICAA 71 p
+resas rusas —y a los oligarcas de esa potencia— en sus pulsos de poder par
+ticulares2 . A
+esos actores, guiados por sus intereses egoístas, no les preocupaban gran
+cosa la posición o los problemas de Ucrania frente a Europa, los Es-t
+ados Unidos o Rusia. Kuchma, en el centro de ese complejo juego de fuer
+zas, intentaba contentar a todos hasta donde podía; pero eso se tradu-c
+ía en una progresiva pérdida de control que repercutía en la estabilidad internacional.
+E
+ran años delicados. En los Estados Unidos, la nueva legislatura del p
+residente Bush hijo había arrancado bajo el impacto de los atentados d
+el 11-S. De repente, la primera potencia mundial, ganadora absoluta d
+e la Guerra Fría, había encajado un golpe terrible. En aquellos días, la i
+nmensa mayoría de los países del mundo habían apoyado a la potencia h
+erida en su lucha contra esa nueva forma de terrorismo desafiante. Eso i
+ncluía a Rusia, que había facilitado información extraída de su propia e
+xperiencia en la guerra de Afganistán y apoyo logístico directo para el d
+espliegue de las fuerzas americanas que se enviaron al lejano país del A
+sia Central, con el objetivo de capturar a Bin Laden y destruir las bases de
+Al Qaeda.E
+sto generó un acercamiento que podría poner las bases para erigir u
+n nuevo sistema de seguridad internacional que integrase plenamente a R
+usia, superando las tensiones vividas desde la desaparición de la Unión S
+oviética. Pero en medio de todo ello, cuando parecía que se podría relan-zar
+la luna de miel Washington-Moscú, en diciembre de 2001, la adminis-t
+ración Bush anunció que los Estados Unidos se retiraban del T ratado de M
+isiles Antibalísticos, de 1972. No parece haberse explicado de forma convincente
+el porqué de esa decisión, que, de hecho, relanzaba la carrera de
+armamentos nucleares a escala mundial. Al parecer, en la nueva dialéc-tica
+americana sobre los «países gamberros» (Corea del Norte, Irán, Irak), r
+ecuperada a partir de la utilizada por Reagan, los Estados Unidos debían t
+ener a punto su capacidad de respuesta nuclear ante sus correspondientes armas
+de destrucción masiva. Y, por otra parte, era una forma de demos-trar
+que todavía se consideraban la primera potencia mundial a pesar de los
+atentados del 11-S. Sobre todo, ante una Rusia a la que se había pre-sentado
+de forma reiterada como una potencia claramente decadente, un 2
+D’Anieri (2019): pp. 117-118.
+
+---
+
+72
+2 U CRANIA 22d
+esastre tecnológico y militar incluso ya en tiempos de Putin, debido a s
+ucesos como la catástrofe del submarino Ku rsk, en agosto de 2000. E
+n realidad, la administración Bush estaba cayendo en peligrosas con-tradicciones
+que no podían sino desestabilizar el equilibrio internacional. P
+or un lado, la Operación Libertad Duradera, la invasión de Afganistán e
+n 2001 como respuesta a los atentados del 11 de septiembre, supuso un acer
+camiento estadounidense a Rusia que se extendió también a la OTAN. B
+uena prueba de ello fue la creación del denominado Consejo de Coope-r
+ación OTAN-Rusia, que en su día fue saludado como un intento de «en-t
+errar la Guerra Fría» al establecer objetivos comunes tales como la orga-nización
+conjunta de operaciones de mantenimiento de la paz y salv
+amento civil3 .  Incluso se abrió un debate sobre la posibilidad de que R
+usia terminara accediendo de alguna forma a la Alianza Atlántica. M
+ientras tanto, la OTAN continuaba su expansión hacia el Este, y en n
+oviembre de 2002 se abría la puerta al acceso de los Países Bálticos, un gesto
+que tocaba el nervio más delicado de Moscú por cuanto ya no se trataba
+de meros antiguos miembros del Pacto de Varsovia, sino de repú-b
+licas soviéticas cuya situación estratégica podía ser vista con alarma por R
+usia: el hecho de ser países costeros resolvía para la OTAN el problema de un
+potencial desembarco y situaba sus tropas a 159 kilómetros de San Peters-b
+urgo —desde Narva, en Estonia— y a 624 kilómetros de Moscú —desde Z
+ilupe, en Letonia—. Por supuesto, esta situación, bien manejada, podría h
+aber sido presentada como desplegada en su momento más favorable, dado q
+ue la misma Rusia podría llegar a formar parte de la Alianza o, cuando m
+enos, trabajaba en cercana coordinación con ella. Pero mal llevada, daría l
+ugar a la sospecha de que la OTAN estaba abusando del momento de p
+roximidad con Rusia que habían brindado los atentados del 11-S.P
+or desgracia, la situación se complicó aún más debido a la invasión estadounidense
+de Irak en marzo de 2003, que Washington en buena me-dida
+justificó como ataque preventivo ante unas armas de destrucción ma-si
+va inexistentes. Rusia, como otros muchos países, argumentó que la r
+ealidad de Irak no justificaba la utilización de la fuerza y el recurso a l
+a guerra. Por lo demás, poseía intereses económicos que deseaba proteger, tanto
+en el sector energético como financiero, comenzando por el negocio 3
+«La OTAN y Rusia crean un Consejo de Cooperación para enterrar la Guerra Fría», E l País, 15 de may
+o de 2002 [consultable en red].
+
+---
+
+N
+ARANJA MECÁNICAA 73 de
+la energía y terminando por la deuda contraída por Bagdad en base a la compra
+de armas rusas4 .  A partir de ahí, era sencillo que salieran a relucir r
+ecelos y se empezara a discutir sobre la necesidad de resistir a las preten-siones estadounidenses de hegemonía global.
+P
+or si faltara algo, la invasión de Irak no fue autorizada por el Conse-j
+o de Seguridad de las Naciones Unidas y contó con el firme rechazo de algunos
+de los socios importantes de los Estados Unidos, tales como Ale-m
+ania y Francia. Incluso en países firmemente comprometidos con la in-v
+asión, se produjeron numerosas y multitudinarias protestas, y el gobier-no
+español terminó por retirar sus tropas a raíz de los atentados de Madrid e
+l 11 de marzo de 2004. No deja de ser curioso que muchos años después se
+vincule en algunos medios de comunicación y en la memoria popular, de una u otra forma, la coalición que inv
+adió Irak con la OTAN5 . T
+iflis, Georgia, noviembre de 2003E
+l 22 de noviembre de 2003, por la tarde, una multitud liderada de ma-nifestantes
+contrarios al gobierno, asaltó y tomó bajo su control el Parla-mento
+georgiano, interrumpió un discurso del presidente Edvard She-v
+ardnadze y se hizo con el control del edificio. Los movilizados tomaron a continuación
+la sede de la Presidencia, abandonada a su suerte por los funcionarios
+leales al régimen. El líder de la revuelta, Mijeíl Saakashvili, p
+idió a los opositores que siguieran en las calles e hizo un llamamiento a los
+funcionarios de los ministerios de Defensa e Interior y de los servicios d
+e inteligencia y seguridad para que no cumplieran las órdenes del presi-d
+ente Shevardnadze. Al día siguiente, este dimitió, lo que suponía el triunfo de la denominada
+R evolución de las Rosas. S
+e le llamó así porque entre los manifestantes muchos llevaban rosas y
+los carteles, panfletos y movimientos de protesta iban a juego con ese c
+olor. La nueva bandera georgiana, con una enorme cruz de San Jorge 4
+D’Anieri (2019), p. 125.5
+«España está a años luz de honrar sus promesas de gasto en Defensa, tiene un Gobierno de coalición
+cuya minoría se declara abiertamente “anti OTAN” y en Estados Unidos no han olvi-dado
+## del todo la retirada de las tropas de Irak hace casi 20 años», en E l Mundo, 9  de mayo de 2022
+«Los diplomáticos advierten ante la cumbre de la OTAN en Madrid: “Es de vital impor-tancia, no puede haber distracciones ni tonterías
+”», por Pablo S. Suanzes.
+
+---
+
+74
+4 U CRANIA 22s
+obre fondo blanco y otras cuatro pequeñas, en memoria del rey Jorge V , e
+ran del rojo combativo de las rosas. Un monarca, por cierto, que en el si
+glo x/i.sc/v.sc h abía expulsado a los soldados mongoles estacionados en el reino./v.scLa
+noche del 22 de noviembre, Saakashvili, un antiguo ministro de S
+hevardnadze que había estudiado Derecho en los Estados Unidos, dijo públicamente
+que tenía el apoyo de potencias extranjeras, y así era. Eso fue
+una constante en las denominadas «revoluciones de colores» que co-menzar
+on en 2003 y se extendieron hasta 2005 por algunas de las antiguas r
+epúblicas soviéticas: Georgia, Ucrania, Kirguistán y Moldavia, por este o
+rden.T
+odas ellas, así como algunas más que fallaron o no lograron cobrar cuerpo,
+tenían unos rasgos característicos bien marcados6 .  Primero, el d
+erro camiento de un gobierno supuestamente neocomunista, del cual los opositor
+es argüían que no poseía legitimidad democrática; a partir de su derr
+ocamiento se organizaban gobiernos populistas prooccidentales, for-mados
+por coaliciones de opositores situadas en el espectro neoliberal. En segundo
+lugar, la contestación se producía en un contexto de sociedades sin
+experiencia de movilización política articulada en el pasado o al menos no
+de una «cívica», moderna, a la manera occidental. Esta movilización se e
+fectuaba a partir de unos actores que tampoco poseían un claro perfil ideológico
+—serían en todo caso los «populistas» de nuestros días— y que normalmente
+no estaban vinculados de forma regular a la política, excep-to
+en el caso del líder o líderes principales. Los jóvenes en general, y los estudiantes
+en particular, fueron la punta de lanza en las «revoluciones de color
+es». Constituían la masa de maniobra ideal: barata, activa, sin miedo. L
+a retórica movilizadora se basaba en consignas referidas a Derechos Hu-manos,
+democracia y valores de modernidad entendidos según patrones occidentales.
+P
+or último, y en tercer lugar, aunque podían estar implicadas diversas potencias
+occidentales en el proceso, siempre era muy evidente —y asu-mido
+desde esos países, sin complejos— el protagonismo de los Estados U
+nidos, en forma de apoyo material y logístico a tales grupos de la socie-dad
+civil, en torno a los cuales se articulaban las protestas, operándose a par
+tir de organizaciones no gubernamentales (ONG) o incluso «guberna-mentales» (GONGO) o de par
+tidos (PANGO). 6
+González-Villa (2011): posición 104 y.
+
+---
+
+N
+ARANJA MECÁNICAA 75 Este
+tercer punto era fundamental y debe insistirse en que era asumi-d
+o por los protagonistas de la «logística de apoyo» estadounidense sin nin-g
+ún rubor. Adrian Karadinski, coordinador en Nueva York de las campa-ñas
+## desarrolladas por Freedom House en aquellos años, explicaba ante las cámaras lo siguiente
+D
+urante los años cincuenta, sesenta y setenta, este tipo de actividad era ma-nejada
+por la CIA, de modo oculto. Daba la impresión de que los servicios de
+información estadounidenses corrompían las organizaciones y los parti-dos
+políticos del país. Esto hacía ver a los movimientos locales como instru-mentos
+de la CIA. Entonces se decidió que los Estados Unidos harían este tipo
+de actividades de manera transparente y pública. Y eso es lo que hace-mos con nuestras fundaciones
+7 . C
+iertamente, el origen de estas políticas se remontaba a septiembre de 1982, c
+uando Ronald Reagan firmó la Directiva 54 del Consejo de Seguridad para i
+mpulsar el acercamiento de los países europeos del Bloque del Este promo-v
+iendo las políticas liberales8 ,  lo que fue el origen de la red de instituciones c
+oordinadas en torno a la NED (National Endowment for Democracy), fund
+ada en 1983 a iniciativa del Congreso de los Estados Unidos para fi-n
+anciar proyectos destinados a fomentar la democracia liberal en el mundo. Los
+Institutos Nacionales Demócrata y Republicano para los Asuntos Inter-n
+acionales (NDIIA y NRIIA, respectivamente), Freedom House, Open So-ci
+ety o Albert Einstein Institution, eran puntales de esa trama y surgían una y
+otra vez, de una forma u otra, en ese tipo de revueltas.Belgrado, S
+erbia, verano y otoño de 2000E
+n realidad, la primera de las «revoluciones de colores» había tenido lugar e
+n Serbia en el año 2000 y pasó a ser conocida como la R evolución del B
+ulldozer, por que una de las columnas de manifestantes que convergió s
+obre Belgrado llevaba uno de esos vehículos que se utilizaba para derribar los parapetos de los contr
+oles policiales. 7
+Declaraciones de Karadinski en Loizeau (2005): minuto 34:08.8
+National Security Decision Nr. 54, United States policy toward Eastern Europe, September 2, 1982; N
+ational Security Decision Nr. 133, March 14, 1984.
+
+---
+
+76
+6 U CRANIA 22E
+l operativo logístico montado por los americanos se centralizó en B
+udapest. Se le denominó Office for Yugoslavian Affairs (OYA). Fue toda una
+prioridad personal de Madeleine Albright, la Secretaria de Estado de Clinton.
+La institución dependía de la Embajada estadounidenses en la c
+apital húngara y coordinaba todos los esfuerzos logísticos de ayuda a
+la oposición serbia. La OYA trabajó de firme con ella. Algunas em-p
+resas de márketing serbias colaboraban en el esfuerzo final. Srdan Bogošavljević,
+director de Strategic Marketing, recordaría más tarde en la p
+rensa americana que la campaña fue concebida como si se tratara de co-locar
+en el mercado una nueva marca de bebidas light o goma de mascar.lightH
+abía que vender una nueva marca y sustituir a la antigua: vender K
+oštunica y liquidar Milošević. Cada palabra de cada mensaje de la opo-s
+ición, de entre uno y cinco minutos, fue discutida con los «amigos ame-r
+icanos» y sopesada en rápidos encuentros ulteriores. En Hungría y M
+ontenegro, los candidatos de la coalición al Parlamento federal eran aleccionados
+intensivamente sobre cómo responder a las preguntas de los periodistas,
+de qué forma rebatir los argumentos de los partidarios de M
+ilošević y mantener la coherencia del propio mensaje. En 1995 los esta-dounidenses
+enseñaron a los croatas las modernas técnicas de combate; cinco
+años más tarde entrenaban a los serbios en los avanzados métodos de la lid electoral a la americana.
+P
+or entonces, los serbios no necesitaban visado para acceder a Hun-g
+ría, y llegar allí en coche eran unas pocas horas desde Belgrado. Ya en el d
+estino, los diplomáticos norteamericanos o funcionarios de todo tipo cana-l
+izaban las ideas y ayudas que llegaban del exterior y coordinaban al crecien-t
+e número de opositores y colaboracionistas que acudían desde Serbia. Este t
+inglado lo encabezaban el Departamento de Estado, con «Maddy» Albright a
+l frente, y la U.S. Agency for International Development, que distribuyó f
+ondos de ayuda a través de empresas externas contratadas y dos institucio-n
+es de los principales partidos: el Instituto Nacional Demócrata (NDI) y su co
+ntrapartida, el Instituto Internacional Republicano (IRI). Volverían a es-t
+ar presentes en las otras revoluciones de colores9 . L
+os jóvenes fueron los depositarios privilegiados de los esfuerzos ame-ricanos
+desde los primeros momentos. Los serbios tenían que perder el 9
+La descripción de cómo funcionó OYA y el Movimiento Otpor está extraída, en bloque, de V
+eiga (2004): pp. 506-507.
+
+---
+
+N
+ARANJA MECÁNICAA 77 m
+iedo al régimen de Milošević, y los jóvenes deberían encabezar la revuel-t
+a. Era toda una nueva generación que había vivido su infancia y adoles-cencia
+bajo el autócrata, hermanos pequeños de los jóvenes que habían abandonado
+Serbia a comienzos de los noventa. En cierta manera, la nue-v
+a generación había tardado siete u ocho años en aparecer y se llamaba Ot
+por(L iberación). En origen este era un movimiento estudiantil surgido re
+n la Universidad de Belgrado en el otoño de 1998. Su éxito se debía a su carácter
+inarticulado, similar a las tribus urbanas occidentales o los movi-mientos
+antiglobalización. Desde Budapest, delegados americanos daban ideas,
+explicaban qué era eso del assymetric political warfare, impar tían b
+reves cursillos. Uno de ellos, sobre resistencia no violenta, pagado por el IRI,
+se impartió en el Hotel Hilton a 24 jóvenes de Ot por.  El libro estrella era
+la obra de Gene Sharp D e la dictadura a la democracia: Un marco con-ceptual
+para la liberación10 ,  en la que se podían leer hasta 198 tácticas de acciones
+no violentas, ideales para la situación en Serbia. Logos y pegati-n
+as recordaban en parte a las ideas de 1996-1997, pero también poseían la
+calidad y modernidad de los gabinetes de diseño occidentales. Los 2,5 millones
+de pegatinas de G otov je!s e imprimeron en 80 toneladas de papel!a
+dhesivo y fueron pagados por USAID y suministrados por Ronco Con-s
+ulting Corp. de Washington. Lo mismo ocurrió con 5.000 envases de espray
+utilizados por los jóvenes activistas serbios en sus grafitis contra S
+lobo: fueron abonados por el contribuyente americano.Go
+tov je!fue  una idea con mucha garra, una verdadera !catchphr ase. S
+ignificaba: «¡Está acabado!». Más adelante se acompañó de una original f
+otografía de Milošević, de espaldas, saliendo de la historia con ademán e
+nfadado. Era perfectamente reconocible, con su silueta masiva, la cha-queta
+estrecha para su volumen físico. Pero hubo muchas otras ideas: pi-nes,
+emoticones de sabor funky , camisetas, campañas de e-mails. En Buda-pest
+se distribuyeron teléfonos móviles y hasta ordenadores portátiles. El d
+inero corría a raudales. Los periódicos americanos dijeron que se habían i
+nvertido más de 70 millones de dólares en movilizar y unir a la oposición serbia.
+Los fondos se entregaban en efectivo en la misma Hungría y más tar
+de incluso pasaron la frontera. Ni siquiera hoy en día los protagonistas y
+testigos de aquella enorme operación de inteligencia dan sus nombres. 10
+Gene Sharp, F rom Dictatorship to Democracy: A Conceptual Framework for Liberation, Alber t E
+instein Institution, Boston, 1993.
+
+---
+
+78
+8 U CRANIA 22E
+n  l a  b i o g r a f í a  d e  L e B o r  s o b r e  M i l o š e v i ć  a b u n d a n  l a s  r e f e r e n c i a s  a  u n  «diplomático
+británico», cierto senior US official, una «fuente serbia de a
+lto nivel» y otras similares. Pero la misma prensa norteamericana y europea explicó
+orgullosa, y en varias ocasiones, cómo había funcionado el audaz operativ
+o11 . Kiev
+, 3 de diciembre de 2004L
+a Corte Suprema de Ucrania comparece solemnemente en público y de-clara que debido a la
+evidencia
+de sistemáticas y graves violaciones de los principios y los elemen-t
+os del proceso electoral durante la segunda vuelta de las elecciones presiden-c
+iales del 21 de noviembre de 2004, tomando en cuenta la imposibilidad de d
+eterminar la voluntad real de los electores en el Distrito Unificado por la de-terminación
+de los resultados de la segunda vuelta... la Corte considera ne-c
+esario remediar los derechos de las personas por vía de repetir los votos, en aplicación
+de lo establecido en el artículo 85 de la Ley para elecciones presi-denciales.
+H
+a caído la noche y la decisión transmitida por grandes pantallas en las calles
+levanta una oleada de entusiasmos entre los seguidores del candida-t
+o Yushchenko. Este sube al estrado en la plaza del Maidan, donde tiene lugar
+un concierto improvisado. Luego habla y asume la victoria; las pin-celadas
+naranja saturan el cuadro de la multitud enfervorizada. Bufandas, gorr
+os, banderolas y, sobre todo, los impermeables improvisados confec-cionados
+con bolsas de basura agujereadas para convertirlas en chalecos. La
+segunda vuelta será repetida el 26 de diciembre. La R evolución Naranjaha triunfado
+. P
+ara Ucrania fue un punto de no retorno en la partición del país, un fenómeno
+fatídico cuyas semillas se sembraron ya en el arranque de la independencia
+de 1991 y que Kuchma agravó drásticamente con su polí-tica
+multivector, creyendo que podría edificar una soberanía operativa con 11
+Véase un excelente relato en «U.S. Advice Guided Milosevic Opposition Political Consul-t
+ants Helped Yugoslav Opposition T opple Authoritarian», por Michael Dobbs, en W ashington Po
+st, 11 de diciembr e de 2000.
+
+---
+
+N
+ARANJA MECÁNICAA 79 e
+l apoyo de la «tercera fuerza», de oligarcas y clanes, que poseían sus pro-pios
+fines, al margen de las conveniencias de la política nacional. No obs-tante,
+aun considerando que el asesinato del periodista Georgiy Gongadze enturbió
+mucho su mandato, no se le puede atribuir a Kuchma toda la culpa
+de lo que estaba sucediendo. Creer que Ucrania podría obtener lo mejor
+de ambos mundos, siendo estos como dos fieras insaciables, solo podía
+ser síntoma de la huida hacia adelante en la que se habían instalado los
+dirigentes ucranianos desde la descomposición de la Unión Soviética. P
+or si fuera poco, estaba quedando muy en evidencia que Ucrania era un país
+partido, lo cual no era tanto fruto de las divisiones culturales y hasta nacionales
+internas, como de su condición de país frontera, de eterno co-m
+odín estratégico entre los límites occidentales del Imperio Ruso y el Viejo Continente.
+Las diferencias entre los ucranianos del oeste y los del este y el
+sur surgían de las ambiciones que proyectaban Rusos y polacos, austria-c
+os y húngaros. Y por entonces, en los comienzos del siglo xx/i.sc ,  de un actor l
+ejano, pero con ambiciones de reorganizador global, como eran los Esta-d
+os Unidos, en base a los planteamientos doctrinarios de un polaco-ame-ricano
+como Zbigniew Brzezinski. Ello contribuía a que los ucranianos, como
+otros países, buscaran la solución al propio sabotaje de su complica-da
+convivencia interna en los actores externos, en las potencias extranjeras. T
+al dinámica hacía realmente muy difícil que Ucrania, un país sin capaci-dad
+de asentar su soberanía sobre consensos básicos, pudiera tener buenos gobernantes.
+A
+## la altura de 2004, a Kuchma se le había terminado el recorrido po-lítico
+el caso Gongazde, el agotamiento de su política multivector, la pre-s
+ión rusa y americana y la limitación constitucional de la presidencia a dos legislaturas
+le obligaban a abandonar el poder. En su lugar, designó a su escuder
+o, el primer ministro Viktor Yanukovich, el líder del Partido de las R
+egiones que tanto apoyo le había brindado. Era un hombre muy del este u
+craniano, procedente del óblast de Donetsk y de orígenes sociales humil-d
+es. Huérfano desde la adolescencia, se vio implicado en delitos de robo y agr
+esión, por los que fue condenado. Enderezó su vida como gerente de u
+na red de transporte regional, relacionada con la minería del Donbas. P
+ero nunca tuvo carisma político; era un hombre que no poseía atractivo más
+allá del este ucraniano, y además la oposición machacó todo lo que pudo
+con la historia de su conducta delictiva en la adolescencia. T odo ello h
+acía de él una presa fácil para los estrategas de las revoluciones de colores.
+
+---
+
+80
+0 U CRANIA 22F
+rente a él, un candidato «del pueblo», campechano y cordial, con fama
+de financiero competente y capaz de unificar a la oposición, inclu-y
+endo a la muy individualista —y narcisista— Yulia Timoshenko. En e
+fecto, Viktor Yushchenko parecía haber conseguido el Santo Grial de la política
+nacional, y podría llegar a ser el líder que unificara Ucrania y su carisma.
+Ambos
+bandos se prepararon a conciencia. Los de Yanukovich reci-bier
+on el abierto apoyo de los rusos. Putin envió a su equipo de asesores, liderado
+por Gleb Pavloski, a Kiev, y Vyacheslav Nikonov, a Donetsk, el cuar
+tel general del candidato oficialista. El mismo Putin hizo acto de pre-s
+encia en Ucrania, presidiendo un desfile militar poco antes de la primera vuelta
+de las elecciones, en compañía de Kuchma y el líder bielorruso A
+leksandr Lukashenko. El acto conmemoraba la liberación de Ucrania de la
+invasión nazi en 1943, pero, aun así, la presencia de Putin no resultaba tranquilizadora,
+ni siquiera en compañía del voluminoso Yanukovich co-miendo distraídamente unos
+snacks  de su pr opia mano.snacksE
+n la otra trinchera, el equipo de instructores serbios de Otpor pre-p
+aró a sus pupilos ucranianos encuadrándolos en el Movimiento Pora (¡Ya e
+s Hora!) y trasmitiéndoles las enseñanzas recibidas de la OYA y las técni-cas
+diseñadas por Gene Sharp desde la Einstein Foundation. También las lecciones
+obtenidas en la R evolución de las Rosasg eorgiana y su respectivo sm
+ovimiento, titulado en este caso Kmara (¡Ya es suficiente!). El color es-cogido
+fue el naranja porque era el del partido de Yushchenko, Nuestra U
+crania. A partir de ahí, se distribuyeron miles de bufandas, gorros, pa-ñuelos,
+banderolas y, sobre todo, bolsas de basura color naranja reutiliza-das
+como chaleco protector, que uniformizaban a las masas y servían a la v
+ez como impermeable improvisado para aguantar días y noches manifes-tándose en las frías calles de Kiev
+. D
+esde Estados Unidos llegaron medios y dinero, por supuesto. Ya en 2003
+se había anunciado que las partidas de ayuda a Ucrania se emplea-rían
+en la financiación de «proyectos privados prodemocráticos». Pero ese d
+inero no fue directamente a la candidatura de Yushchenko, sino a la p
+romoción de actividades de movilización y coordinación de la oposición en
+su conjunto, a través de ONG y fundaciones. En total, los estadouni-denses
+invirtieron en la R evolución Naranjau nos 14 millones de dólares, aque
+fueron gestionados, una vez más, por las conocidas fundaciones e instituciones
+que giraban en torno a la NED, y en especial Freedom Hou-
+
+---
+
+N
+ARANJA MECÁNICAA 81 s
+e y el International Republican Institute (IRI), cuyo presidente, el sena-d
+or John McCain, se significó en las diversas revoluciones de colores, y muy
+especialmente en la Naranja. También tuvo importancia la Iniciativa de
+Cooperación Polaco-Ucraniano-Americana, que dejaba ver algunos re-taz
+os de la estrategia de Washington en la zona Báltico-mar Negro.Y
+llegó la primera vuelta de las elecciones presidenciales, que para los u
+cranianos venía a ser algo así como la confrontación Kennedy-Nixon en los
+Estados Unidos, cuarenta y cuatro años antes. El 31 de octubre, do-mingo,
+en la primera vuelta, con una participación del 74,54%, ambos candidatos
+quedaron sorprendentemente empatados, con una ligera ven-taja
+para Yushchenko (39,90%) frente a Yanukovich (39,26%). Como ninguno
+alcanzaba un 50% de los votos, hubo que ir a una segunda vuel-ta,
+el 21 de noviembre. Ya en la primera vuelta, la oposición empezó a p
+rotestar por supuestos amaños a favor de Yanukovich. Agencias supues-tamente
+independientes habían hecho recuentos paralelos de votos que otorgaban,
+por ejemplo, un 53% a favor de Yushchenko y tan solo un 2
+6% para Yanukovich. Pero diez días después, la Comisión Electoral no había
+anunciado oficialmente los resultados. T orpes actuaciones guberna-tiv
+as como esas, enrarecieron mucho el ambiente y ayudaron en la campa-ña
+de denuncia de la oposición, que restó por anticipado credibilidad al candidato oficialista.
+E
+n la segunda vuelta, la Comisión Electoral dio como vencedor a Y
+anukovich con 49,42% de los votos, frente al 46,69% de Y ushchenko. Este
+impugnó inmediatamente los resultados y se abrió una crisis política en U
+crania, comenzando la R evolución Naranja pr opiamente dicha.aLas
+potencias intervinieron inmediatamente y al unísono. La Unión E
+uropea manifestó lisa y llanamente que no iba a reconocer el resultado de las
+elecciones. A continuación, los embajadores de los veinticinco países m
+iembros presentes en Kiev firmaron una protesta contra lo que conside-raban
+un fraude electoral. Lo mismo hizo el gobierno de los Estados Uni-dos;
+el mismo presidente Bush expresó su preocupación en ese sentido. Los
+senadores John McCain y Hillary Clinton propusieron a Viktor Yush-chenko
+y al presidente georgiano y héroe de la R evolución de las Rosas, M
+ijeíl Saakashvilli, como candidatos al Premio Nobel de la Paz. A conti-n
+uación, McCain, Kissinger y Brzezinski acudieron en tromba a Kiev para apo
+yar públicamente a Yushchenko. El secretario de Estado, Colin Powell —ex
+consejero de Seguridad Nacional con Reagan, exjefe del Estado Ma-
+
+---
+
+82
+2 U CRANIA 22y
+or Conjunto y supervisor de la Operación T ormenta del Desierto contra I
+rak—, declaró que los Estados Unidos consideraban que el resultado de las elecciones en U
+crania no era legítimo. E
+n ese contexto, los manifestantes ocuparon las calles con sus enseñas n
+aranjas y siguiendo las indicaciones del manual de Sharp: nada de violen-cia,
+confraternización con las fuerzas del orden público, ambiente festivo, p
+resencia continuada en las calles de todo tipo de manifestantes pacíficos, cober
+tura mediática internacional: soft pr ession. La
+incendiaria Yulia Timoshenko, con su pullover naranja apeló a que «
+se reuniera tanta gente como fuera posible» en la plaza del Maidan a las 9
+de la mañana del día siguiente. «O defendemos Ucrania ahora o los c
+riminales gobernarán Ucrania como un negocio privado por los años de l
+os años», anunció. Así, el 22 de noviembre, día 1 de la revolución, ama-n
+eció con las primeras tiendas de campaña en el Maidan, con unos 500 m
+anifestantes ajustándose los brazaletes naranjas, usando las banderas naranjas
+de Nuestra Ucrania como capas o agitando las banderas amarillas d
+e Pora,p rotegiéndose con los finos impermeables naranja. Eran muy p
+ocos, pero hacia el mediodía comenzaron a llegar oleadas que deposita-r
+on a 80.000 manifestantes en torno a las dos y media. P oco tiempo  d
+espués comparecieron Yuschenko, el «presidente de la gente», bufanda n
+aranja, corbata naranja, quien pidió movilizaciones y acciones de pro-te
+sta en toda Ucrania, en cada región, y Yulia Timochenko, que declaró e
+l «asedio al régimen», provocando la agitación de una mar de banderas n
+aranjas, amarillas y azules de Ucrania, amarillas de Pora,incluso alguna georgiana.
+A
+cto seguido, la organización se puso en marcha: tiendas de campaña p
+refabricadas, logística eficiente, cajas con material, bolsas de ropa de a
+brigo y alimentos llegadas en camiones, ayuda internacional, actividad bajo
+los discursos y las consignas desde las gigantescas pantallas de plasma. U
+na maquinaria engrasada desde el 5 de octubre, según explicó sin amba-ges,
+por ejemplo, el diputado de Nuestra Ucrania, Taras Stetskiv, uno de los
+coordinadores de la campaña de Yushchenko12 .  A partir de entonces, sin
+llamar la atención, la oposición empezó a procurarse carpas, sacos de d
+ormir, cocinas portátiles, acuerdos con las compañías de venta al por may
+or para comprar comida.12
+York (2007): minutos: 41:16 y ss.
+
+---
+
+N
+ARANJA MECÁNICAA 83 E
+n los días sucesivos, marchas y manifestaciones por las principales a
+venidas de Kiev o incluso por las autopistas de acceso, a pie, bajo la nieve, concier
+tos improvisados en cualquier esquina poniendo bandas sonoras a la
+película de la R evolución Naranja, mítines en el parque menos pensado, madr
+es con niños pequeños en medio del frío que prometían no moverse, no
+abandonar; multitudes bailando a ritmo de rock para combatir la tem-peratura
+de 12 bajo cero, voluntarios cocinando en grandes peroles al aire libr
+e, distribuyendo bocadillos, papel higiénico, las mil y una necesidades d
+e miles de personas viviendo bajo los copos de nieve, hasta alcanzar l
+os 600.000.J
+untos somos muchosN
+o nos pueden vencer¡
+Falsificaciones no!¡
+Manipulaciones no!N
+o a arreglosN
+o a las mentirasY
+ushchenko, Tak!Y
+ushchenko, Tak!¡Ese es nuestr
+o presidente!T
+ak, tak, takR
+azom Nas Bagato, G reenjolly (2004).A
+ntidisturbios adornados con colgajos naranjas y flores, música para cada c
+ambio de relevo, amables saludos de «buenas noches» respondidos por los a
+gentes; «la policía está con la gente», cantaban los manifestantes; y al final, e
+l himno nacional. Asedio de edificios gubernamentales, bloqueo de las fun-c
+iones de gobierno, oficiales de la policía con el lazo naranja en su uniforme, a
+rengando a los agentes antidisturbios para que abandonaran sus puestos. L
+a situación se tensaba cada día. Yanukovich, rodeado de los gobernado-r
+es de las regiones orientales de Ucrania que acudieron a Kiev, se entrevistó c
+on el aún presidente Kuchma para que actuara, asumiera su supuesta victo-r
+ia y desbloqueara los edificios de la administración cercados por los manifes-t
+antes. Fue un momento crucial: si los contestatarios hubieran tomado los e
+dificios del gobierno, se habría producido una masacre; el presidente Kuch-m
+a podría haber decretado el estado de excepción y sacar el Ejército a las ca
+lles. En efecto, todo pudo haber degenerado en un baño de sangre.
+
+---
+
+84
+4 U CRANIA 22P
+ero, lógicamente, Kuchma no iba a retirarse de la Historia dejando detrás
+una masacre de tales proporciones. Ya tenía bastante con el escán-dalo
+del periodista Gongadze, desaparecido, asesinado y decapitado. Y es que,
+además, ningún profesional de la seguridad del Estado hubiera acce-d
+ido a una matanza inútil en la que muchos de sus hombres se negarían a d
+isparar. De hecho, mandos de las unidades de intervención, que en un momento
+determinado confluyeron sobre la capital, se pusieron en con-tacto
+con los manifestantes, recomendándoles que obstruyeran el camino por
+cualquier medio. Una de esas unidades especiales fue «detenida» por un pequeño carr
+o y diez personas13 . A
+l octavo día, los abogados de la oposición pusieron en manos de la C
+orte Suprema todas las evidencias y pruebas de que se habían cometido irr
+egularidades y fraudes en el proceso electoral. Con las masas excitadas en
+la calle, ante el mismo edificio, gritando que la «¡Corte está con el pue-blo!»,
+los magistrados revisaron la documentación, con semblantes de es-casa
+felicidad, escucharon a testigos y hasta responsables del otro campo que
+habían decidido testificar sobre inexplicables listas de recuentos de v
+oto en blanco, firmadas por los jefes de las comisiones de los distritos.P
+or fin, el 3 de diciembre, la Corte Suprema de Ucrania compareció solemnemente
+en público y declaró que debido a la «evidencia de sistemá-t
+icas y graves violaciones de los principios y los elementos del proceso electoral
+durante la segunda vuelta de las elecciones presidenciales del 21 de no
+viembre...».La
+R evolución Naranjah abía ganado, y el 26 de diciembre se repitió la asegunda
+vuelta electoral. En esta ocasión, Viktor Yushchenko ganó con el 5
+2% de los votos y Viktor Yanukovich perdió con el 44,19%. Lo que su-puso
+un intercambio votos del 5,39% para el candidato «naranja» y del 5,27% para el de los «azules».
+P
+ost scriptumE
+l 21 septiembre de 2004, el por entonces candidato presidencial Viktor Y
+ushchenko sufrió una fuerte indisposición tras cenar con varios funcio-narios
+de la seguridad del Estado. De resultas de ello, entre otros síntomas, 13
+York (2007): minutos 1:14:10 y ss.
+
+---
+
+N
+ARANJA MECÁNICAA 85 manifestó
+una desfiguración de su rostro, con flacidez de rasgos, y, sobre todo,
+unas lesiones compatibles con cloracné o «acné clorado». Ese diag-nóstico
+coincidiría también por la distribución de las lesiones en la cara, e
+sto es, en la zona periocular, cigomática o malar, temporal, mandibular, a
+uricular y retroauricular. No padeció ningún daño funcional severo, aun-que
+quedaron afectadas diversas partes de su organismo, como los huesos, los músculos o el aparato digestiv
+o.T
+ras la denuncia de Yushchenko por envenenamiento e intento de asesinato,
+la Fiscalía cerró la investigación un mes después, tras acceder al expediente
+médico de Yushchenko, pese a su negativa. Se concluyó que el paciente,
+de 50 años, había sufrido una fiebre herpética viral14 .  Sin embar-go,
+el 10 de diciembre ingresó en la clínica Rudolfinerhaus de Viena y allí se
+confirmó que había ingerido una dosis elevada de dioxina, y, más en concr
+eto, la denominada TCDD. A
+unque Yushchenko no se atrevió a verbalizarlo, el supuesto atentado se
+atribuyó enseguida a Moscú, a Putin; y la R evolución Naranjase  desarro-alló
+con esa historia de fondo. Cada vez que Yushchenko hablaba por tele-v
+isión o subía a un estrado, su rostro acusaba a Yanukovich, a Kuchma y a P
+utin. C
+uatro años más tarde, David Zhvania, parlamentario y exministro d
+e Situaciones de  Emergencia en el gobierno de Yulia Timoshenko (2005), d
+eclaró en una entrevista a la BBC que no había existido tal envenena-miento
+. F
+ue una mera intoxicación alimentaria. El diagnóstico se determinó el pri-m
+er día, y una de cada tres personas en el mundo a menudo sufre de tales env
+enenamientos. Fue una pancreatitis. El día en que se dirigió a los médi-cos,
+todos llegaron a esta conclusión. Yo estaba presente allí. Más tarde deci-d
+ieron que debía volar a Austria. Me opuse a eso, ya que era responsable de las decisiones y era uno de los más cer
+canos [a Yushchenko].P
+or lo tanto, la versión del envenenamiento de Yushchenko habría sido un inv
+ento utilizado como arma política en la campaña electoral y consensua-do
+por los miembros de su cuartel general. «La declaración fue emitida por
+el señor Zinchenko, quien fue comisionado por la sede. Al principio 14
+«La Fiscalía ucraniana reabre la investigación que cerró por el envenenamiento de Yush-chenko»,
+E l Mundo, 12 de diciembr e de 2004 [consultable en red].
+
+---
+
+86
+6 U CRANIA 22dijer
+on que era un arma biológica, química. No importa, fue una acción emocional», concluy
+ó Zhvania15 . L
+a respuesta de Yushchenko fue fulgurante: acusó a David Zhvania, m
+iembro de su propio partido político, antiguo amigo y padrino de uno de
+sus hijos, de estar involucrado en el envenenamiento que había sufrido e
+n septiembre de 2004. No suministró pruebas de ello. En todo el tiempo transcurrido
+hasta entonces, los fiscales nunca pudieron identificar a un solo
+sospechoso del supuesto envenenamiento de Yushchenko. Él afirmó en
+numerosas ocasiones conocer quién era el responsable, pero siempre se negó a nombrarlo
+.D
+avid Zhvania falleció el 9 de mayo de 2022 durante un bombardeo d
+e artillería cerca de un puesto de control ruso, localidad de Novopokrovka, óblast de Z
+aporozhy.P
+or otra parte, a pesar de las supuestas evidencias de irregularidades en
+las elecciones presidenciales de 2004, no se presentaron cargos por fraude
+dirigidos contra responsables de alto nivel. Sí se produjeron arres-tos
+de funcionarios menores a comienzos de 2005; pero en otoño Yush-chenko
+pactó con el Partido de las Regiones la aplicación de una amnistía para los inculpados.
+15
+«Zhvania: results of expertises on case of Yushchenko’s poisoning were falsified», en unian. info
+, 4 de junio de 2008 [consultable en r ed].
+
+---
+
+C
+APÍTULO 5M
+ITOS DE GASEL
+FRACASO DE LA EXPERIENCIA LIBERAL E
+N UCRANIA, 2005/hyphen.cap2008S
+egún oí decir, los sueños significan lo contrario de lo que par
+ecen.L
+a Naranja Mecánica, Anthony B urgess, 1962.S
+iete años después de la R evolución Naranja, Y ulia Timoshenko estaba encar
+celada y Viktor Yushchenko completamente relegado en el terreno p
+olítico. En las elecciones presidenciales de 2010, Yanukovich fue elegido p
+residente, para sorpresa de Europa. Como el resto de las «revoluciones de color
+es», la ucraniana también terminó mal. De hecho, después de esta se sucedió
+una tercera en Kirguistán y otra en Moldavia. El resto de las pro-y
+ectadas, que incluían a Bielorrusia, Kazajistán y la misma Rusia, aborta-r
+on en fase de planificación.E
+l desastre que supuso la R evolución Naranja arrojó enseñanzas va-l
+iosas, aunque, tal como concluyó todo, es evidente que no se supieron a
+provechar. Hablando en términos militares, las revoluciones de colo-r
+es eran jugadas puntuales que permitían romper el frente, pero des-p
+ués no existían fuerzas ni planes disponibles para explotar la manio-b
+ra y cambiar la situación en profundidad. La R evolución Naranja no p
+odía reconvertir, de la noche a la mañana, a los rusoparlantes o ucra-ni
+anos de las regiones del este en ucranianos occidentales. Eran dos s
+ensibilidades diferentes, dos entornos socioeconómicos, dos culturas. U
+crania bien podría definirse como un país multiétnico, pero la pala-b
+ra «etnia» es un término polisémico a medida de las políticas y estra-t
+egias identitarias del siglo xx/i.sc ,  y por ello a los jugadores occidentales,
+
+---
+
+88
+8 U CRANIA 22e
+n duro pulso con Rusia, no les interesaba resaltar esa realidad de las t
+res Ucranias o de las siete Ucranias, si se cuenta a la Verde, la Amarilla, l
+a Gris y hasta la Frambuesa. Pero que no les conviniera verlo así no s
+uponía que la presencia de McCain en Kiev, o la epopeya de la mani-f
+estación callejera bajo la nieve, fueran a cambiar la realidad del país. A
+l día siguiente de la juerga épica había que aportar soluciones concre-t
+as y realistas para lograr consenso en la diversidad ucraniana. Y eso falló e
+strepitosamente.P
+or otra parte, la R evolución Naranjas e basaba en un guion populista, ay
+ese tipo de política tiende a elaborarse de un día para otro. No es tan sencillo
+de cambiar o reconvertir. Durante los dos primeros años de su mandato,
+cuando Yuschhenko se personaba en la oficina presidencial, priorizaba
+atender a los visitantes que llegaban de todo el país y que aba-r
+rotaban el lugar. El resto de la jornada, su equipo se afanaba en solucionar entuer
+tos denunciados por toda esa gente, que la mayor parte de las veces podrían
+haber sido resueltos, desde un principio, por las concejalías o los mismos
+alcaldes. El resultado era la parálisis de la gestión presidencial. «Su t
+ardanza crónica en las reuniones clave se volvió legendaria», escribió la periodista
+ucraniana Katya Gorchinkaya. Su antiguo jefe de gabinete, O
+leh Ryabchuk, explicó posteriormente al canal Zik TV: «Yushchenko pensó
+que era suficiente romper el régimen de Kuchma y Ucrania florece-r
+ía. No vio que era su responsabilidad visualizar lo que quería que fuera U
+crania, e imaginar lo que tiene que hacer y con quién tiene que hacerlo para
+lograr estos cambios»1 .  Y en efecto, esta era una clave para entender el
+fracaso de las «revoluciones de colores» en general: no era suficiente con r
+omper el frente y ponerlo todo patas arriba: al día siguiente era necesario tener
+objetivos definidos y planes muy claros y bien elaborados, porque los
+cambios a efectuar para mutar de verdad el país y lograr consensos p
+rofundos eran de órdago.E
+n Kiev las cosas fueron precisamente al revés. Pronto empezaron las disputas
+por el poder entre los partidos y responsables de la Coalición N
+aranja. El reparto de los tinglados, activos económicos y prerrogativas v
+arias edificadas en la «era Kuchma» generó enfrentamientos entre los ne-v
+os beneficiarios del poder, porque todos querían su parte del pastel. Y además,
+algunos de los protagonistas de la «era naranja» eran avezados 1
+Gorchinskaya (2020).
+
+---
+
+M
+ITOS DE GAS89 v
+entajistas en esos terrenos. Yulia Timoshenko o Petró Poroshenko eran dos
+buenos ejemplos de ello. En realidad, ambos contaban como «políti-cos
+oligarcas», siendo el segundo un conocido magnate de la industria chocolatera
+que había contribuido en dar apoyo financiero a la R evolución N
+aranja, a la vez que le cedía su Canal 5 de la televisión ucraniana. Preci-samente,
+ambos terminaron enfrentándose por la negociación en torno a los pr
+ecios del gas con los rusos.A
+la vez, Yushchenko y Timoshenko, dos caracteres fuertes que eran el n
+úcleo central de la Coalición Naranja, acabaron mal, muy a las malas. En s
+eptiembre de 2005, el jefe de personal del presidente dimitió de su cargo a
+legando que, para entonces, la corrupción era peor que nunca. Apuntaba a P
+oroshenko, que estaba al frente del Consejo de Defensa y Seguridad Nacio-n
+al y era un aliado personal de Yushchenko. Pero este reaccionó promovien-do
+la dimisión de Timoshenko, por entonces primera ministra. Las
+elecciones parlamentarias, en marzo de 2006, arrojaron un resul-tado
+que dejaba bien a las claras el desgaste de los vencedores en la Re vo-lución
+Naranja, solo dos años antes: el Partido de las Regiones obtenía un 32,1%
+de los votos; B atkivshchyna (Patria), o Bloque Yulia Timoshenko, s
+e llevaba el 22,3%; N asha Ukraina, d e Yushchenko, iba en tercer lugar, c
+on un 14%. Luego ya venían los socialistas (5,7%) y los comunistas (
+3,7%). Diagnóstico: los partidos naranjas luchaban entre sí por los votos, e
+n vez de hacerlo contra los azules del Partido de las Regiones. P
+ero las cuitas de la Coalición Naranja no terminaron ahí. Al fin y a
+l cabo, uniendo sus escaños obtenían una mayoría de 243. Y las p
+eleas continuaron. Cuando Poroshenko se enfrentó al líder socialista O
+leksandr Moroz por el cargo de portavoz parlamentario y parecía a p
+unto de perder el pulso, desertó, y pactó el apoyo del Partido Socialista a
+la candidatura de Yanukovich al cargo de primer ministro. Yushchenko ac
+eptó el giro de los acontecimientos, pero a cambio de lanzar un pacto d
+e unidad nacional con todos los partidos de la Rada, excepto con la B
+atkivshchyna de Yulia Timoshenko, que de esa forma perdió la posibi-l
+idad de volver a ocupar el cargo de primera ministra. En conclusión, el od
+iado Viktor Yanukovich, contra el cual se había organizado la Re volu-c
+ión Naranja, solo había abandonado su puesto al frente del gobierno de l
+a nación durante diecisiete meses. L
+a deriva caótica continuó. En 2007 ya estaba en marcha una nueva crisis
+política, debida esta vez a la defección continuada de parlamentarios
+
+---
+
+90
+0 U CRANIA 22hacia
+la mayoría del Partido de las Regiones, en ocasiones compradas con d
+inero. Era totalmente ilegal, pero la única manera que tuvo Yushchenko d
+e detener la sangría que podría haber terminado en la propuesta azul de c
+ambios constitucionales fue la disolución de la Rada y la convocatoria d
+e nuevas elecciones para el 2 de abril.Como
+era de prever, los nuevos comicios cambiaron poco las cosas. El P
+artido de las Regiones siguió ostentando la mayoría, pero la B atkivshchy-na
+ob tuvo un 8% más de votos al recoger los de partidos quemados, comoae
+l Socialista. Y aunque Yushchenko intentó evitarlo, Yulia Timoshenko v
+olvió a ostentar la jefatura del gobierno, previa coalición obligada con N
+uestra Ucrania.A
+partir de ahí, los cambios de pareja en la danza cortesana pare-ci
+eron enloquecer. B atkivshchyna apoyó al Partido de las Regiones y l
+os comunistas en la aprobación de una serie de leyes que rompían el e
+quilibrio. Los restos de lo que había sido la Coalición Naranja, si es q
+ue todavía se podía hablar de ella, se descolocaron, generando una nu
+eva crisis de gobierno, aunque esta vez no derivó en nuevas eleccio-n
+es. Se reeditó de nuevo la alianza de Batkivshchyna y Nueva Ucrania, e
+sta vez con el apoyo del Bloque Lytvyn. Pero ese mismo verano de 2
+008 tuvo lugar la guerra de Georgia, y mientras Yushchenko acudió a T
+iflis para apoyar a Saakashvili, desde Kiev Yulia Timoshenko lo criti-c
+ó por tomar partido. A esas alturas, el negocio del gas hacía furor en U
+crania, y ya las líneas de frente de los bandos habían saltado por los a
+ires. En medio de esa situación, la primera ministra viajó a Moscú en o
+ctubre de 2008 y se entrevistó con Putin, por entonces primer minis-t
+ro. ¿Qué había provocado un enroque tan espectacular?Y
+ulia Timoshenko flirteando con Moscú, lidiando amablemente c
+on Putin: parecía que en ese momento las cosas ya habían ido demasia-d
+o lejos en Kiev. Mientras tanto, en ese mismo año, Yushchenko visitó e
+l jardín japonés de Viktor Pinchuk, el caro capricho de un oligarca c
+uyo suegro era ni más ni menos que el mismísimo Leonid Kuchma y q
+ue, no por casualidad, había multiplicado la riqueza de su imperio co-m
+ercial bajo el anterior presidente. La visita fue interpretada como un g
+uiño cómplice: los oligarcas no tenían nada que temer del presidente n
+aranja. El cual, el 18 de septiembre de 2004, en el arranque de su cam-p
+aña electoral, con el rostro desgraciado por el supuesto intento de en-v
+enenamiento por parte de los azules y sus secuaces y poderosos protec-
+
+---
+
+M
+ITOS DE GAS91 t
+ores, había gritado ante las masas enardecidas: «¡Los bandidos irán a la cá
+rcel!»2 . P
+ero antes, bastante antes de esa significativa visita, la negligencia de Y
+ushchenko hacia los oligarcas, los funcionarios corruptos y los clanesper-mitió
+que sus beneficios aumentaran y que incluso aparecieran nuevos nombr
+es en el panteón de los gánsteres ucranianos. No parecía investigar-se
+nada, nadie iba a la cárcel. Por el contrario, oligarcas como Rinat Ajme-t
+ov, Íhor Kolomoiski, Serhiy Taruta o Hryhoriy Surkis eran premiados como empr
+esarios modelo. D
+esde luego, el rubio y repeinado Ajmetov no necesitaba ningún pre-m
+io. Llegó a ser el hombre más rico de Ucrania. Y de toda Europa. En 2008 s
+uperaba al número uno a escala continental, Ingvar Kamprad, el fundador d
+e Ikea. Viktor Pinchuk iba segundo en la lista, aunque en términos de m
+onto total de fortuna quedaba lejos de Ajmetov. Íhor Kolomoiski se situa-b
+a entre una tercera y cuarta posición, pero en cuanto a protagonismo polí-t
+ico y mediático era uno de los oligarcas más reconocidos. Petró Poro shenko, e
+l «rey del chocolate», que se había hecho rico con la fundación del grupo R
+oshen en 1996, el principal fabricante de dulces de Ucrania, había amasa-d
+o una fortuna similar a la de Kolomoiski, pero había apostado por la acti-v
+idad política de forma abierta, se había convertido en uno de los protago-n
+istas de la R evolución Naranja y  había llegado a actuar como escudero de Y
+ushchenko. Por contra, Ajmetov era un puntal importante en el Partido d
+e las Regiones. De origen tártaro —de hecho, él mismo era musulmán s
+uní—, era un hombre del Donbas, nacido en el seno de una familia de m
+ineros. El libro de Serhiy Kuzin y Konstantyn Stogniy, L a Mafia de Do-nets
+k. Antología( 2006), en ucraniano, desveló algunos aspectos poco cono-ac
+idos sobre los comienzos de la meteórica carrera de Ajmetov, supuestamen-t
+e ligados a actividades financieras delictivas3  con las que reunió la fortuna y
+, sobre todo, las influencias políticas, que le llevaron a convertirse en el m
+agnate de la minería, la metalurgia y la energía, erigiendo empresas como M
+etinvest, DTEK y, sobre todo, el hol dingS ystem Capital Management.g2
+Gorchinskaya (2020). Buena parte de la información sobre la corrupción durante la era de Y
+ushchenko proviene de esta documentada pieza.3
+Cit. en «Check out of Ukraine’s best books», by Alexandra Matoshko, en K yiv Post, 21 de junio de 2006 [consultable en r
+ed]. Por el momento, la fuente más completa en inglés sobre la biografía
+de este oligarca es la que ofrece Wikipedia en su entrada: Rinat Akhmetov( versión envinglés: https://en.wikipedia.org/wiki/Rinat_Akhmeto
+v).
+
+---
+
+92
+2 U CRANIA 22N
+o solo hubo manga ancha para los grandes. Funcionarios locales y sus
+compinches se hicieron con tierras comunales y pasaron a convertirse en
+terratenientes que blindaron sus propiedades, obtenidas de forma ilíci-ta
+durante las privatizaciones, con una ley que prohibía la compraventa de suelo
+agrícola. En el sector de la energía, durante esos convulsos años se afianzar
+on dos oligarcas, Dmytro Firtash e Ivan Fursin, quienes controla-b
+an respectivamente el 45 y el 5% de RosUkrEnergo, una empresa que, sin
+embargo, estaba participada al 50% por la rusa Gazprom. De todas formas,
+ellos tampoco lo hacían directamente, sino a través de una firma suiza
+interpuesta: Centragas Holding AG. De hecho, los padrinos que alumbrar
+on RosUkrEnergo en julio de 2004 habían sido Kuchma y Pu-tin.
+Esta nueva empresa sustituía a EuralT ransGas, registrada en Hungría, p
+ero en ambos casos el objetivo consistía en transportar gas desde T urk-menistán hasta E
+uropa vía Ucrania.R
+osUkrEnergo era una fábrica de hacer dinero, puesto que en 2006 se
+convirtió en el intermediario exclusivo para las importaciones de gas r
+uso que se vendían en Europa. Y precisamente fue el centro de la guerra del gas de 2005.
+E
+n marzo de ese año, Moscú protestó por lo que parecía una estafa por
+parte de los distribuidores ucranianos. Al parecer, una parte del gas que
+debía circular en dirección a la Unión Europea por los gasoductos que discurrían
+por territorio ucraniano era desviado para consumo interno, lo que
+defraudaba a los europeos, que recibían menos volumen del previsto, y
+a los rusos, puesto que ese combustible era, literalmente, sustraído. Ni q
+ue decir tiene que los beneficios de la operación iban a parar a bolsillos co-r
+ruptos. Los ucranianos negaron inicialmente la mayor; pero, posteriormente, se
+escudaron en el hecho de que aquel invierno había sido especialmente dur
+o, con temperaturas de hasta –30°4 .  Del tira y afloja resultó el corte r
+uso del suministro a los europeos, el primero, de enero de 2006, que se r
+esolvió por vía de urgencia tres días más tarde, a partir de un acuerdo p
+reliminar entre Moscú y Kiev. Las tensiones volvieron a aflorar en octu-b
+re de 2007, cuando Rusia exigió el pago de las deudas ucranianas, y de n
+uevo en marzo de 2008 se produjeron reducciones del suministro ruso a ese
+país. La situación siguió siendo tensa a lo largo de ese año, sin que las par
+tes lograran ponerse de acuerdo sobre el montante de la deuda.4
+«Ukraine takes extra Russian gas», BBC, 24 de ener o de 2006 [consultable en red].
+
+---
+
+M
+ITOS DE GAS93 D’Anieri
+argumenta que, sintiéndose Moscú amenazado por la flora-c
+ión de las revoluciones de colores en las repúblicas exsoviéticas (la Re vo-lución
+de los Tulipanes, en Kirguistán, había arrancado a finales de marzo d
+e 2005 y triunfado en abril), había querido dejar claro que chulear a Rusia no
+salía gratis5 .  Aun así, viendo las cosas desde el otro lado de la barrera, par
+ecía evidente que, tras la R evolución Naranja, a  los nuevos gobernantes se
+les habían subido mucho los humos y dejar hacer a los oligarcas había contribuido
+al estallido de las peleas en torno al suministro de gas. Es cier
+to también, en argumentación de D’Anieri, que ese problema había metido
+de lleno a la UE en la «cuestión ucraniana» puesto que los cortes e
+n enero de 2006 habían afectado al 40% del suministro húngaro, al 30% del francés, austriaco y eslo
+vaco y al 24% del italiano6 . A
+partir de ahí, era lógico que los europeos se replantearan la nece-si
+dad de depender menos del suministro ruso y, sobre todo, del suminis-t
+ro ruso a través de Ucrania, que era un capítulo especial por el proble-m
+a que suponían las jugadas de los oligarcas locales. Ahí se pusieron de r
+elieve las posturas divergentes entre las grandes compañías comerciali-z
+adoras del gas, que buscaban sobre todo pagar el combustible al precio m
+ás bajo, y los gobiernos, obligados a mirar más por los intereses nacio-n
+ales en riesgo.L
+a disyuntiva giraba en torno a la posibilidad de descartar a Ucrania de
+los acuerdos para comprar gas a los rusos. El recurso a canales alterna-tiv
+os era una posibilidad que también les cuadraba a los rusos. El Proyecto N
+ord Stream, que discurría por las profundidades del mar Báltico, era la estr
+ella de esa opción: la posibilidad de canalizar el gas desde Rusia hasta Alemania
+sin pasar por territorio ucraniano, polaco, estonio, letón o litua-no,
+países que podían generar impedimentos a ese tráfico por motivos p
+olíticos, en cualquier momento. El canciller Gerhard Schröder había sido uno
+los más firmes partidarios de esa opción entre 1998 y 2005; pocos días
+antes de dejar su cargo, firmó con los rusos el acuerdo para su cons-t
+rucción y doce años más tarde terminó convirtiéndose en el director de la f
+irma petrolífera rusa RosNeft, que por entonces estaba sancionada por e
+l gobierno estadounidense como consecuencia de la guerra de 2014 en el D
+onbas. Frente a esta opción, los países más beligerantes con Rusia consi-5
+D’Aniero (2019): p. 155.6
+I bid., p . 156.
+
+---
+
+94
+4 U CRANIA 22deraban
+que el gas era un arma más en manos de Moscú, que utilizaba para
+someter a sus vecinos e incluso a Europa. Ese planteamiento hizo e
+xclamar al ministro polaco de Defensa que el Nord Stream era, de hecho, e
+l «Gasoducto Molotov-Ribbentrop»7 .  Y es que, por ende, los trayectos alternativ
+os para el gas ruso descolocaban estratégicamente a Ucrania, país e
+n el cual, precisamente, los intereses de las compañías —las más impor-tantes
+en poder de los oligarcas— no iban de la mano de los intereses na-cionales.
+La dicotomía que atenazaba a los países compradores del gas ruso anidaba en el centr
+o de Ucrania.Como
+ya se explicó, en 2008, Yulia Timoshenko, de nuevo como primera
+ministra, viajó a Moscú, se entrevistó con Putin, en funciones de primer
+ministro, e intentó pactar un acuerdo definitivo sobre los precios d
+el gas. Por entonces, los clientes europeos pagaban 500 dólares por 1.000 metr
+os cúbicos, mientras que los ucranianos solo abonaban 179,5 dólares por
+esa misma cantidad; de ahí los beneficios que podían llegar a obtener los
+que derivaban ese gas a bajo precio hacia terceros países. Las negocia-ciones
+fueron complicadas y se resolvieron en el último momento, bajo la atenta
+mirada de Bruselas, en base a una fórmula de conveniencia para los eur
+opeos, en enero de 20098 . E
+n aquel mismo viaje de octubre de 2008, Putin le echó en cara a su homóloga
+ucraniana que su país hubiera enviado armas a Georgia en el r
+eciente conflicto militar9 .  En efecto, en agosto había tenido lugar la breve g
+uerra ruso-georgiana, de tan solo nueve días de duración, pero que había c
+ontribuido a poner patas arriba el «Nuevo Orden Mundial», proclamado p
+or George Bush padre en 1990. El otro acontecimiento que había termi-nado
+por zapar dramáticamente el orden neoliberal mundial había sido el arranque
+de la Gran Recesión, en septiembre de ese mismo año, con la quiebra
+de la compañía de servicios financieros Lehman Brothers. En efecto,
+el viaje de Yulia Timoshenko a Moscú había sido la respuesta ucra-n
+iana a la súbita necesidad de negociar algún asidero para el lucrativo ne-gocio
+de la distribución de gas, una vez que la crisis económica se había desencadenado y nadie podría pr
+ever las consecuencias en Europa. 7
+I bid., p . 158. Se trataba del ministro Radoslaw Sikorski.8
+«Rusia y Ucrania alcanzan un acuerdo en el conflicto sobre la distribución de gas a Europa», en
+E l Mundo, actualizado a 18 de ener o de 2009 [consultable en red].9
+«Putin accuses Kiev of arms deliveries to Georgia», F rance24, 3 de octubre de 2008 [consul-table en r
+ed].
+
+---
+
+M
+ITOS DE GAS95 P
+ero volvamos a la guerra ruso-georgiana. El conflicto se inició por sor-p
+resa el 7 de agosto, cundo fuerzas georgianas intentaron invadir por s
+orpresa la autoproclamada República de Osetia del Sur, que se había ne-g
+ado a la inclusión en Georgia en 1991. Los planes desarrollados en Tiflis contemplaban
+también la ocupación de la otra república secesionista, Ab-jasia,
+en una ofensiva que debería durar nueve días. Sin embargo, el fulmi-nante
+contraataque del Ejército ruso, que accedió a Osetia a través del t
+únel de Roki y la carretera transcaucásica, expulsó a los invasores y entró en
+territorio georgiano, llegando hasta la ciudad de Gori y amenazando a la capital,
+Tiflis; momento en el cual los georgianos se rindieron.La
+invasión de Osetia del Sur y la previsible operación para hacer lo m
+ismo con Abjasia habían sido a instancias del presidente georgiano Mi-j
+eíl Saakashvili, el líder de la R evolución de las Rosase n 2003. El objetivo,sob
+viamente, consistía en reintegrar esos territorios a Georgia, aun a costa de
+la huida de la población de la pequeña Osetia del Sur. Se pretendía a
+provechar la inauguración de los Juegos Olímpicos en Pekín porque, su-puestamente, P
+utin acudiría a ella. P
+ero, detrás de esas motivaciones había otras. Aunque la prensa occi-dental
+pasó de puntillas sobre el asunto y las instituciones diplomáticas mucho
+más que eso, T urquía y Armenia buscaban por entonces, y desde hacía
+meses, un acercamiento que podría llevar a la reconciliación entre ambos
+países, arreglaría el contencioso del Alto Karabaj con Azerbaiyán y, de
+paso, estabilizaría el Cáucaso en su función de corredor energético en-t
+re el mar Caspio y Europa. Esos tanteos se habían llevado en el mayor de los
+secretos, aunque se habían mantenido reuniones importantes entre r
+epresentantes armenios, georgianos, azeríes y turcos. Uno de los asuntos más
+delicados de esas negociaciones eran los acuerdos sobre los corredores energéticos que unirán al Caspio con E
+uropa10 . E
+n ese momento, el gasoducto BTC (Bakú-Tiflis-Ceyhan) era la p
+arte más importante de este equipamiento, como alternativa a los su-m
+inistros energéticos hacia Europa por territorio ruso, puesto que su t
+razado pasaba por Azerbaiyán, Georgia y T urquía. Sin embargo, desde 1
+991, tras su independencia, Georgia había aportado más problemas q
+ue soluciones: inestabilidad política, guerra civil y separatismo. Ade-m
+ás, limitaba con Chechenia y algo tenía que ver con ese conflicto, en 10
+Veiga (2008).
+
+---
+
+96
+6 U CRANIA 22c
+onexión a través del valle de Pankisi. Pero, sobre todo, el BTC daba un l
+argo rodeo por el hecho de atravesar Georgia evitando a Armenia, alia-d
+a de Rusia. T odo ello dejaba al BTC potencialmente expuesto a con-fli
+ctos.S
+u condición de satélite de Rusia y el conflicto con T urquía habían e
+xcluido a Armenia de acuerdos energéticos en la región. Pero las cosas habían
+cambiado, y quien se convirtió en una molestia para todos fue el i
+nestable presidente georgiano Mijeíl Saakashvili. La insistencia de Bush en
+apoyarlo a cualquier precio les creó problemas a algunos países de la U
+nión Europea, cuyas compañías petroleras eran los principales contribu-y
+entes al BTC. Una pugna habitual entre Europa y los Estados Unidos en la periferia de la antigua U
+nión Soviética.P
+ara Georgia, existía el riesgo de que la reanudación de las relaciones e
+ntre T urquía y Armenia pudiera rediseñar la ruta BTC, o agregar un ra-m
+al dentro de unos años, a través de Ereván, pasando a continuación por T
+urquía, y creando un camino más corto y lógico que el que suponía a
+travesar una Georgia bajo la amenaza estratégica de Osetia del Sur y Ab-jasia.
+Así, el ataque ordenado por Saakashvili en agosto de 2008 pudo haber
+tenido como objetivo liquidar o disipar abruptamente esta presión r
+usa para reforzar la seguridad del territorio georgiano en el contexto del multimillonario
+proyecto BTC. Y proporcionar puertos del mar Negro como P
+oti, Batumi y, quizás algún día, Sujumi en Abjasia.E
+n cualquier caso, la acción de invadir Osetia del Sur y asaltar esa p
+obre capital de juguete que era Tsjinvali, fue algo inesperado y brutal. Y
+se vio respondida con contundencia por Rusia, la superpotencia que a
+nunciaba así su retorno activo al enfrentamiento con los Estados Uni-d
+os, combatiendo activamente, a tiro limpio, su fijación por extender l
+a OTAN a las repúblicas exsoviéticas. De hecho, Moscú se tomó el a
+taque como un burdo intento de meter a la Organización Atlántica h
+asta la cocina del espacio exsoviético. Se dijo en negro sobre blanco, e
+n voz alta, en diversas ocasiones y por boca de variadas personalidades r
+usas que los Estados Unidos, Reino Unido e Israel habían sido los i
+nstructores del nuevo Ejército georgiano, y Ucrania, su proveedor de ar
+mas. Y la ofensiva sobre Osetia del Sur había sido un ataque planifi-c
+ado por la OTAN.D
+e hecho, el conflicto había quedado prefigurado en la Conferencia d
+e Seguridad de Múnich, en 2007, donde Putin pronunció un discurso de
+
+---
+
+M
+ITOS DE GAS97 a
+dvertencia muy claro11 ,  y en la cumbre de la OTAN en Bucarest, en abril de 2008.
+E
+n  u n  p r i n c i p i o  n o  s e  h a b í a  c o n s i d e r a d o  s e r i a m e n t e  a t e n d e r  a  l a s  peticiones
+de Yushchenko para que en la cumbre de la OTAN por cele-brarse
+se contemplara la elaboración un Membership Action Plan (MAP) p
+ara Ucrania. Sin embargo, el vicepresidente Dick Cheney, que formaba par
+te de los «Vulcanos», el gabinete de guerra de Bush, sí que era un fan decidido
+de la integración de ese país en la Alianza. Así que, finalmente, W
+ashington aprobó el proyecto de un MAP para Ucrania y también, y no por
+casualidad, para Georgia. Al fin y al cabo, se trataba de dar apoyo al p
+residente surgido de la R evolución Naranjaa l que las cosas no le estaban ay
+endo demasiado bien.E
+l asunto terminó como el rosario de la aurora. Los rusos, que se v
+eían venir una nueva ronda de flirteos ucranianos con la OTAN, expre-sar
+on claramente su disgusto. Ahora era una constante, lo hacían cada dos p
+or tres. Ya en enero de ese mismo año, marcando las tendencias en su política exterior
+, se publicó la advertencia oficialmente:R
+usia mantiene su actitud negativa hacia la expansión de la OTAN, en par-ticular
+hacia los planes de admitir a Ucrania y Georgia como miembros de la
+alianza, así como acercar la infraestructura militar de la OTAN a las fron-t
+eras rusas en su conjunto, lo que viola el principio de igual seguridad [y] conduce a nuev
+as líneas divisorias en Europa.R
+usia hará todo lo posible para evitar la admisión de Ucrania y Georgia en la O
+TAN.F
+inalmente, el 3 de abril Putin se personó en la cumbre de la OTAN in-tentando
+limar asperezas. «Seamos amigos, chicos», comentó en un mo-mento
+de su intervención. «Rusia no tiene derecho a vetar la ampliación», d
+eclaró en su debate de hora y media. Pero insistió en que las exrepúblicas s
+oviéticas eran países complicados y que el acercamiento a la OTAN no l
+os iba a hacer más democráticos. «La OTAN no es una fuerza democrati-zadora»,
+añadió. Para puntualizar la complejidad estructural de los nuevos postulantes,
+recordó que la mayor parte de la población de Crimea es rusa 11
+Dugin (2015): posiciones 2320 a 2378.
+
+---
+
+98
+8 U CRANIA 22y
+que Georgia no había sabido resolver sus problemas con Abjasia. Y ter-minó
+criticando la «ilusión de seguridad» que tenían algunos países de la antigua
+órbita soviética por pertenecer a la Alianza. Ese argumento se con-v
+ertiría en una de las causas de la guerra, catorce años más tarde12 . T
+ambién surgieron resquemores por las heridas balcánicas. El 17 de f
+ebrero, Kosovo se había declarado independiente de forma unilateral, zanjando
+la situación por su cuenta, aunque con el beneplácito de Estados U
+nidos, a fin de saltarse el denominado Plan Ahtisaari para una indepen-dencia
+tutelada, que aplicara garantías de respeto para los derechos de las m
+inorías. En Moscú estaban indignados por cómo Washington se había salido
+con la suya, anulando la Resolución 1244 del Consejo de Seguridad de las N
+aciones Unidas, promulgada en  1999. D
+efinitivamente, el horno no estaba para bollos en aquellos momen-t
+os. Los rusos también estaban encrespados, realmente cabreados ante la a
+gresiva política de Bush, que no solo se proyectaba hacia el mundo árabe. E
+l año anterior se le había ocurrido instalar un escudo antimisiles en Po-l
+onia y República Checa, inspirado en la «Guerra de las Galaxias» de Rea-g
+an. Oficialmente, se trataba de prevenir el lanzamiento de misiles de largo
+alcance desde Irán, en una continuación del malogrado argumento d
+e las armas de destrucción masiva que supuestamente escondía Irak e
+n 2003. Ahora eran los iraníes los que podrían atacar con armas más o m
+enos imaginarias el Viejo Continente. Varios países de la Unión Europea expr
+esaron su malestar por una iniciativa que traía recuerdos de la «crisis de
+los euromisiles» en los años ochenta del siglo anterior, en plena Guerra F
+ría. Alemania y Francia se mostraron especialmente molestos y volvieron a
+desplegar esa actitud en la cumbre de Bucarest ante la nueva onda de flir
+teos de Georgia y Ucrania para acceder a la OTAN.P
+or todo lo cual, la cumbre de Bucarest terminó con una declaración de
+compromiso, en la que se agradeció a Georgia y Ucrania su vocación a
+tlantista pero se postergó para más adelante un estudio sobre esta cues-t
+ión. Como vinieron a decir los alemanes, la cosa no estaba para bromas. P
+or su parte, el delegado polaco consideró que Alemania estaba más preo-cupada por M
+oscú que por sus aliados.12
+«Putin advierte que la OTAN se ha quedado obsoleta y ya no puede hacer nada sin Rusia. El l
+íder ruso dice que la extensión de la OTAN hasta sus fronteras supone una amenaza», en El  Mu
+ndo, 5 de abril de 2008 [consultable en r ed].
+
+---
+
+M
+ITOS DE GAS99 P
+ero los rusos no quedaron nada convencidos. En marzo la Duma ya h
+abía propuesto el reconocimiento formal de la independencia de Abjasia y
+Osetia del S ur , y en junio, aprobó una resolución instando a P utin a r
+etirarse del T ratado de Amistad de 1997. Y
+en agosto, solo cuatro meses más tarde, la gamberrada de Saakash-vili y la guerra en G
+eorgia.
+
+---
+
+
+
+---
+
+C
+APÍTULO 6M
+ORIR EN INVIERNOY
+ANUKOVICH Y LA REVUELTA DEL EUROMAIDAN, 2009 /hyphen.cap2014L
+lamé a los verdugos para morder, mientras agonizaba, la culata
+de sus fusiles. Llamé a las plagas, para ahogarme con l
+a arena, la sangre. La desdicha fue mi dios. Me revolqué e
+n el fango. Me sequé con el aire del crimen. Y le di bue-nos
+chascos a la locura. Y la primavera me trajo la horren-da risa del idiota.
+U
+na temporada en el inferno, A rthur RimbaudY
+de repente, la calma antes de la tempestad. El año 2009 llevó a la Casa B
+lanca al primer presidente de color de los Estados Unidos, Barack Oba-m
+a; los años tóxicos de la presidencia Bush quedaron atrás; pareció que se a
+bría una nueva era de concordia. En el célebre discurso de El Cairo, el 4 de
+junio, tendió una mano abierta hacia el mundo musulmán, tras la pe-sadilla
+de los ataques de Al Qaeda contra los T orres Gemelas y el Pentágo-no el 11 de septiembr
+e de 2001. H
+ubo también propuesta de conciliación hacia los rusos. Y en marzo, H
+illary Clinton, la nueva Secretaria de Estado, presentó a Sergei Lavrov un
+«botón para resetear», es decir, un proyecto para relanzar las relaciones r
+uso-americanas y dejar definitivamente atrás tensiones que parecían deri-v
+adas de la Guerra Fría. Al
+año siguiente, Yanukovich ganaba las elecciones y se convertía en p
+residente. Esta vez no hubo dudas, ni los observadores internacionales pudier
+on alegar nada; ni siquiera quedaba un jirón de Yushchenko para a
+gitar de nuevo a las masas naranjas. El relevo lo tomó la temible Yulia T
+imoshenko, que si bien en la primera vuelta solo obtuvo un 25,05% de l
+os votos frente al 32,32% de Yanukovich, en la segunda consiguió un 45,47% ante al 48,95%, que dio la apr
+etada victoria a su oponente.
+
+---
+
+102
+102U CRANIA 22P
+udo haber sido, una vez más, el comienzo de un nuevo camino ba-sado
+en consensos y acuerdos. Pero para entonces los demonios de Ucra-nia
+ya habían despertado y nadie volvería a meterlos de nuevo en la bote-lla.
+Antes de dejar la presidencia, Yushchenko había concedido el título de H
+éroe de Ucrania a Stepán Bandera, el polémico líder ultranacionalista d
+el Ejército Insurgente Ucraniano (UPA) durante la Segunda Guerra M
+undial, que había llevado a cabo masacres de civiles polacos y judíos en l
+a Ucrania occidental. Protestaron el Parlamento Europeo, el gobierno r
+uso y asociaciones judías y polacas de víctimas del nazismo1 .  La iniciativa d
+e Yushchenko fue recurrida y en 2011 se anuló judicialmente. Pero ya había
+contribuido a abrir otro frente de polémica entre la Ucrania occi-d
+ental y la oriental, los más nacionalistas radicales y excluyentes y los más p
+rorrusos y crecientemente intolerantes. Las dos Ucranias.La
+victoria electoral de Yanukovich abrió un periodo durante el cual cua
+lquier iniciativa de un bando era automáticamente malinterpretada por e
+l otro. Entre 2010 y 2013 se cavaron trincheras en las cuales se parapetaron u
+nos y otros haciendo tiempo para el choque final. Esa situación, a su vez, h
+acía de Ucrania caja de resonancia de las crecientes tensiones entre Estados U
+nidos y Rusia. Estas se debían al fracaso del Nuevo Orden Internacional (
+NWO) neoliberal a raíz de la Gran Recesión económica que había estallado e
+n 2008, y la contraofensiva militar iniciada por Rusia en la guerra de Geor-g
+ia de ese mismo año. Resultó muy llamativo constatar que la prensa rusa y l
+a china comenzaron a pronosticar, inmediatamente después de la crisis en e
+l Cáucaso, que el próximo choque tendría lugar en Ucrania2 aa. E
+n ese contexto, la creciente mala imagen de Putin se conjugaba con el
+desmoronamiento progresivo del carisma de Obama, disuelto por una P
+rimavera Árabe que resultó ser una ilusión fugaz. Y que alumbró dos guerras
+civiles —la libia y la siria—, las cuales se prolongaron durante años
+eclosionando a su vez un yihadismo más terrorífico aún que el de Al Q
+aeda: el del ISIS o Dáesh, que se extendió por buena parte de Oriente M
+edio y el continente africano. Esa situación llevó a los rusos a Siria, al S
+ahel y al mismo corazón del África subsahariana. En esos años creció la 1
+«The “Bandera Debate”: The Contentious Legacy of World War II and Liberalization of C
+ollective Memory in Western Ukraine», por Eleanora Narvselius, en C anadian Slavonic Pa-pers,
+1 de septiembr e de 2012 [consultable en red].2
+«La guerra ruso-georgiana de 2008, anticipo de la crisis ucraniana», F rance24, 5  de agosto de 2018 [consultable en r
+ed].
+
+---
+
+M
+ORIR EN INVIERNO103 ultrader
+echa en Europa, a veces apoyada desde Moscú; pero a la vez, las f
+iltraciones de WikiLeaks consternaron a Occidente. Es cierto que, en junio d
+e 2010, el FBI desactivó una célula de espías durmientes —parte de ellos de origen
+latinoamericano— que trabajaban para los rusos, lo cual levantó u
+n cierto ruido. De nuevo se volvió a escuchar el sonsonete de que, con r
+especto a los rusos, nada parecía haber cambiado con el final de la Guerra F
+ría. Sin embargo, en 2013 estalló el escándalo Snowden: el empleado de l
+a CIA y la NSA escapó a Hong Kong y luego a Rusia, desvelando detalles ultrasecr
+etos sobre programas estadounidenses de vigilancia masiva tales c
+omo PRISM y XKeyscore. Ello dejaba al descubierto que los servicios de inteligencia
+de ese país habían espiado impunemente millones de teléfo-n
+os y cuentas de internet, incluyendo el móvil de la canciller alemana Angela
+Merkel, entre 2012 y 2014. Y, por cierto, con el apoyo del Forsva-r
+ets Efterretningstjeneste, esto es, el Servicio de inteligencia de la Defensa de D
+inamarca3 . D
+urante aquella década, la de la desilusión de las grandes promesas h
+echas en nombre de la globalización neoliberal, una corriente de tensión y
+crispación recorrió el mundo. Los autores centrados en analizar las cau-sas
+de la crisis ucraniana suelen olvidar el contexto internacional de fondo, y eso es un err
+or de bulto. E
+n Ucrania, el nuevo presidente Viktor Yanukovich se esforzó visible-m
+ente por recuperar el máximo control posible de las instituciones: para sí,
+para el Partido de las Regiones y hasta para los clanes afines y miembros d
+e la propia familia. En ese país se había institucionalizado una forma de spoils
+system cada vez más violento y desordenado que en realidad adopta-ba
+la forma de gobierno a bandazos. Dado que el «dejar hacer» del periodo Y
+ushchenko había desembocado en el desgobierno y la fragmentación del p
+ropio campo, su sucesor optó por cerrar filas con los suyos. Pero eso c
+ondenaba a Ucrania a una gran confrontación bipolar de este contra oes-t
+e. En las elecciones, los votos para Timoshenko se acumulaban a partir de L
+viv, el gran foco del sentir político de la Ucrania occidental; los otorga-d
+os a Yanukovich oscurecían el mapa de las regiones del Donbas. E
+l nuevo presidente se concentró en conseguir la mayoría parlamen-taria
+para sus partidarios. Echó mano de métodos ilegales, como conseguir 3
+«Dinamarca ayudó a Estados Unidos a espiar a Merkel y a sus aliados europeos, sostiene in-forme», en
+F rance24, 31 de may o de 2021 [consultable en red].
+
+---
+
+104
+104U CRANIA 22tránsfugas
+mediante soborno. A partir de ahí, se propusieron y votaron cambios
+en leyes y procuró que la Duma no protestara ante determinadas m
+aniobras y abusos. Gracias a todo ello, se pudo colocar al frente del go-b
+ierno a un aliado de confianza, Mikóla Azarov , líder del Partido de las R
+egiones y, en su día, hombre de confianza de Kuchma. De esa forma, Y
+anukovich unió con mano de hierro a presidencia, gobierno y Parlamen-to en torno a una única fuer
+za política. Y
+a partir de ahí, a por la Constitución. Como parte de las claudica-ciones
+de la R evolución Naranjas e habían acordado algunas reformas que alimitaban
+el poder del presidente, para evitar los excesos de la era Kuchma. G
+racias al control que los hombres de Yanukovich tenían del T ribunal Constitucional,
+se declararon inconstitucionales las enmiendas de 2004. D
+e paso, el presidente recuperó la potestad de nombrar gobernadores de óblast.
+E
+n este caciquismo a la ucraniana tuvo destacada importancia el c
+ontrol de los oligarcas, un poco a la manera de Putin: reteniendo en t
+orno al poder solo a los de más confianza. Inicialmente, Yanukovich t
+enía a nueve grupos empresariales representados en su gabinete; en solo t
+res años, en 2013, se habían reducido a dos4 .  Eso sí, los hombres de la energía,
+el gas y el petróleo en los círculos de confianza presidenciales consiguier
+on cargos ministeriales. Yuriy Boyko, próximo a Firtash: minis-t
+ro de Energía. Serhiy Lyovochkin, otro de los cercanos a Firtash, pasó a llev
+ar la administración presidencial. Boris Kolesnikov, un hombre del oligar
+ca Ajmetov, viceprimer ministro. Y así sucesivamente. Los más re-v
+oltosos u oportunistas perdieron posiciones enseguida, como el incom-b
+ustible Petró Poroshenko, quien en 2012 fue nombrado ministro de Co-m
+ercio y Desarrollo Económico, tras lo cual la policía fiscal registró sus oficinas
+de empresa. Entendió la advertencia, dejó el gobierno y pasó a ocupar un escaño parlamentario
+. Las
+apuestas y pulsos iban subiendo de tono con rapidez. La culmina-ción
+de la ofensiva de poder de Yanukovich fue la incriminación de Yulia T
+imoshenko por abuso de poder y falsificación de documentos en el con-texto
+de los contratos cerrados con Putin, por entonces primer ministro r
+uso, en enero de 2009. La fiscalía consideraba que dicho acuerdo había sido
+oneroso para Ucrania y además la acusaba de haber firmado sin estar 4
+D’Anieri (2019): pp. 178-179.
+
+---
+
+M
+ORIR EN INVIERNO105 facultada
+para ello. En octubre de 2011 fue condenada a siete años de prisión.
+E
+l juicio contra la ex primera ministra fue seguido con inquietud des-d
+e la Unión Europea, Estados Unidos y la misma Rusia, mientras el T ri-bunal
+de Estrasburgo se preocupaba por las supuestas irregularidades en s
+u detención y enjuiciamiento. T odo ello, y los comicios parlamentarios de
+2012, fueron preparando el ambiente para la gran explosión del año s
+iguiente. En esas elecciones, en las cuales Yushchenko y su partido ya no pintaban
+nada, se conformó un frente anti-Yanukovich compuesto por B
+## atkivshchyna( Patria) —el partido de Yulia Timoshenko— y dos recién allegados
+Alianza Democrática Ucraniana para la Reforma, liderada por el b
+oxeador profesional, campeón de los pesos pesados, Vitaliy Klichkó, y el par
+tido S voboda(L ibertad) de tendencias ultraderechistas, capitaneadoapor O
+leh Tiahnibok. E
+n los comicios, el Partido de las Regiones volvió a ganar, pero no c
+reció gran cosa en votos desde las anteriores elecciones. Mientras tanto, e
+l frente de la oposición se decantaba abiertamente por el populismo de T
+imoshenko y Klichkó y el ultranacionalismo afín al neonazismo de T
+iahnibok. El partido de este último había sido fundado en 1991 con el s
+ignificativo nombre de Partido Social-Nacional de Ucrania y no era nin-gún
+secreto que desde él se reclamaban el etnocentrismo, el antisemitis-mo,
+la homofobia, el antiabortismo, el militarismo la nacionalización de l
+a economía y la implantación de una única lengua nacional, el ucraniano. T
+iahnibok, hombre de Lviv, se consideraba el heredero político de Stepán B
+andera. P or su parte, las siglas en ucraniano del partido del box eador Klichkó,
+UDAR, se traducían como «golpe». Pero en ese caso jugaba más como
+partido ariete de los intereses alemanes en Ucrania: era socio de la U
+nión Demócrata Cristiana, estaba muy apoyado por la canciller Angela M
+erkel y la Fundación Konrad Adenauer y miembro observador del Par-tido P
+opular Europeo.L
+os tres partidos de la oposición consiguieron un buen porcentaje de v
+otos: B atkivshchyna, un 25,6%; UDAR, un 14%, y Sv oboda, un 10,5%. P
+or su parte, el Partido de la s Regiones se atribuía un 30% de los votos. Y por
+supuesto, estas cifras reflejaban de nuevo la polarización del voto ucra-niano entr
+e el este y el oeste del país. L
+a división de Ucrania en dos la había convertido en una carga explo-s
+iva que podía estallar si se le aplicaba una fuerte presión. Y eso es lo que
+
+---
+
+106
+106U CRANIA 22sucedió
+a lo largo del año 2013, cuando Bruselas, por un lado, y Moscú, por
+otro, se emplearon a fondo para terminar de desestabilizar completa-m
+ente al régimen ucraniano. Tampoco les faltó colaboración desde Kiev, todo
+hay que decirlo. Las piezas del detonador estaban compuestas por una
+serie de falacias de doble vínculo que Yanukovich no quiso o no supo r
+esolver, y que llevaron al final de su carrera presidencial y al comienzo de la guerra civil con activ
+a participación exterior. La
+raíz del problema estaba en la aspiración de Yanukovich a recupe-rar
+la política multivector de su antecesor, el presidente Kuchma. A la al-tura
+de 2010 eso era una temeridad, porque ya había fracasado anterior-m
+ente, y además el entorno internacional era mucho más inestable, tenso y
+, en definitiva, peligroso. Conforme avanzaba la presidencia de Yanuko-v
+ich se abrían paso dos posibilidades en política internacional: firmar c
+on Bruselas un Acuerdo de Asociación con la Unión Europea o hacerlo con R
+usia para la integración en la Unión Aduanera Euroasiática. En este caso, l
+a disyuntiva no admitía términos medios. Kiev firmaba por una opción o por
+la otra: no era posible obtener lo mejor de ambos mundos, ni compa-ginarlos.
+La razón era, hasta cierto punto, lógica: figurar en ambas podría s
+uponer, en un momento dado, tener que bajar tarifas aduaneras en virtud del
+acuerdo con la UE y, por otro lado, subirlas en función del mandato d
+e la Unión Aduanera Euroasiática. Cada bloque desarrollaría sus estrate-gias
+fiscales y competitivas específicas, incompatibles entre sí para un im-posible
+doble miembro. Por otro lado, como le explicó Vladimir Putin a O
+liver Stone, las economías rusa y ucraniana mantenían muchos intereses compar
+tidos desde hacía al menos cinco siglos, por lo que sectores de la e
+conomía rusa estaban abiertos a los productos ucranianos, y la adscrip-c
+ión de esa república a la UE podría suponer «la entrada de la Unión Eu-r
+opea en el mercado ruso, con todos sus productos, sin ninguna negocia-ción pr
+evia»5 . O
+tro problema serio era el deficiente estado de la economía ucraniana como
+consecuencia del impacto de la Gran Recesión de 2008, que obliga-b
+a a pedir ayuda financiera para compensar los costes de unirse, eventual-m
+ente, al Acuerdo de Asociación. Se barajó un paquete de 160.000 millo-nes
+de euros hasta 2017, a fin de adaptar la economía ucraniana y hacer f
+rente al periodo transitorio. Bruselas ofreció 610 millones en concepto de 5
+Lopanotok y Stone (2016): minuto 35:13.
+
+---
+
+M
+ORIR EN INVIERNO107 a
+yuda técnica y condicionada a un acuerdo con el Fondo Monetario In-t
+ernacional. Pero las negociaciones con el FMI ya habían ido mal. En 2010
+se había aprobado un préstamo de 15.400 millones dólares que im-p
+licaban, a cambio, subir la edad de jubilación, la reforma de la función p
+ública y un aumento en las tarifas de los servicios públicos, en especial los
+del gas y la electricidad, manteniendo congelados los sueldos. Sin em-b
+argo, esta exigencia no pudo ser cumplida, y a comienzos de 2011 el FMI bloqueó
+sus pagos6 .  Las sucesivas misiones del FMI en Ucrania a lo largo de
+2012 no lograron negociar un nuevo programa de ayudas, y así queda-r
+on las cosas hasta el momento de la deflagración, en noviembre de 2013.Y
+esta fue una de las razones centrales que llevó a Yanukovich a recha-zar
+la firma del Acuerdo de Asociación con la UE, muy poco antes de la c
+u m b r e  d e  l a  A s o c i a c i ó n  O r i e n t a l  e n  V i l n a  ( 2 8  y  2 9  d e  n o v i e m b r e  d e  2013),
+donde sí lo hicieron Georgia y Moldavia. La negativa de Kiev sen-tó
+muy mal en Bruselas, donde los dirigentes de la UE expresaron de for-m
+a ruidosa su descontento, achacando el plantón ucraniano a las presio-n
+es de Rusia. Pero visto con la perspectiva que da el tiempo, hubo un factor
+muy importante que explica el encrespamiento de Bruselas: por entonces
+estaba en todo su apogeo la crisis griega, que estaba suponiendo un
+desafío existencial para la Unión Europea. Las tensiones y choques con el
+gobierno de Atenas trasladaron a Bruselas un tono áspero que repercu-tió
+en una rebaja del tacto diplomático hacia un país tan complicado pero a
+la vez tan importante como era Ucrania y que además tenía a la super-p
+otencia rusa a sus espaldas. Ya se habían firmado rescates por valor de 240.000
+millones de euros para Grecia, y el primer ministro ucraniano no pudo
+por menos de reprochar: «La UE ya se ha gastado 400.000 millones de
+euros para salvar a varios países del impago y ahora se nos dice que 160.000
+millones es una cifra exorbitante para Ucrania, el país más grande d
+e Europa por superficie, y uno de los mayores por población»7 . E
+xistió otro factor que desempeñó un papel central en el desastre de n
+oviembre de 2013. Y este fue la presión que mantuvo Bruselas sobre Kiev a
+propósito del juicio y encarcelamiento de Yulia Timoshenko, hasta el punto
+de condicionar la firma del Acuerdo de Asociación a la liberación de la ex primera ministra. S
+egún se planteaba en aquellos días:6
+Duval (2014).7
+D’Anieri (2019): p. 202.
+
+---
+
+108
+108U CRANIA 22e
+l Acuerdo suponía un compromiso de Kiev con la UE, no solo en lo econó-m
+ico y comercial, sino también sobre el funcionamiento de las instituciones p
+olíticas y el desarrollo de la democracia [...] Bruselas está dispuesta a cerrar los
+ojos ante el limitado y parcial cumplimiento de las exigencias comunita-rias
+en lo que se refiere a la reforma del sistema electoral y judicial de Ucra-n
+ia. Pero el caso Timoshenko es una cuestión de principios, por ser conside-rado
+como un ejemplo flagrante de la «justicia selectiva» y de la politización del sistema judicial del país
+8 . A
+todo esto, sí parece que Yanukovich se esforzó por solucionar la situa-ción,
+intentado arreglar con la Rada los votos necesarios para conseguir un permiso
+especial para que Timoshenko se pudiera trasladar a una clínica alemana
+que atendiera sus problemas de salud. Sin embargo, en el último momento
+se encontró con la rebelión más o menos disimulada de los dipu
+tados del Partido de las Regiones, que pospusieron la votación para una
+semana más tarde, haciendo imposible que el permiso para Timo-shenko llegara a tiempo, antes de la firma del A
+cuerdo en Vilna. E
+n cualquier caso, la exigencia voceada por Bruselas resultaba un tan-to
+exagerada si se tiene en cuenta que el Acuerdo de Asociación suponía una
+medida de integración económica en forma de libre comercio y un acer
+camiento político, lo que no necesariamente comportaba la adhesión a
+la UE. Mientras tanto, antiguas repúblicas soviéticas como Letonia o Estonia
+habían accedido como miembros de pleno derecho de la Unión E
+uropea en 2004, manteniendo porcentajes elevados de su población (36%
+en el primer caso, 25% en el segundo) desposeídos de toda una serie de
+derechos civiles ya desde la misma proclamación de la independencia en
+1991, sin que se hubiera hecho nada o muy poco para remediar esa s
+ituación a su ingreso. Bruselas miró hacia otro lado cuando esas poblacio-n
+es excluidas —de origen ruso, pero también ucraniano, lituano, polaco, b
+ielorruso o judío— ingresaron en el club como ciudadanos de la UE sin plenos
+derechos, una situación altamente anormal, por no decir escanda-losa
+9 ,  que entraba de lleno en la categoría de lo que el politólogo magiar G
+áspar M. Tamás definía como «posfascismo» institucional10 . 8
+«El presidente de Ucrania pone en peligro el tratado de asociación con la UE. Yanukovich mantiene
+en prisión a Timoshenko, aunque su liberación es la gran condición de Bruselas», por P
+ilar Bonet, en E l País, 7 de no viembre de 2013 [consultable en red].9
+Veiga et al.  (2019): pp . 191-193.10
+Tamás (2001, 2013 y 2015).
+
+---
+
+M
+ORIR EN INVIERNO109 D
+e otra parte, Timoshenko era vista por muchos ucranianos como una o
+l i g a r c a  m á s  — y  l o  e r a — ,  p o r  l o  q u e  s u  e n c a r c e l a m i e n t o  n o  s i e m p r e  s e p
+ercibía como parte de una lucha entre la democracia y el autoritarismo, s
+ino como una manifestación más de la guerra entre clanes. En conjunto, la «
+condición Timoshenko» contribuía a histerizar una negociación muy deli-c
+ada sin aportar nada a su resolución, sino más bien al contrario. Permitía a Y
+anukovich echar la culpa a Bruselas de las barreras y la ralentización de un p
+roceso en el cual los problemas reales quedaban en la sombra y eran de otro t
+ipo: el interés específico de Alemania en sacar tajada del Acuerdo y manio-b
+rar a través de sus peones políticos en Ucrania, disimular las inseguridades q
+ue producía en la UE la crisis griega, debilitar la presidencia de Y anuko-v
+ich, asegurarse el abastecimiento regular de gas ruso a buen precio y, al m
+ismo tiempo, dejar fuera de juego a Rusia en Ucrania.Y
+, por supuesto, Rusia jugó su papel en el deslizamiento hacia la destruc-c
+ión de Ucrania. La insistencia de Moscú en la integración de Ucrania en la r
+ecién creada Unión Aduanera Euroasiática era presentada desde Occidente co
+mo una especie de chantaje cínico puesto que la extremada juventud de la i
+nstitución, fundada en 2010, junto con los escasos miembros que la compo-ní
+an, todos ellos antiguas repúblicas de la Unión Soviética fieles a Moscú (
+Bielorrusia y Kazajistán, aparte de la misma Rusia), hacían que la invitación a
+entrar en ella supusiera, de hecho, una forma de subordinación a la econo-m
+ía y la legislación rusas. Al fin y al cabo, eso era lo que Moscú buscaba desde 1
+991, desde que contó con Ucrania, incluso como Estado soberano, para que s
+e integrara en la CEI, la Comunidad de Estados Independientes. Pero a la a
+ltura de 2013, ese afán parecía ya baldío, tardío. ¿O no? E
+l rechazo del gobierno ucraniano a firmar el Acuerdo de Asociación con
+la UE, el 21 de noviembre, sonó como una afrentosa bofetada en una catedral,
+porque además se anunció que ello solo había sido posible por-que
+Kiev había cedido a las presiones de Moscú o, casi peor aún, a las o
+fertas de créditos rusos. El hecho fue que en diciembre Putin acudió al r
+escate: Rusia compraría 15.000 millones de dólares de deuda ucraniana, s
+alvando a esa economía de la suspensión de pagos. Casi inmediatamente, el
+24 de diciembre Kiev recibió un primer tramo de 3.000 millones; junto con
+ello, el precio del gas ruso quedaba rebajado en un 30%, lo que impli-caba un impor
+tante ahorro anual11 . 11
+Duval (2014).
+
+---
+
+110
+110U CRANIA 22P
+ero, para entonces, había prendido el detonador que convertiría a U
+crania en una bomba en cuestión de días. Ya el mismo 21 comenzaron a
+confluir contestatarios en la plaza de la Independencia, esto es, el Ma idan N
+ezalézhnosti, q ue pronto se conoció en todo el mundo como Mai-d
+an («plaza», palabra de origen persa) y como centro de las protestas de 20
+14, el E uromaidan.  La invitación que circuló por las redes sociales decía:N
+os encontramos a las 10:30 pm ante el monumento a la Independencia. V
+estimenta de abrigo; trae paraguas, té, café, buen rollo y amigos. T e agrade-cemos que r
+eenvíes este post.P
+ero las protestas empezaron a cobrar enjundia el domingo 24, cuan-do
+miles de personas acamparon allí. De repente volvió a prender en el c
+entro de Kiev el paisaje de las protestas callejeras vividas durante la Re vo-lución
+Naranja, y trece años antes, incluso, con ocasión de las manifesta-c
+iones de «Ucrania sin Kuchma». En apariencia, poco había cambiado: j
+óvenes, buen rollo incluso bajo la lluvia, alegría en la protesta. A veces se le
+llamaba, en tono de broma, la «Euromaidance»,por la insistencia en acompañar
+las protestas con música en directo. Los presentes contaban con
+defender allí su futuro, el de sus hijos, el de su país. Eso decían. Klich-kó
+apareció con una furgoneta de su partido y un megáfono, pero la gente l
+o echó fuera. Aquello era una manifestación cívica, no un caladero para políticos.
+E
+sta vez iba a ser diferente. Las protestas no terminarán en acuerdo e
+ntre las partes —aunque fuera a regañadientes— sino en guerra civil. P
+ara entonces, el porcentaje de ucranianos que apoyaban la opción euro-peísta
+estaba bastante igualada, expresión de la tragedia de las dos Ucra-nias
+enfrentadas: el 38% de la población prefería la unión aduanera con R
+usia, mientras que el 37,8% se decantaba por el Acuerdo de Asocia-ci
+ón con la UE12 . L
+o que se reveló como novedoso en la ya conocida estrategia de ocu-pación
+permanente de la plaza fue su militarización, debido a un protago-n
+ismo creciente de los sectores ultras. Pronto aparecieron las banderas azules
+del partido S voboda, con la mano haciendo la señal del tridente, en 12
+«Las dos Ucranias frente a Europa», por Pilar Bonet, en E l País, 29 de noviembre de 2014 [consultable en r
+ed].
+
+---
+
+M
+ORIR EN INVIERNO111 amarillo;
+y las rojas y negras de P ravy Sektor ( Sector de Derechas), funda-do
+prácticamente en las barricadas del Maidan, y que era un aglomerado d
+e diversos grupos radicales ultranacionalistas. A ellos se le sumó la Iglesia o
+rtodoxa ucraniana del Patriarcado de Kiev. No es que no participaran t
+ambién estudiantes progresistas, jóvenes europeístas, intelectuales y pe-r
+iodistas. Pero en esta ocasión, a diferencia de lo ocurrido durante la Re vo-lución
+Naranja, las estrategias pacíficas y lúdicas pensadas por Gene Sharp y
+ejercitadas por los voluntarios de Otpor, la presencia de madres con ni-ños,
+ancianos y padres de familia trabajadores, muy pronto dejaron paso a jó
+venes violentos, barricadas y parapetos de todo tipo, neumáticos quema-d
+os y hogueras, choques, incluso a tiros, con la policía, uniformes de ca-m
+uflaje y cascos militares, excombatientes, brazaletes, escudos, armas de f
+ortuna, más o menos improvisadas, estrategias paramilitares y estrategas y mandos en la sombra. A
+demás, derroches de fanatismo.T
+oda esa dinámica brotó bien pronto. No el 21 de noviembre, sino el domingo
+24, cuando la oposición llamó a la gran movilización y acudie-r
+on decenas de miles de manifestantes al Maidan. Ese mismo día, un gru-po
+no muy numeroso intentó romper el cordón policial en dirección a los cer
+canos edificios administrativos de la capital, ante lo cual los agentes lanzar
+on gases lacrimógenos y efectuaron arrestos. La cuidadosa tendencia de
+atraerse las fuerzas del orden público desplegada durante la R evolución N
+aranjas altó por los aires el primer día del Euromaidan. Fue un primer aintento,
+limitado, pero que marcó una estrategia, la cual siguió aplicándo-s
+e hasta el final; y fue, precisamente, la que dio la victoria a la opción más extr
+emista, aunque muy posiblemente, habría sido posible otra salida a la crisis.
+Con
+todo, los primeros días no parecía que los acontecimientos fue-r
+an a tomar una deriva tan trágica. Siguieron las aglomeraciones lúdicas, c
+on cantos y risas, con música, con brincos, con miles de banderas ucra-n
+ianas y algunas de la UE. Incluso Yanukovich salió en televisión asegu-rando
+que aplaudía a los que se manifestaban por la integración europea. E
+n realidad, todavía quedaba Vilna, y al final era posible que el gobierno ucraniano
+firmara el acuerdo con la Unión Europea, eso habían dado a e
+ntender. «¡Yanukovich firma, firma Yanukovich! ¡Es nuestro documento, es nuestr
+o documento!», gritaba la multitud joven.P
+ero el 29 de noviembre no hubo firma. Solo una imagen en el plas-m
+a, de Yanukovich hablando con Merkel y haciendo un gesto muy elo-
+
+---
+
+112
+112U CRANIA 22cuente,
+de pedir dinero, ayudas que no se le daban. «¡Vergüenza, vergüen-za!»,
+gritaban ahora los manifestantes. Esa noche, recorrieron Kiev; una par
+te de ellos regresaron a sus casas, decepcionados. Otros volvieron a M
+aidan y siguieron con la protesta. Pero a eso de las 4 de la madrugada se desplegar
+on los antidisturbios de la unidad Berkut (Águila Dorada), con sus
+uniformes de camuflaje urbano. Eran el equivalente ucraniano de los O
+MON rusos, algo así como la gendarmería. Esos hombres eran gente e
+norme y pronto empezaron a tundir a los manifestantes. Algunos con porras de madera, otr
+os, al parecer, llevaban barras de hierro. Los
+manifestantes, rabiosos y aturdidos, salieron del Maidan en direc-ción
+al corazón monumental de Kiev. Allí se guarecieron temporalmente en
+el patio del monasterio de San Miguel de las Cúpulas Doradas, tras las v
+erjas cerradas ante las narices de los antidisturbios, bajo la protección de l
+a Iglesia. En ese contexto se empezaron a organizar las sotnias, nombr e tomado
+de las centurias tradicionales cosacas, que fue como designaron a las «unidades de autodefensa» de los manifestantes.
+E
+ra evidente que la actuación de los Berkut había cambiado la actitud de
+los manifestantes. La policía ya no estaba con el pueblo, como en tiem-po
+de la R evolución Naranja. Pero la frustración de la multitud también t
+enía que ver con la desilusión ante lo que creían era la traición de Yanuko-v
+ich en Vilna. Y no faltaron las tempranas intromisiones externas: la pre-sidenta
+del Parlamento lituano, Loreta Graužinienė, y el parlamentario p
+olaco Marcin Święcicki se dirigieron a la multitud los días 26 y 27 de n
+oviembre. Poco después, varios embajadores de la UE se personaron en la
+plaza de San Miguel el día 30 de noviembre para solidarizarse con los manifestantes
+13 .  Hasta un total de cuarenta y siete cargos occidentales, i
+ncluidos varios estadistas, se personaron en el Eu romaidan para apoyar sin d
+isimulo a los contestarios. En ese aspecto, el «estilo» de las revoluciones de
+colores seguía vigente en Ucrania. Pero la rápida creación de las «uni-dades de defensa» patrióticas mar
+caba una clara diferencia. L
+as cosas se pusieron decididamente serias el 1.º de diciembre. La l
+lamada «Marcha de los Millones» por las calles de Kiev terminó ocu-p
+ando de nuevo Maidan. El ministro del Interior casi se excusó por la c
+ontundencia de los Berkut y dejó expedito el camino de regreso. ¿Cabía ci
+erta esperanza de reconciliación? La «Marcha de los Millones» había 13
+D’Anieri (2019): p. 223.
+
+---
+
+M
+ORIR EN INVIERNO113 a
+grupado a decenas de miles de personas de toda extracción social, niños y
+ancianos. Se peroraba públicamente sobre valores europeos, libertad y d
+ignidad. Y
+entonces, por la tarde, parte de la multitud empezó a desplazarse h
+acia Bankova, la calle que desembocaba en el complejo de edificios del g
+obierno y el Banco Nacional. Esa marcha estaba ya compuesta por jó-v
+enes y adolescentes, y en ella podían verse algunos con pasamontañas, p
+arkas militares e incluso ya brazaletes amarillos con la runa Wo lfsangel d
+el Partido Social-Nacional, fundado en 1991 por Andriy Parubiy y O
+leh Tiahnibok. Los piquetes de ultras, muy agresivos, armados con a
+doquines, cadenas, estacas o martillos, también controlaban a los posi-b
+les «provocadores» entre las filas de los manifestantes. Al final, un bull-d
+ozer intentó derribar a una barrera de antidisturbios y estos, tras lanzar g
+ranadas aturdidoras y gases, se lanzaron a la carga, ya cayendo la noche. E
+l resultado fue una nueva cosecha de heridos, algunos de considera-c
+ión, con aspecto de no ser precisamente los más comprometidos ni más j
+óvenes.Al
+día siguiente, grupos de manifestantes empezaron a «blindar» la plaza,
+con planchas metálicas, sacos terreros, caballetes, todo lo que se p
+odía reunir. Incluso se llamó a militares de la reserva voluntarios y hasta v
+eteranos de Afganistán que echaron una mano con la organización de las defensas.
+Ahí empezó a surgir el Euromaidan como campo de batalla for-tificado,
+en torno al cual manifestantes y policías iban a disputar duras b
+atallas. Otra iniciativa, asimismo característica de esta fase, consistió en oc
+upar edificios públicos, como el de la Administración Municipal de Kiev, d
+onde podían refugiarse o agruparse los manifestantes. Mientras, en la calle se organizaban cocinas de campaña y distribución de tentempi
+és. U
+na semana más tarde, la situación se había estabilizado, sin ataques ni
+contraataques. Fue entonces, el día 10 de diciembre, cuando llegó una delegación
+de la Unión Europea encabezada por Catherine Ashton, la Alta R
+epresentante para Asuntos Exteriores, para buscar una solución. Y tam-bién
+de los Estados Unidos. Esa noche volvieron a producirse incidentes en
+la plaza, hubo un intento de desalojo y el monasterio de San Miguel h
+izo sonar sus campanas al unísono por primera vez desde 1240, cuando los
+mongoles intentaron tomar Kiev. Al día siguiente, lady Ashton apare-ció
+en televisión apoyando a los manifestantes, mientras el inevitable sena-d
+or republicano John McCain, perejil de todas las salsas intervencionistas
+
+---
+
+114
+114U CRANIA 22estadounidenses
+desde los tiempos de las guerras de Afganistán y Kosovo, o
+las revoluciones de colores, se presentaba en las calles de Kiev para apo-yar
+la causa de los contestatarios o insurgentes, fueran quienes fueran mientras
+lo hicieran contra Moscú, de forma directa o indirecta. Con él se hicier
+on bien visibles entre la multitud el senador demócrata Chris Mur-p
+hy y, sobre todo, Victoria Nuland, responsable del Departamento de Estado para asuntos de E
+uropa y Eurasia. E
+l día 17, Yanukovich viajó a Moscú, donde negoció con Putin las a
+yudas y concesiones relativas a la rebaja en el precio del gas y los présta-mos destinados a evitar la suspensión de pagos del Estado ucraniano
+. P
+or entonces, la plaza de la Independencia se fortificó en profundi-dad,
+con barricadas y sacos de nieve presionada, caballos de Frisia de as-pecto
+medieval, perímetros de vigilancia atendidos por patrullas, las sot- nias
+p erfectamente uniformadas e identificadas, veteranos del Ejército en niasl
+a reserva adiestrando a los voluntarios en maniobras de ataque y resisten-cia
+por columnas. Las tiendas de campaña se habilitaron como puestos de m
+ando y logística, y los manifestantes pasaron a saludarse con la fórmula «
+¡Gloria a los Héroes!» propia de los combatientes UNA-UNSO de la re-sistencia
+ultranacionalista durante la Segunda Guerra Mundial. La milita-rización
+del Maidan dio pie a que los grupos paramilitares de ultraderecha adquirieran
+más y más protagonismo y visibilidad, a pesar de que en las e
+ntrevistas a periodistas internacionales nunca manifestaba esa militancia, ni aun ostentado insignias pr
+opias de algún partido en concreto. La
+llegada de las fiestas navideñas ralentizó la disputa, Euromaidan t
+ransmitió a todo el mundo imágenes espectaculares de miles de manifes-tantes
+cantando enfervorecidos el himno nacional. Pero a mediados de e
+nero de 2014 todo se reactivó dramáticamente. De repente se manifestó de
+forma virulenta que ya estaba en marcha una lucha fratricida que se le estaba
+escapando de las manos a todos y pasaba a estar en las de la ultra-d
+erecha. En esa tesitura, el 16 de enero la mayoría oficialista de la Rada v
+o t ó  a  m a n o  a l z a d a  u n a  s e r i e  d e  l e y e s  c o n t r a  d e t e r m i n a d a s  t á c t i c a s  d e  p
+rotesta utilizadas en Maidan, así como restringiendo las actividades de ONG
+extranjeras que parecían estar llevando a cabo actividades interven-c
+ionistas en Ucrania. Las que pronto fueron denominadas «leyes dictato-riales»
+enardecieron aún más, si cabe, a las masas atrincheradas en la plaza. H
+icieron chirigota de las disposiciones sobre equipar a los civiles con equi-p
+o de combate y protección cambiando los cascos por cacerolas o papele-
+
+---
+
+M
+ORIR EN INVIERNO115 r
+as o se cubrieron la cara con máscaras de carnaval riéndose de las disposi-ciones sobr
+e ocultación del rostro. P
+ero era evidente que la «paramilitarización» de la plaza apenas ocul-taba
+ya la campaña de descrédito de los políticos en general que estaba logrando
+la ultraderecha. Después de dos meses de E uromaidan no había r
+esultados, clamaba una señora; «necesitamos un plan», añadía14 .  Y los políticos,
+ni siquiera los de la oposición, parecían tenerlo. En consecuen-cia,
+desde la plaza llegaban nuevas exigencias: amnistía y libertad para los detenidos,
+anulación de las «leyes dictatoriales» y regreso a la Constitución de
+2004, anulando las enmiendas votadas por los azules. Además, empe-zaba a surgir de manera cada v
+ez más clara la dimisión de Yanukovich.H
+ubo un intento de reacción desde la presidencia cuando, durante la siguiente
+semana, Yanukovich se reunió con Arseniy Yatseniuk, el líder ocasional
+de B atkivshchyna— dado que Yulia Timoshenko seguía en pri-as
+ión—, y le ofreció la presidencia del gobierno con Vitaliy Klichkó como viceprimer
+ministro. En ese paquete de propuestas iba incluida la reconsi-deración
+de las «leyes dictatoriales». En definitiva, Yanukovich estaba vol-v
+iendo a emprender el camino que había recorrido Yushchenko en su día: compar
+tir el poder con la oposición en una suerte de «gobierno de con-centración
+nacional». Pero las masas radicalizadas en Maidan eran ya una amenaza
+hasta para Yatseniuk, que alegaba no tener mandato sobre los manifestantes
+para negociar. Mientras tanto, el radicalismo crecía en la c
+alle. El 21 de enero murieron cuatro manifestantes en un tiroteo en Mai-d
+an. Dado que estaban apareciendo en escena las armas de fuego, el 28 de e
+nero, Yanukovich intentó demostrar su buena voluntad para solucionar la
+situación por vía política haciendo dimitir al primer ministro Azarov e impulsando
+que la Rada anulara parte de las «leyes dictatoriales». El acuer-do
+político gobierno-oposición tenía visos de irse abriendo camino, pero la
+ultraderecha que manejaba las calles no iba a dejar que la presa se le es-capara
+de las manos. El 2 tuvo lugar una manifestación de protesta por los m
+uertos a la que acudieron unas 50.000 personas, lejos de los varios cientos de
+miles de diciembre. Sin embargo, los que acudieron eran de otra pasta. Y
+atseniuk estaba crecientemente convencido de hacerse con la cartera de
+primer ministro, a partir de un plan a corto y otro a largo plazo. Prime-r
+o se trataría de volver a utilizar la Constitución de 2004, hasta adoptar 14
+Afineevsky (2015): minuto 42:00.
+
+---
+
+116
+116U CRANIA 22u
+na nueva carta que se empezaría a redactar en septiembre de 2013. Mien-tras
+tanto, ya estaba en marcha un acuerdo para excarcelar a más de dos-cientos
+detenidos por actos violentos, que fraguó a mediados de febrero. A cambio,
+los manifestantes deberían evacuar la municipalidad y otros edi-ficios
+públicos que ocupaban, además de desmantelar parte del dispositivo de barricadas del M
+aidan.N
+o por casualidad, el 18 de febrero los radicales la volvieron a liar. U
+nos 20.000 manifestantes intentaron tomar la Rada para reinstaurar por la
+fuerza la Constitución de 2004. Las fuerzas de orden público cerraron filas
+con todo el arsenal de que disponían; algunos manifestantes, por su par
+te, portaban armas de fuego. Hacia la noche, los asaltantes habían sido r
+echazados de nuevo hacia Maidan, pero los enfrentamientos habían deja-do
+dieciocho muertos, parte de ellos agentes del orden público. Por si fuera
+poco, en otras localidades de Ucrania, muy particularmente en el oeste
+—aunque también lograron organizarlo en el este y el sur en porcen-taje
+no desdeñable15 — , se reprodujeron los disturbios a partir de un pa-t
+rón similar, con el resultado de ocupación de edificios públicos, alcaldías, administraciones
+regionales e incluso comisarías de policía, de las cuales r
+obaron armas. Dicho de otra forma, el marco político y administrativo estaba
+quedando desbordado por una estrategia de toma del poder, a va-rios niv
+eles, con el uso de la fuerza.A
+nte la gravedad de la situación, en medio de la deriva hacia una guerra c
+ivil que parecía imparable —de hecho, no se había recurrido al Ejército ante l
+a incapacidad de prever lo que podría pasar—, a lo largo del día siguiente, los m
+inistros de Asuntos Exteriores de Francia, Alemania y Polonia negociaron d
+urante horas con Yanukovich para buscar una vía de compromiso.Y
+el 20 de febrero, atajando esos intentos de acuerdo, fue la batalla final.
+E
+quipados con las armas que habían llegado desde sus bastiones exte-rior
+es, los manifestantes radicales lanzaron una ofensiva en dirección su-doeste
+logrando romper un cordón policial. Las fuerzas de orden público r
+espondieron con fuego real, tanto in situ como desde posiciones más a
+trasadas o de flanco. En medio de aquel fuego cruzado, se detectaron dispar
+os de francotiradores desde la terraza del vecino Hotel Ukraina, que daba sobr
+e la calle Instytutska y Maidan.15
+Ishchenko (2016).
+
+---
+
+M
+ORIR EN INVIERNO117 Al
+terminar la jornada se contaron setenta muertos y quinientos heri-d
+os entre los manifestantes, aunque también los había entre las fuerzas del o
+rden público. E
+l efecto conseguido fue demoledor: para la gran masa de los mani-festantes
+acampados en Maidan y para todos aquellos que los apoyaban en U
+crania, ya no había nada que negociar con el régimen, solo cabía la di-m
+isión de Yanukovich. Por otra parte, daba la sensación de que incluso su entorno
+empezaba a abandonarle, pues había desertado desde el alcalde de Kiev
+hasta nombres destacados del Partido de las Regiones. De hecho, la multitud había asaltado ya la sede del par
+tido de los azules.Con
+todo, en la noche del 20 al 21 de febrero se llevó a cabo un pos-t
+rer intento. Yanukovich se reunió con los líderes de los tres partidos de o
+posición y formalizó un acuerdo en presencia de los ministros de Asuntos E
+xteriores de Alemania, Francia y Polonia, que actuaron como garantes. T
+ambién estaba presente, por parte rusa, Vladimir Lukin, Comisionado d
+e Derechos Humanos, antiguo embajador ruso en los Estados Unidos y c
+ofundador, en su día, del partido Yabloko, liberal-democrático. Aquella noche
+se acordó un gobierno de unidad nacional, la recuperación inme-diata
+de la Constitución de 2004 y la convocatoria inmediata de nuevas e
+lecciones, la última claudicación ante las peticiones de la calle. Políticos u
+cranianos y garantes internacionales firmaron solemnemente el pacto y estr
+echaron sus manos.E
+n una entrevista urgente con la coordinadora de los manifestantes de E
+uromaidan, el ministro polaco, Radoslaw Sikorski, les instó a aceptar lo p
+actado. Porque, caso contrario, les advirtió terminante: «T endréis la ley mar
+cial, el Ejército. Moriréis todos»16 .  El grupo de los representantes votó el pacto
+. Con mala cara, pero por mayoría.S
+in embargo, cuando al día siguiente el boxeador y líder de UDAR, V
+italiy Klichkó, se presentó en Maidan para explicar a los manifestantes lo
+firmado, echando vapor por la boca, cubierto con una gruesa parca y tocado
+con un gorro de orejeras, fue reprobado por la multitud. Por el contrario,
+tomó la palabra un joven desconocido, Volodímir Parasiuk, por entonces
+sotnik o comandante de uno de los grupos de autodefensa delsotnikM
+aidan. Vestido con su parka de camuflaje y entre la ruidosa aprobación 16
+Igor Lopatonok y Oliver Stone (2016): minuto 1:09:33; se puede ver la escena filmada por un cámara de televisión.
+
+
+---
+
+118
+118U CRANIA 22de
+la multitud, le espetó al político que, si Yanukovich no dimitía antes de l
+as 10 de la mañana del día siguiente, los manifestantes tomarían por la f
+uerza los edificios de gobierno. Por su parte, Dmitró Yarosh, el líder de P
+ravy Sektor, a rengó a sus seguidores reciamente uniformados de negro y ca
+muflaje, algunos con pasamontañas: «Los acuerdos alcanzados no cum-p
+len con nuestros requerimientos; P ravy Sektorno bajará sus armas. rP ravy Se
+ktor no  levantará el bloqueo de ningún edificio gubernamental, antes de que
+cumplan con nuestra principal demanda: la renuncia de Yanukovich»17 . E
+l ultimátum fue como un amago de puñetazo en el vacío de la de-s
+integración del régimen. Cuando la Rada se reunió por la tarde del día 21, solo
+comparecieron los diputados de la oposición. El todopoderoso Parti-do
+de las Regiones parecía haberse disuelto como un azucarillo. Sus líderes y
+responsables andaban a la fuga o abominaban públicamente de un régi-men
+que ya se consideraba volatilizado. El mismo Yanukovich estaba desa-par
+ecido desde la misma noche del pacto. Al parecer, había escapado en u
+n moderno y elegante helicóptero Augusta Westland AW139 desde su l
+ujosa residencia de Mezhigorie, situada cerca de Kiev. T enía razones para h
+uir. Paul D’Anieri le reprocha que ya hubiera hecho preparativos p
+ara abandonar Kiev antes del 19 de febrero, el día más violento de la r
+evuelta de Euromaidan, y que hubiera firmado el pacto con la oposición. P
+ero resulta bastante lógico que hubiera actuado como lo hizo. La tarde del
+21 de febrero quedó claro para todos18  que la calle no habría respetado el
+pacto, que él ya no podía hacer nada; iban a por todas después de las escenas
+de violencia del día anterior. Por otra parte, Yanukovich sabía que tenía
+muy escasas posibilidades de cara a las presidenciales de 2015, ya desde
+el momento que en que se había negado a firmar el Acuerdo con la U
+E. También lo habría tenido mal si hubiera accedido, porque sus pro-pios
+partidarios y el 38% contrario a esa salida lo hubiera defenestrado, i
+gual que lo hizo el 37,8%, furioso porque no firmaba. En realidad, Ya-nuko
+vich fue víctima del cascanueces político que eran las dos Ucranias e
+jerciendo su presión combinada contra cualquier líder nacional que in-tentara
+gobernarlas. Era una fatalidad. Y por ello hizo lo mismo que en la pugna
+por la presidencia durante la R evolución Naranja: cedió y se fue para
+evitar un baño de sangre. En 2004 le salió bien y regresó al poder en 17
+I bid., minuto 1:09:06. 18
+I bid., minuto 1:09:13.
+
+---
+
+M
+ORIR EN INVIERNO119 p
+oco tiempo. Diez años más tarde, apenas pudo aplazar por unos días el comienz
+o de la guerra civil. O
+tra opción habría sido la de atrincherarse en el Donbas entre sus par
+tidarios más leales. Pero eso habría contribuido a polarizar el país y, de n
+uevo, a fomentar la guerra civil. Salió hacia Járkov y, desde allí, a la base d
+e Sebastopol, desde donde voló a Rusia, al parecer, el 24 de febrero. T oda p
+recaución era poca. En Kiev, la caravana de automóviles oficiales, entre la
+cual estaba el presidencial, vacío, salió de la residencia como cebo. Y los v
+ehículos fueron ametrallados por un comando desconocido, supuesta-mente de mer
+cenarios19 . H
+asta el último momento, Yanukovich había tenido bajo su mando al S
+BU, el Servicio de Seguridad, así como todas las fuentes de información o
+ficiales y no oficiales posibles; las que le llegaban de su gente en el este y l
+as del Partido de las Regiones, los informes de la policía que operaba a pie d
+## e calle y su propio olfato político. Era muy evidente lo que estaba suce-diendo
+la ultraderecha controlaba la estrategia violenta en la calle. Y no solo
+en Kiev, sino en numerosas localidades de la Ucrania occidental. T
+ambién allí la oposición había ocupado las calles e incluso habían asalta-do
+comisarías y centros administrativos. Precisamente, de esas regiones habían
+llegado las armas para los manifestantes del Euromaidan en Kiev. E
+n Lviv, la capital del ultranacionalismo ucraniano, se había podido evi-tar
+, en el último momento, el asalto al Consulado ruso.E
+n un análisis que combina la tersa pulcritud de las bases de datos masiv
+as en lo que vendría a ser un estudio OSINT20  convertido en artícu-lo
+académico21 ,  Volodymyr Ishchenko mide con la precisión que dan los datos
+sistemáticos el papel decisivo que tuvo la ultraderecha ucraniana durante
+la denominada revolución del Eu romaidan.  La clave no radicaba en
+el limitado número de militantes de estas opciones presentes en las c
+alles. Ni tampoco en el puñado de votos obtenidos en las elecciones par-lamentarias
+con posterioridad, argumento alegado por entonces y mante-n
+ido con fines exculpatorios ocho años más tarde. El peso real de esos par
+tidos en los acontecimientos no se medía en esos términos, porque su estrategia
+pasaba por influenciar, infiltrar y pretender convertirse en la 19
+Lopatonok / Stone (2016): minutos 1:42:40 y ss.20
+Open Source Intelligence, análisis de inteligencia en base a fuentes abiertas.21
+Ishchenko (2016).
+
+---
+
+120
+120U CRANIA 22«
+vanguardia consciente». Un planteamiento gradualista para cuando llega-ra el momento de tomar el poder
+. E
+n tal sentido, la ultraderecha ucraniana influyó de forma decisiva en la
+estrategia y el timing d e la protesta entimingE uromaidan. Svoboda, en una primera
+fase, radicalizando y militarizando la revuelta, y P ravy Sektor en una
+segunda, marcando los tiempos y oportunidades para forzar un de-senlace
+violento que rompiera el juego político vigente, juntos impidieron una
+salida pactada y gradual de la crisis que habría podido evitar, o al m
+enos diferir, la marcha hacia la guerra civil.  En la imposición de esa di-námica
+sin salida, o sin vuelta atrás, obtuvieron tres beneficios: primero, g
+anar presencia directa en determinadas posiciones institucionales, una v
+ez tomado el poder por la oposición; segundo, adquirir un protagonismo d
+ecisivo en el dispositivo paramilitar y de defensa del Estado, ya desenca-denada
+la guerra, y tercero, y más inconfesable, asegurarse el apoyo implí-ci
+to y vergonzante de las democracias occidentales, tanto de la Unión E
+uropea como de los Estados Unidos y miembros de la OTAN.
+
+---
+
+C
+APÍTULO 7M
+ATAR EN PRIMAVERAE
+STALLA LA GUERRA DEL DONBAS, 2014La
+historia del mundo es la suma de aquello que hubiera sido evitable.
+B
+ertrand RussellT
+ras el derrumbamiento del régimen, la oposición tomó el control de la R
+ada. El 22 de febrero, los diputados presentes eligieron a Oleksandr T ur-chino
+v, del partido B atkivshchyna( Patria), como presidente provisional ah
+asta que se celebraran nuevas elecciones, el 25 de mayo. Se discutió m
+ucho sobre la legalidad de ese acto. Se había destituido a Yanukovich —que,
+por cierto, nunca renunció a la presidencia— sin cumplir con el p
+roceso reglamentario, que suponía un elaborado protocolo, el cual in-c
+luía, sobre todo, la necesidad de que votaran tres cuartas partes (338) del total
+de escaños de la Rada (450). Pero solo 328 votaron a favor. El T ribu-nal Constitucional quedó marginado
+.La
+toma del poder, la constitución de los nuevos órganos de gobierno por
+parte de la oposición a hombros de los alzados se desarrolló de forma p
+recipitada, confusa y en ocasiones depredadora, lo que, como es lógico, desató
+la alarma en las regiones rusófonas del sudeste y sur de Ucrania donde
+se había votado por Yanukovich y el Partido de las Regiones, la «
+Ucrania azul». Y a el día 23 de febrero, el nuevo gobierno se apresuró a v
+otar la derogación de la Ley de la Lengua, aprobada en 2012, que otor-g
+aba al ruso estatus de segunda lengua oficial en las regiones rusófonas del país.
+Esta ley había sido una de las principales bazas de Yanukovich en la campaña
+electoral que le había llevado a la presidencia, y posteriormente
+
+---
+
+122
+122U CRANIA 22fue
+muy atacada por los partidos nacionalistas, ultras y populistas. No era r
+aro ver al neonazi Oleh Tiahnibok —lógicamente— en esas protestas masiv
+as contra la ley. Pero también a Arseniy Yatseniuk, quien devendría primer
+ministro del nuevo gobierno provisional surgido del Euromaidan y
+que fue quien impulsó la rescisión de la ley. Y aunque poco después el p
+residente interino Oleksandr T urchinov vetó esa enmienda, el 3 de mar-z
+o, el mensaje que llegó a las regiones rusófonas el 25 de febrero fue dema-siado per
+turbador. T
+ambién lo fue la insistencia en calificar al Euromaidan de «revolu-ción»,
+siguiendo la estela de las numerosas y supuestas «revoluciones» que se
+habían sucedido desde el final de la Guerra Fría. La última revolución netamente
+de izquierdas fue la de los Claveles, en el Portugal de 1974. El desplome
+de los regímenes comunistas en Europa del Este impulsó la ra-cha
+de las explosiones sociales que iniciaban la transición hacia el liberalis-m
+o: la «Revolución de T erciopelo» checoslovaca, por ejemplo, o la «Revo-l
+ución rumana» de 1989. Después se sucedieron las «revoluciones de color
+es», como la R evolución Naranjay  más tarde las revoluciones de la aP
+rimavera Árabe, entre ellas la fallida «Revolución Verde» iraní de 2009. Ahora
+le tocaba turno a Ucrania con la «Revolución del Euromaidan», que e
+n teoría y como tal, podía derivar en cambios estructurales en profundi-dad
+para el conjunto de Ucrania. T eniendo en cuenta el protagonismo t
+áctico y estratégico que había tenido la ultraderecha en dicha revuelta, cabría
+pensar que las regiones rusófonas podrían verse enfrentadas a una r
+evolución nacional que podría terminar en cualquier resultado muy des-agradable.
+¿Limpiezas étnicas como las que habían tenido lugar durante las
+guerras de secesión yugoslavas? ¿Marginación legal de poblaciones como
+las que se aplicaban en los Países Bálticos con la aquiescencia de la U
+nión Europea? E
+n aquellos días de derrumbamiento y zozobra en las regiones rusó-f
+onas de Ucrania era fácil tener pesadillas con estas cuestiones. Y no podía por
+menos de inquietar la rapidez con la que Washington y Bruselas ha-b
+ían reconocido a los nuevos poderes en Kiev , sin considerar ni por un momento
+negociar los acuerdos firmados el 21 de febrero —¿por qué no o
+frecer a Yanukovich garantías de seguridad personal para sacarlos adelan-t
+e, refrendados por unas elecciones?— que hubieran aportado tranquili-d
+ad a todo el país. Por el contrario, las altisonantes declaraciones de Mar-t
+in Schulz, presidente del Parlamento Europeo, o Štefan Füle, comisario
+
+---
+
+M
+ATAR EN PRIMAVERAA 123 eur
+opeo para la Ampliación y Política Europea de Vecindad, o incluso de la
+misma Catherine Ashton, alta representante de la UE para Asuntos E
+xteriores y de Política de Seguridad, exudaban eurotriunfalismo. No pa-r
+ecían querer percatarse de que una buena porción de Ucrania tenía mie-d
+o de lo que podía pasar a continuación, que ni mucho menos todo el país
+había estado implicado a favor del Euromaidan y que toda esa alegre v
+erborrea podía estar abriendo las puertas del infierno de la guerra civil en p
+lena Europa, como de hecho estaba sucediendo ya. De forma similar a como
+ya había sucedido en las cinco guerras de la desintegración de Yugos-lavia. P
+or lo visto, ya lo habían olvidado.A
+lguien, quizá los servicios de inteligencia rusos, o facciones desa-fe
+ctas del SBU ucraniano, pincharon las comunicaciones de diplomáti-c
+os destinados a Kiev; algunas de ellas fueron filtradas a la prensa inter-n
+acional. Y no resultaban nada tranquilizadoras. El 5 de marzo salió a la lu
+z una conversación telefónica mantenida el 25 de febrero entre el mi-n
+istro de Exteriores estonio, Urmas Paet, y la jefa de la diplomacia europea, C
+atherine Ashton. En ella, el báltico le expresaba su preocupación ante c
+iertas informaciones según las cuales los francotiradores que el día 20 h
+abían disparado indistintamente contra los manifestantes y la policía f
+ormaban parte de un dispositivo de provocación. «Se hace cada vez más e
+vidente que detrás de los francotiradores no estaba Yanukovich, sino a
+lguien de la nueva coalición», dijo Paet a Ashton. El ministro añadía q
+ue resultaba preocupante que «la nueva coalición no quiera investigar» e
+se asunto1 .  Y lo cierto es que, a pesar de que Ashton se muestra preocu-p
+ada y se formó una comisión de investigación, nunca se hicieron públi-co
+s los resultados2 . A
+demás, es que en el fondo subyacía el fenómeno de los francotirado-r
+es «providenciales», característicos de las «revoluciones bancas», arrancan-do
+de 1989, con los misteriosos francotiradores de la Securitate durante la r
+evolución rumana y continuando en 1991 con el equipo de francotirado-r
+es de Audrius Butkévicius durante las manifestaciones por la indepen-1
+Existen numerosas referencias posibles, pero véase por ejemplo: «Filtrada una conversación de Ashton
+en la que se siembran dudas de los francotiradores de Kiev», en La Vanguardia, 5  de mar
+zo de 2014 [consultable en red].2
+Stone (2019): minutos 20 y ss. para las investigaciones del profesor Ivan Katchanovski (
+School of Political Studies, Universidad de Ottawa, Canadá) sobre la autoría de las milicias de autodefensa ultranacionalistas en los dispar
+os de los francotiradores desde el Hotel Ukrania.
+
+---
+
+124
+124U CRANIA 22d
+encia de Lituania. Después, se repitieron sin apenas variaciones hasta las p
+rotestas de la Primavera Árabe: en Siria, en el verano de 2011, también espoleadas
+de vez en cuando por francotiradores que disparaban a bulto contra la multitud; o, por ejemplo, en S
+aná, Yemen.P
+ero en Ucrania no fue esa la única grabación comprometedora. Un mes
+antes, cuando el Euromaidan se acercaba a su desenlace, había salido a
+la luz una conversación mantenida por teléfono entre la secretaria de Estado
+adjunta y responsable de Estados Unidos para Europa, Victoria N
+uland, y el embajador de Washington en Kiev, Geoffrey Pyatt. Cuando ya
+había visos de que la oposición pudiera llegar al gobierno, la responsa-ble
+estadounidense descartaba la posibilidad de que Vladimir Klichkó, el candidato
+de los alemanes, fuera una opción a considerar. «Sería genial, c
+reo, ayudar a arreglar esta cuestión y hacer que la ONU ayude a arreglar-l
+a, y, ya sabe, que se joda la UE», concluía Nuland3 .  Por supuesto, las ve-nenosas
+desavenencias y hasta navajeos entre los aliados occidentales tam-poco
+contribuían a confiar en sus consignas idealistas. Cabe recordar que esas
+declaraciones se sucedían apenas cinco meses después de saberse que la
+NSA estadounidense había pinchado los teléfonos de la canciller alema-n
+a Angela Merkel, según se supo gracias a los datos suministrados por el deser
+tor Edward Snowden4 . Es
+importante tener en cuenta este estado de ánimo, porque si bien es cier
+to que la respuesta inmediata de Rusia al Euromaidan fue la anexión d
+e Crimea, ello se produce en un contexto de deslizamiento acelerado hacia
+la guerra civil en la misma Ucrania. Asunto este que se pone en se-g
+undo plano, o casi ni se menciona, en la gran mayoría de los análisis hechos
+desde Occidente, donde lo que interesa es poner de relieve que se p
+roduce una intervención rusa, y no que la intervención occidental ha hecho estallar un conflicto civil en el país.
+L
+as provocaciones instrumentalizadas por la ultraderecha en Kiev, p
+ero también los «pequeños Euromaidanes» que se suceden en diversas r
+egiones del centro y oeste de Ucrania, ejecutados con una planificación m
+ilitar, y que suponen un verdadero levantamiento armado a gran escala, dejan
+anonadado al régimen. Regresemos a la huida de Yanukovich en 3
+«El “fuck the EU” desata una nueva crisis entre Estados Unidos y Europa por el espionaje», en
+La Vanguardia, 7 de febr ero de 2014 [consultable en red].4
+«Estados Unidos espió el teléfono de Merkel desde 1999 hasta este julio», en L a Vanguardia, 24 de octubr
+e de 2013 [consultable en red].
+
+---
+
+M
+ATAR EN PRIMAVERAA 125 helicópter
+o, la noche del 20 de febrero. Despega de Kiev y se dirige a J
+árkov. Allí se va a celebrar un imponente congreso del Partido de las Re-giones,
+al que acuden unos tres mil delegados de la propia Járkov y de D
+onetsk, Lugansk, Crimea y Sebastopol. También está una representa-c
+ión rusa entre la que se encuentra el cónsul de esa potencia en la ciudad, l
+os cuatro gobernadores de regiones rusas colindantes con Ucrania y el jefe del
+Comité de la Duma para Asuntos Exteriores. En este congreso, convo-cado
+con anticipación, semanas atrás, se intenta decidir qué estrategia adoptar
+ante los imprevistos acontecimientos de Kiev. Pero la convulsión es
+tal que no se logra consensuar una respuesta más allá de acordar que, h
+asta la restauración del orden constitucional, todo el poder fuese desem-peñado
+por los órganos del gobierno locales5 .  Esta es una medida de resis-tencia
+que implica no aceptar la destitución de Yanukovich como presi-d
+ente, pero que evita proclamar la federalización de Ucrania estableciendo una
+doble capitalidad, en Kiev y en Járkov, como defendía el gobernador de
+ese óblast, Mijaíl Dobkin. De hecho, se impone un compromiso con la u
+nidad de Ucrania, al cual ayudan las presiones de los oligarcas más pode-r
+osos del Donbas, esto es, Rinat Ajmetov y Oleksandr Efremov, que orde-n
+an a su gente no acudir al congreso6 .  Por su parte, Yanukovich tampoco v
+a: a todas luces, intenta desentenderse de cualquier acción que sea malin-terpr
+etada: aún cree que puede ser invitado a regresar a Kiev para cumplir el
+pacto del 21 de febrero; reitera que no ha dimitido de la presidencia y que
+en modo alguno quiere responsabilizarse de ninguna acción que pue-da
+desembocar en una guerra civil. Entonces sale de Járkov y vuela a Se-bastopol, última parada antes de r
+efugiarse en RusiaS
+in embargo, el alud es ya imparable. En las regiones del sureste se p
+roducen manifestaciones en contra del gobierno de Kiev; serán los suce-sor
+es del Antimaidan, es decir, un contramovimiento que ya desde no-v
+iembre de 2013 organizó concentraciones que denunciaban las protestas en
+la céntrica plaza de Kiev. Con el tiempo, se fueron constituyendo pla-t
+aformas en Ucrania sudoriental con nombres como Frente Ucraniano, O
+plot Donbassa, Oplot Járkov, Armiya Yuga-Vostoka u Odesskaya D
+ruzhina. T odo este oleaje generó intentos de emular la ofensiva de las autodefensas
+y paramilitares en Kiev y el oeste de Ucrania, intentando 5
+Ruiz Ramas (2016): pp. 101-104.6
+I bid., p . 102.
+
+---
+
+126
+126U CRANIA 22tomar
+edificios públicos e instalaciones en el sudeste, ya a comienzos de m
+arzo. Pero no tuvo el suficiente empuje, y esas primeras ocupaciones fuer
+on rechazadas o recuperadas por las fuerzas de orden público.E
+n ese contexto de desconcertada reacción en el sud este, tuvieron lugar
+los acontecimientos de Crimea. Las primeras manifestaciones de po-b
+lación rusa y de ucranianos rusófonos en la península se enmarcaban en l
+a indignada respuesta al triunfo del Euromaidan en el sudeste ucraniano y
+, muy en especial, en el rechazo de la abolición de la ley sobre la cooficia-lidad
+del ruso, el 25 de febrero. Pero, a diferencia de lo que sucedía en J
+árkov y en el Donbas, donde no existía consenso entre los líderes sobre q
+ué hacer a continuación —pedir la federalización, reclamar el regreso de Y
+anukovich, esperar y ver—, todo fue muy rápido en Crimea, como un ballet r
+uso bien ensayado. D
+urante el Euromaidan todo el mundo miraba a Kiev, pero de Cri-m
+ea, con su amplia mayoría de población directamente rusa o ucranio-r
+usa, llegaban advertencias claras. El 22 de enero, las autoridades locales y
+a emitieron un comunicado en el cual se leía: «Basado en la autoridad d
+e los habitantes de Crimea que nos eligieron, declaramos que no dare-m
+os Crimea a los extremistas y neonazis que buscan tomar el poder en U
+crania a costa de la sangre del país y sus ciudadanos»7 .  El 4 de febrero, e
+l Presidium del Parlamento de la República Autónoma de Crimea apro-b
+ó una resolución por la cual solicitaba al presidente y Parlamento de R
+usia que garantizaran la inviolabilidad del estatuto de autonomía de la p
+enínsula. Y ya el 20 de ese mismo mes, señalado por la violencia desa-t
+ada en Kiev, el portavoz del Parlamento de Crimea, Vladimir Konstan-t
+inov, de visita en Moscú, comentó la posibilidad de que se produjera la s
+ecesión de Crimea.E
+l 25 de febrero, el mismo día en que la nueva Duma en Kiev anula-ba
+la ley de cooficialidad del idioma ruso, unidades de la policía de élite, l
+os Berkut, también disueltos oficialmente por el Parlamento ucraniano, tomar
+on puntos estratégicos de cruce en el istmo de Perekop, que une la península
+con el continente. Al mismo tiempo que se extendía y se elevaba l
+a protesta de los prorrusos crimeos, grupos armados locales de autodefen-sa
+de ese mismo origen cercaban edificios administrativos dependientes del
+gobierno de Kiev. En la madrugada del 27 de febrero, unos sesenta 7
+Lopatonok / Stone (2016): minuto 1:13:32.
+
+---
+
+M
+ATAR EN PRIMAVERAA 127 hombr
+es fuertemente armados tomaron los edificios del Parlamento y del consejo
+de ministros de la República Autónoma de Crimea, en Simferó-p
+ol, e izaron banderas rusas sobre ellos. A continuación se reunieron los d
+iputados y dieron un golpe de Estado al votar la sustitución del primer ministr
+o, Anatoly Mogilev, por el claramente prorruso Sergei Go blin Ak-s
+iyonov, líder del Partido de la Unidad. Cabe destacar que Mogilev era un h
+ombre de Yanukovich, y aunque prorruso, no era partidario, como el expr
+esidente, de la secesión de Crimea. En esa misma reunión, a puerta cerrada,
+los parlamentarios votaron la celebración de un referéndum para el 25 de may
+o, a fin ampliar la autonomía de Crimea. Ese
+mismo día, las autoridades de Kiev comenzaron a detectar que t
+ropas y navíos rusos de refuerzo llegaban a la base de Sebastopol sin co-municarlo
+por adelantado, en aplicación de los acuerdos de gestión acor-dados
+por los gobiernos ruso y ucraniano. Es más, hombres armados sin identificar
+ocuparon los estratégicos aeropuertos de Sebastopol y Simferó-pol,
+la capital de la República Autónoma de Crimea. Pronto fueron cono-cidos
+como los «hombrecillos verdes» o los «hombres amables» por la p
+rensa internacional. Se trataba de soldados con uniforme de camuflaje v
+erde oscuro y moderno equipo de combate, todo de procedencia rusa, al i
+gual que las armas que portaban. No estaban identificados por distintivos de
+unidad o insignias de graduación y llegó a decirse que se trataba de mili-c
+ias de autodefensa prorrusas o incluso PMC, esto es, hombres de empresas p
+rivadas militares rusas, como los estadounidenses Blackwater/Academi, que e
+stos habían utilizado extensamente en la invasión de Irak, en 2003. Pero p
+ronto quedaron pocas dudas de que se trataba de soldados de Infantería d
+e Marina rusos, además de fuerzas de operaciones especiales ( Spetsnaz,K
+SO) y paracaidistas, todos con equipos nuevos y utilizando medios de r
+eciente aparición, como los vehículos todoterreno GAZ Tigr. E
+l 1.º de marzo, Aksiyonov reclamó públicamente a Vladimir Putin «asistencia
+para asegurar la paz y la tranquilidad en el territorio», y a vuel-ta
+de mensaje, el presidente ruso pidió al Consejo de la Federación permi-so
+para utilizar a las fuerzas armadas en el territorio de Ucrania a fin de normalizar
+la situación sociopolítica en ese país, petición fue aprobada  pocas horas más tar
+de. La
+ocultación de la afiliación militar de los «hombrecillos verdes» in-t
+rodujo mucho desconcierto entre los observadores internacionales y los analistas
+de la OTAN («no estaban, no eran») y les supuso un tiempo va-
+
+---
+
+128
+128U CRANIA 22l
+ioso a los rusos para hacerse con el control de los puntos estratégicos de la p
+enínsula y anular la respuesta de las guarniciones ucranianas presentes. Q
+uedaron directamente fuera de juego y apenas se produjeron enfrenta-mientos
+armados puntuales. De hecho, la mayor parte de las tropas ucra-nianas,
+el 70% de un total de 19.000, terminaron pasándose al bando r
+uso. Buena parte de sus efectivos eran crimeos, y en cuanto a los oficiales, eran v
+eteranos del antiguo Ejército soviético. T
+odo iba muy deprisa. El hecho de que la situación política en Kiev fuera
+caótica complicaba las cosas hasta lo indecible. Como anécdota, el 1.º
+de marzo, el presidente T urchinov nombró comandante en jefe de la M
+arina de Ucrania a Denis Berezovsky, el cual solo tardó un día en cam-biar
+de bando y jurar fidelidad a las autoridades de Crimea; hacia finales de
+ese mismo mes, ya era nombrado subcomandante de la Flota del Mar N
+egro por el Ministerio de Defensa de Rusia. S
+iguiente paso: el 6 de marzo el Parlamento de Crimea votó por la u
+nión con la Federación Rusa y adelantó el proyectado referéndum del 25 de may
+o al 16 de ese mismo mes, solo diez días más tarde. L
+as preguntas: «A) ¿Está usted a favor de la reunificación de Crimea c
+on Rusia como parte de la Federación Rusa?; B) ¿Está usted a favor de r
+estaurar la Constitución de 1992 y el estatus de Crimea como parte d
+e Ucrania?». Los resultados oficiales establecieron que con una participa-ción del 83%, el 96,77% v
+otó sí a la primera opción.Como
+es lógico, en Kiev y en las capitales occidentales se tomaron muy
+mal todo este proceso, que sonaba como una ducha de agua fría se-guida
+de una bofetada al triunfalismo que había acompañado la toma del poder
+por la oposición como resultado del Euromaidan. Los medios de comunicación
+occidentales, y en especial los americanos, denunciaron q
+ue el resultado del referéndum estaba falsificado o que los votantes lo habían
+hecho forzados por la presencia de las fuerzas armadas rusas, poco m
+enos que a punta de pistola. En cambio, las imágenes y crónicas de al-g
+unos reporteros que acudieron a Crimea mostraban un ambiente de gran j
+olgorio y alegría entre los votantes, incluso electrizante. Pero eso ya daba i
+gual. A esas alturas, el mensaje ruso había sido inequívoco: «Q uid pro quo. O
+jugamos todos o se rompe la baraja». Y el toma y daca fue simétrico: si e
+n el Euromaidan se habían impuesto los hechos consumados con ayuda de
+la violencia de grupos paramilitares, en Crimea se había hecho lo mis-m
+o, pero sin apenas muertos ni heridos. S i en el E uromaidan se había
+
+---
+
+M
+ATAR EN PRIMAVERAA 129 instalado
+un nuevo régimen para el país en base a una apresurada votación inconstitucional,
+en Crimea lo mismo, mediante un referéndum casi im-p
+rovisado y con unos resultados de dudosa credibilidad. Si en el Euromai-dan
+se habían desactivado y anulado las fuerzas del orden público que defendían
+al régimen, en Crimea habían quedado fuera de juego las fuer-zas
+armadas a las órdenes —supuestamente— del nuevo régimen de Kiev. S
+i en el Euromaidan se hablaba de «revolución» con descaro, en Crimea se alegaba,
+con el mismo descaro, el triunfo de la voluntad democrática de la m
+ayoría. En cierta manera, era el éxito en ambos bandos de la «posver-d
+ad», ese vocablo que se pondría de moda poco después, a raíz de la victo-ria
+electoral de Donald T rump, y que significa: «Distorsión deliberada de u
+na realidad, que manipula creencias y emociones con el fin de influir en la opinión pública y en actitudes sociales»
+8 . D
+esde Kiev a los aliados occidentales pretendieron negar toda base p
+opular a la secesión de Crimea; la prensa y la historiografía partidista de gran
+consumo incluso identificaban a las milicias de autodefensa en Cri-mea
+como simples criminales reclutados para la ocasión, a fin de mantener la
+ficción de que existía un levantamiento popular en vez de una simple inv
+asión militar de Crimea en toda regla9 .  Lógicamente, Moscú tenía in-ter
+eses estratégicos muy significativos comprometidos en la península, co-menzando
+por la ciudad de Sebastopol —más de 300.000 habitantes—, que
+alberga la base naval de la Flota del Mar Negro. Por entonces estaban fondeados
+allí medio centenar de buques y 18.000 efectivos, entre milita-r
+es y técnicos. La ciudad había sido erigida a partir de 1783 por decisión de
+la zarina Catalina II la Grande y fue bautizada como Sebastopol (en griego,
+Ciudad Augusta) en su honor. La iniciativa buscaba que el Imperio R
+uso dispusiera de una gran base naval desde la cual dominar todo el mar N
+egro y a partir de ahí estar en disposición de asaltar la capital del Imperio O
+tomano, Estambul, la antigua Constantinopla, objetivo estratégico prin-c
+ipal del Imperio Ruso en los siglos x/v.sc /i.sc/i.sc/i.sc y  x/i.sc x.  A lo largo del siglo xx ,  la base d
+e Sebastopol había tenido un papel crucial en la Primera y Segunda G
+uerras Mundiales, así como durante toda la Guerra Fría, apuntando pre-c
+isamente a T urquía y los estrechos. Nunca había estado bajo jurisdicción m
+ilitar ucraniana, hasta que por el tratado de 1997 se reconoció la sobera-8
+Definición del Diccionario de la Real Academia Española.9
+Galeotti (2019): p. 14, B.3.
+
+---
+
+130
+130U CRANIA 22n
+ía de Ucrania sobre toda la península y Rusia hubo de arrendar la base n
+aval. Tras los sucesos del Maidan, era bastante lógico que Moscú no qui-siera
+arriesgarse a la posible pérdida de la base de Sebastopol a manos de la O
+TAN por causa de un golpe de mano favorecido por las nuevas autori-dades de Kiev
+. E
+n cuanto al resto de la península, solo había pasado a estar adminis-trada
+por Kiev desde 1954, cuando la República Socialista Federativa So-viética
+de Rusia la cedió a la República Socialista Soviética de Ucrania. En el
+contexto de la Unión Soviética, fue un acuerdo favorecido por Nikita J
+ruschov, el líder del país entre 1953 y 1964, ucraniano de adopción, tra-bajador
+en el Donbas en su juventud y primer secretario del Comité Cen-tral
+del Partido Comunista de la RSS de Ucrania entre 1938 y 1947. En cier
+ta manera, Jruschov fue predecesor en la constitución del «clan de los u
+cranianos» en Moscú, y por ello favoreció el traspaso de la administra-c
+ión de Crimea a Ucrania en base a una razón meramente práctica: desde e
+sa república era mucho más sencillo abastecer a la península de agua y electricidad,
+además de facilitar la construcción y mantenimiento de in-fraestr
+ucturas (carreteras, vías férreas).P
+ero esa iniciativa, meramente administrativa, no aportaba ningún der
+echo histórico a Ucrania sobre la península, que había nacido como Estado
+tártaro en el siglo x/v.sc ( 1441), como janato de Crimea, pasó a ser/v.sctributario
+del Imperio Otomano a partir de 1478 y cayó en manos de las t
+ropas rusas y fue anexionada el Imperio en 1783. A partir de entonces, y aunque
+pervivió parte de la población tártara original, fue un territorio intensamente
+colonizado con rusos, principalmente, y gente de otras mu-c
+has procedencias, como alemanes y búlgaros. En cualquier caso, el óblast r
+uso de Táurida, como se lo conoció administrativamente, nunca pertene-c
+ió a Ucrania hasta 1954. Y aunque a partir de ese momento la población u
+craniana creció en Crimea, siempre fue una minoría: en 2001, sobre un total
+de 1,18 millones de rusos, los ucranianos no pasaban de los 492.000, según cifras del censo de Kiev
+10 . T
+ras la independencia de Ucrania, pronto se inició un pulso con los soberanistas
+crimeos. En mayo de 1992, el Consejo Supremo de Crimea p
+roclamó la república de Crimea como Estado soberano y se convocó un 10
+«All Ukrainian Population Census ‘2011», State Statistics Committee of Ukraine: http://2001.ukr
+census.gov.ua/eng/results/general/nationality/Crimea/.
+
+---
+
+M
+ATAR EN PRIMAVERAA 131 r
+eferéndum para el mes de agosto. Incluso se llegó a aprobar una constitu-ción
+para la independencia. Las presiones de Kiev llevaron a la anulación d
+e esa iniciativa. Pero los ánimos volvieron a agotarse dos años más tarde, cuando
+el Consejo Supremo de Crimea aprobó la institución del cargo de p
+residente de la república y en las elecciones subsiguientes resultó elegido un
+político separatista y prorruso, Yuri Meshkov. De nuevo se planteó conv
+ocar un referéndum para la independencia, pero ante el rechazo de K
+iev, se puso sobre la mesa una consulta no vinculante, coincidiendo con las elecciones parlamentarias ucranianas.
+S
+i esas iniciativas no prosperaban era porque una independencia por l
+a brava suponía que Ucrania dejaría de abastecer agua y energía, y Moscú, por
+entonces, en tiempos de Yeltsin, no estaba para meterse en aventuras p
+eligrosas. Pero las relaciones de la Crimea autónoma con los gobiernos de Kiev
+en los años postsoviéticos no fueron idílicas, y, por tanto, lo sucedido en
+2014 no puede ser calificado solo como «invasión», de la misma forma q
+ue el Euromaidan no fue exactamente una «revolución». C
+omo broche final del fulminante proceso secesionista de Crimea, el 1
+8 de marzo la delegación presidencial de la pequeña república se trasladó a
+Moscú, donde en un acto con gran pompa se firmaron los acuerdos de a
+dhesión a la Federación Rusa. Con motivo de ese evento, el presidente V
+ladimir Putin pronunció un discurso musculoso en el que declaró que C
+rimea era «tierra santa rusa», y acusó a los Estados Unidos y sus aliados de
+pasarse de la raya en Ucrania. En cuanto a esta república, declaró: «Está c
+laro que no hay un poder ejecutivo legítimo en Ucrania, no hay con q
+uien dialogar. Muchos organismos del Estado han sido tomados por im-postor
+es. Y por si fuera poco, no controlan nada en el país».Y
+no solo eso: les frotó por la cara a la potencia americana y la OTAN un
+vitriólico paralelismo entre los casos de Crimea y Kosovo. Defendió q
+ue el referéndum crimeo se había llevado a cabo de acuerdo con el dere-cho
+internacional y citó un dictamen del T ribunal Internacional de Justi-cia
+de la ONU del 22 de julio de 2010 sobre el caso kosovar, según el cual «de
+la práctica del Consejo de Seguridad no se desprende ninguna prohi-bición
+general a la declaración unilateral de independencia», mientras que «el
+derecho internacional no contiene ninguna prohibición aplicable a la declaración
+de independencia». Y para echar más sal en la herida, añadió dos
+frases de un memorando del 17 de abril de 2009 presentado por los E
+stados Unidos ante las Naciones Unidas con relación al asunto kosovar,
+
+---
+
+132
+132U CRANIA 22en
+el cual se podía leer: «Las declaraciones de independencia pueden con-t
+radecir, y con frecuencia así sucede, las leyes internas; sin embargo, ello no significa que se esté violando el der
+echo internacional»11 . E
+l guante estaba lanzado, el nacionalismo ruso subió varios enteros de g
+o l p e  y  t o d o  e l l o  e n c e n d i ó  l o s  á n i m o s  e n  e l  D o n b a s ,  d o n d e  l o s  a c t i v i s t a s p
+rorrusos que denunciaban al nuevo régimen en Kiev intentaron de nuevo h
+acerse con el control de los poderes locales, a partir de abril. Así arrancó una g
+uerra que analistas occidentales presentaron como «guerra híbrida», o inclu-s
+o de «cuarta generación», en un cierto intento de definir el conflicto en C
+rimea y el Donbas como una operación monitorizada desde Moscú en base a
+nuevos principios tácticos y estratégicos especialmente sofisticados y hasta t
+aimados, el reflotamiento de la figura del diabólico KGB en los tiempos de l
+a Guerra Fría. Si se considera que el levantamientos zapatista en México (
+enero de 1994) es el modelo de tal tipo de guerra híbrida12 ,  desarrollada en b
+ase a un mínimo de violencia militar y un buen porcentaje de escenificacio-ne
+s políticas con el dominio de un eficiente aparato de propaganda, entonces l
+a guerra del Donbas queda tipificada como un tipo de conflicto más clásico, e
+n el rango de las guerras de insurgencia propias del siglo xx e incluso delxx/i.sc x, c
+on profusión de milicias y fuerzas paramilitares y policiales reunidas sobre la m
+archa, en torno a una bandera política para erigir un nuevo poder. Ya pues-t
+os, el Euromaidan y la R evolución Naranjae ncajaban mucho más en esa ti-ap
+ificación que la campaña insurgente en el Donbas. Porque la «guerra híbri-d
+a» no la intentaban solo los rusos, ni mucho menos. Las
+primeras acciones de la contienda tuvieron como epicentro la ciu-d
+ad de Donetsk, donde grupos de manifestantes habían tomado el edifi-cio
+de la administración regional ya el 1 de marzo, aunque fueron desalo-jados
+de allí menos de una semana más tarde por fuerzas especiales del S
+BU ucraniano. Pero el 6 de abril, en torno a un millar de manifestantes, quizá
+más, se congregaron de nuevo en el centro de la ciudad para pedir u
+n referéndum como el celebrado en Crimea y tomaron de nuevo el edi-ficio,
+al menos dos de sus plantas, donde organizaron por su cuenta una asamblea,
+votaron la independencia de Ucrania y al día siguiente procla-mar
+on la República Popular de Donetsk (RPD). 11
+«Putin firma la anexión de Crimea a Rusia», por Rodrigo Fernández, en E l País, 1 8 de marzo de 2014 [consultable en r
+ed].12
+Un estudio clásico en ese sentido es el de Arquilla y Ronfeldt (1997).
+
+---
+
+M
+ATAR EN PRIMAVERAA 133 Al
+mismo tiempo, se sucedían intentonas similares en otras localida-d
+es de Ucrania oriental y hasta meridional, incluso en ciudades importan-t
+es como Járkov, Jerson, Odesa, Dnipro o Zaporiyia. Pero donde los resul-tados
+corrieron parejos a los del óblast de Donetsk fue en la vecina L
+ugansk. En su capital se repitieron los acontecimientos, también el 6 de a
+bril, en este caso con la ocupación de los locales de la SBU; expulsados d
+e allí por la policía, los manifestantes, provistos ya de armas capturadas, organizar
+on la asamblea en la calle y pidieron un «gobierno popular» que instituy
+era la federalización o incluso la unión con Rusia. Eligieron líder a u
+n tal Valery Bolotov, al que posteriormente nombraron gobernador po-p
+ular. El 27 de abril se proclamó la República Popular de Lugansk (RPL) y
+dos días más tarde se emitió un comunicado en que se instaba a esta re-pública y la de D
+onetsk a seguir juntas en la lucha común. La
+insistencia en añadir la denominación de «popular» a las nuevas instituciones
+tenía por objeto responder a la pretensión de que los logros d
+el Euromaidan habían sido «revolucionarios». Además, el nuevo gobier-no
+de Kiev era denunciado como una «junta fascista». En las acciones de empoderamiento
+tomaron parte exagentes de los antiguos servicios de se-g
+uridad soviéticos y ucranianos, que ahora se habían pasado a la causa insurgente,
+caso de, al parecer, el mismo Bolotov, de Igor Bezler, veterano d
+e Afganistán y Chechenia que actuó en Donetsk como improvisado jefe de p
+olicía, o del ruso Igor Girkin, más conocido por S trelkov, quien deven-d
+ría ministro de Defensa de la RPD y más tarde comandante militar de todas
+las fuerzas separatistas en el Donbas, y que era un exoficial del FSB. P
+ero eso no quiere decir que, necesariamente, en esta primera fase de la guerra
+no existiera una base social propia de la insurgencia en las regiones orientales
+de Ucrania. En realidad, tal tipo de líderes y comandantes recor-d
+aban a los de las repúblicas insurgentes en las guerras de la ex- Yugoslavia y
+para todos los bandos: croatas, serbios de las repúblicas insurgentes, b
+osniacos o albaneses del UÇK. Ahí se podían encontrar policías, mafio-sos,
+delincuentes, exveteranos de ejércitos extranjeros, oficiales de las fuer-zas
+de seguridad e inteligencia y «hombres para todo». En Ucrania, el m
+ismo Bolotov, por ejemplo, había trabajado para Oleksandr Efremov, e
+l exgobernador del óblast de Lugansk, hombre fuerte del Partido de las R
+egiones y oligarca, en la tarea de gestionar y supervisar yacimientos mi-ner
+os ilegales en esa región tan pobre. Por su parte, Pavel Gubarev, escogi-do
+inicialmente como «gobernador popular» de Donetsk, era un historia-
+
+---
+
+134
+134U CRANIA 22dor
+neoeurasianista metido a ejecutivo de una empresa de publicidad. Aleksandr
+Zajarchenko, líder de la unidad de milicias Oplot y héroe de la t
+oma del edificio de la gobernación de Donetsk el 7 de abril, era un inge-n
+iero electricista de profesión. T uvo un ascenso meteórico en la RPD: pri-m
+ero viceministro del Interior y más tarde primer ministro (agosto) y presi-d
+ente (noviembre).S
+í es cierto que estas multitudes, milicianos y líderes independentistas eran
+una minoría en un Donbas que contaba con más de seis millones de h
+abitantes y cuyas principales ciudades, industriales o mineras, eran nota-blemente
+populosas: Donetsk, con un millón de habitantes; Lugansk o M
+ariúpol, con más de 400.000; Horlivka, con un cuarto de millón, Kra-m
+atorsk, Sloviansk o Severodonetsk, poco más de cien mil. En esta región, aunque
+el 70% de la población rechazaba al régimen de Kiev, solo el 30% estaba a fav
+or de la independencia13 . E
+l auge de la insurgencia se explica por varias razones. Históricamen-te,
+en este tipo de fenómenos no están implicados todos los actores posi-b
+les. Por ejemplo, solo una pequeña parte de las unidades militares p
+articiparon en el desencadenamiento de la Revolución Rusa en San Pe-tersburgo
+en febrero de 1917 (27 de febrero/14 de marzo): unos 10.000 en
+los primeros momentos, más de 25.000 por la tarde, mientras que una par
+te de las unidades de la gigantesca guarnición de la capital —quizá más de
+180.000 soldados— permanecían acuarteladas, inactivas y neutrales14 . Algo
+parecido sucedió en el mismo Kiev, en 2014, donde la resisten-c
+ia en el Euromaidan se nutrió de voluntarios llegados desde las regiones d
+el oeste de Ucrania. A continuación, en el Donbas se había producido un v
+acío de poder con la huida de Y anukovich y su negativa a encabezar la r
+esistencia a Kiev desde Járkov. El Partido de las Regiones se hundió, inca-p
+az de reunirse en torno a un líder, inexistente, o una opción política es-tratégica
+concreta. Más allá de la condena al nuevo poder en Kiev, no se manifestaba
+una mayoría clara, ni siquiera por la reformulación federal del Estado;
+mucho menos por la independencia, que iba a significar, más tar-d
+e o más temprano, pasar a depender de Moscú. Y a esas alturas, los «azu-l
+es», rusófonos e incluso prorrusos del este y el sur no necesariamente de-seaban
+perder sus cuotas de poder, sus modelos de integración social 13
+Ruiz Ramas (2016): p. 149.14
+Veiga, Martín y Sánchez Monroe (2017): p. 270.
+
+---
+
+M
+ATAR EN PRIMAVERAA 135 específicos
+o sus propias expectativas como ciudadanos de un país inde-pendiente.
+Eso
+explica, en parte, que la insurgencia no hubiera triunfado desde un
+primer momento en el sur rusófono o en núcleos importantes del este, como
+la ciudad de Járkov, donde su alcalde, el empresario y oligarca Hen-n
+adiy Adólfovich Kernes, muy popular en la ciudad, militante del Partido d
+e las Regiones, federalista, mandó arrestar a los primeros insurgentes que ocupar
+on un edificio oficial. Lo cual casi le costó la vida en un atentado, a
+finales de ese mismo mes de abril. En cambio, los oligarcas y poderes locales
+del Donbas, personajes como Rinat Ajmetov, Boris Kolesnikov u O
+leksandr Efremov, optaron por esperar y ver o intentar controlar el mo-vimiento
+insurgente que se basada en un rechazo social extendido hacia el n
+uevo régimen de Kiev, y que incluía a la administración. Cuando, poste-riormente,
+las nuevas autoridades insurgentes empezaron a plantear polí-ticas
+de nacionalización, las actitudes cambiaron. A mediados de mayo, por
+ejemplo, el oligarca Rinat Ajmetov organizó en la ciudad portuaria de M
+ariúpol un sistema de patrullas mixtas, con obreros y policías, que ex-p
+ulsaron a los insurgentes, facilitando la toma de la localidad por las tro-pas
+gubernamentales. Se percató de que el nuevo poder en el Donbas es-taba
+fuera de control y no dudó en proteger sus negocios allí15 ,  que incluían
+la sociedad Metinvest, un gigante que integraba a diversas com-pañía
+metalúrgicas y mineras, la niña de los ojos de Ajmetov, la empresa priv
+ada más grande de Ucrania, que a su vez formaba parte del holding S
+ystem Capital Management (SCM Holdings), una verdadera bestia em-p
+resarial de la cual Ajmetov poseía la totalidad de las acciones. Los
+medios de prensa occidentales y posteriormente muchos analistas y
+propagandistas pintaron la insurgencia del Donbas como un mero ope-r
+ativo de invasión ruso, más o menos encubierto. Una repetición de lo sucedido
+en Crimea, pero más a lo grande. En 2016, la SBU filtró una serie
+de grabaciones que pretendían demostrar el temprano control ruso s
+obre el levantamiento del Donbas. Las cintas implicaban a un asesor cer-c
+ano a Putin y candidato a la presidencia de Rusia en 2004: el economista S
+erguéi Gláziev16 .  Sin embargo, una lectura desapasionada de la informa-15
+Ruiz Ramas (2016): pp. 149 y 153.16
+«English translation of audio evidence of Putin’s adviser Glazyev Russian politicians involve-ment war in U
+kraine», en U A Position, 29 de agosto de 2016 [consultable en r ed].
+
+---
+
+136
+136U CRANIA 22c
+ión parece revelar más bien lo contrario: que, a pesar de la voluntad de M
+oscú de manejar la insurgencia, terminaron primando el desorden y la i
+mprovisación. Hubo descontrol con el manejo de los fondos, que no pa-r
+ecían ser de consideración; hubo reprobación hacia algunos de esos pro-tagonistas
+que desde Occidente se pintaban como avezados agentes secre-t
+os rusos y que de hecho parecían más bien aventureros, que se sucedían u
+no tras otro en los escalones del poder y varios de los cuales, al final, terminar
+on siendo apartados de en medio.D
+e cualquier forma, la alianza entre las insurgentes Donetsk y Lu-gansk
+añadía un quebradero de cabeza, y este muy serio, al gobierno de K
+iev. Ambos óblast, que venían a constituir la región del Donbas (apóco-pe
+de Donets y basein  o cuenca —en ucraniano—, eso es: cuenca del D
+onets), eran el antiguo músculo minero-industrial de Ucrania. Donetsk, en
+concreto, era la región con los salarios más altos del país y uno de los P
+IB también más elevados. Y, por supuesto, el bastión electoral de los ru-sófonos,
+de los azules, del Partido de las Regiones y de Yanukovich. Allí, a lo
+largo de los meses de abril, las milicias prorrusas de la RPD y RPL, con las
+cuales colaboraban unidades policiales afectas —como los Berkut, fuer
+za disuelta por el gobierno de Kiev—, fueron ocupando localidades, tomando
+alcaldías, comisarías de policía, edificios administrativos, delega-ciones
+ministeriales, empresas. En ocasiones se lograba con una breve ne-g
+ociación; a veces se encontraban con la resistencia de las fuerzas del orden a
+fectas a Kiev o milicias contrarias. En cualquier caso, los insurgentes pro-c
+uraban no relevar a los funcionarios de sus puestos de trabajo siempre que se mostraran colaborativ
+os con las nuevas autoridades. A
+tal efecto, en esos primeros días de expansivas acciones desordenadas y
+victorias fáciles, los insurgentes llegaron a tomar dos localidades importan-t
+es en los límites occidentales del óblast de Donetsk: Sloviansk y Krama-t
+orsk. Ya el 12 de abril, un grupo de insurgentes liderados por St relkovl ogróvoc
+upar el edificio del ayuntamiento, además de las comisarías de policía y el l
+ocal del SBU. Incluso se llegó a instalar un nuevo alcalde «popular», Vya-c
+heslav Ponomarev, un empresario local del jabón. En cuanto a Kramatorsk, l
+os insurgentes se hicieron con la comisaría de policía tras un intenso tiroteo. E
+l ayuntamiento fue tomado por una multitud que izó sobre el edificio la ba
+ndera de la República Popular de Donetsk, negra, azul y roja. Ahora
+bien, la captura de estas dos localidades por las milicias de la R
+PD hizo entrar en pánico a las autoridades de Kiev; sobre todo, la caída
+
+---
+
+M
+ATAR EN PRIMAVERAA 137 d
+e Sloviansk, donde los insurgentes se apropiaron de un arsenal impor-tan
+te además de secuestrar y ejecutar a un político leal y otros ciudada-n
+os. En consecuencia, el 15 de abril, el presidente T urchinov ordenó la p
+uesta en marcha de una así denominada Operación Antiterrorista que m
+ovilizó a fuerzas del Ejército ucraniano, las cuales entraron en acción e
+nseguida en torno a Sloviansk, dando lugar a la guerra del Donbas pro-p
+iamente dicha.E
+ntonces sucedió algo habitual en casi cualquier guerra civil, desde la d
+e Secesión americana hasta la civil española o las de desintegración de Y
+ugoslavia. En los primeros momentos, el Ejército no sabe cómo reaccio-n
+ar e incluso colapsa, queda con las lealtades divididas, sin doctrina ni p
+reparación previa para enfrentarse a la nueva situación, con reclutas que no
+quieren disparar contra el otro bando que hasta ayer era el suyo, y me-nos
+aún morir por sus balas. La implicación de la población civil de forma dir
+ecta en la contienda resulta también muy turbadora, al menos inicial-mente, hasta que no se deshumaniza al enemigo
+. E
+n la primavera de 2014, ante el D onbas, el E jército ucraniano se e
+ncontró en la misma situación del Ejército Popular Yugoslavo en Eslove-n
+ia y ante Vukovar en el verano y otoño de 1991. Se produjeron desercio-ne
+s y desplome de la moral de combate. Los medios de comunicación d
+e todo el mundo se hicieron eco del sonado chasco que fue el intento de r
+ecuperar Sloviansk y la base aérea de Kramatorsk. El 16 de abril, las tele-visiones
+de todo el mundo mostraron imágenes de cómo la 25.ª Brigada A
+erotransportada, una importante unidad de choque del Ejército ucrania-no,
+había sido cercada y aislada en plena carretera por una manifestación pacífica
+de ciudadanos insurgentes. Los vecinos, sin armas, lograron ex-p
+ulsar a las fuerzas del aeropuerto de Kramatorsk, mientras seis transpor-t
+es de tropas blindados, con sus respectivas tripulaciones, cambiaron de b
+ando y terminaron en manos de los insurgentes. El presidente interino d
+e Ucrania, Oleksandr T urchinov, furioso, llegó a pedir la disolución de la unidad
+17 . M
+ientras tanto, como había sucedido en Serbia, el reclutamiento se h
+acía cada vez más complicado. En el país balcánico, las deserciones ha-bían
+sido una plaga, llegando incluso al mismo frente de batalla. En ciu-17
+«Lavrov: diplomats making strides in Geneva; police prevent attack by armed separatists in Kramatorsk»,
+K yiv Post, 17 de abril de 2017 [consultable en r ed].
+
+---
+
+138
+138U CRANIA 22dades
+como Belgrado y Novi Sad, la tasa de insumisos llegó hasta un 85%. E
+ra tan elevada que las autoridades no podían hacer prácticamente nada para
+contrarrestarla; alcanzaba la categoría de fenómeno social masivo. En U
+crania, por su parte, se llevaron a cabo seis oleadas de movilización, tres e
+n 2014 y otras tantas en 2015. Pues bien, en ningún caso se logró superar el
+50% del total programado18 .  Los jóvenes llamados a filas se escondían o
+emigraban al extranjero para evitar combatir en una guerra que muchos consideraban
+mal gestionada por el elevado número de bajas, el deficiente equipamiento
+de las tropas y el carácter de guerra civil que presentaba la contienda.
+E
+n efecto, la guerra del Donbas resultó difícil de manejar desde un primer
+momento. Incluso la denominación de la campaña (Operación Antiterr
+orista) resultaba inapropiada porque difícilmente se podía escoger o
+tra que resultara más ajustada. Operación Contrainsurgente habría enca-j
+ado mejor, pero desde el punto de vista de Kiev eso implicaba darle una enjundia
+que el gobierno ucraniano no deseaba admitir. De la misma for-ma
+que los británicos denominaron The Troublesa  la guerra de baja inten-ssidad
+en Irlanda del Norte entre 1968 y 1998, en Kiev se prefirió quitarle impor
+tancia al conflicto en el Donbas aunque fuera de hecho una guerra e
+n toda regla, a la cual el Ejército terminó destinando unos 90.000 efecti-v
+os. En el sistemático efecto espejo que presidió el desarrollo de la guerra civil
+ucraniana, el gobierno ruso decidió bautizar a su intervención militar m
+asiva en Ucrania, en febrero de 2022, como «operación militar especial». P
+or último, resultaba llamativo que mientras que Yanuko vich no quiso r
+ecurrir al Ejército contra los insurrectos del Maidan, a pesar de que su carácter
+paramilitar pudo haberlo justificado, T urchinov sí lo envió contra los
+insurgentes del este, sin intentar buscar antes alguna salida política. T
+odo ello explica, en parte, el fiasco militar ucraniano en la primera fase de la guerra.
+18
+González (2016): p. 171.
+
+---
+
+C
+APÍTULO 8CA
+ÍN CONTRA CAÍNG
+UERRA CIVIL ENTRE NEONAZIS Y NEOFASCISTASM
+orir por una causa no hace que esta causa sea justa.H
+enry de MontherlantT
+ras los primeros momentos de desconcierto, el gobierno de Kiev recurrió a l
+a misma solución que el de Belgrado en 1991: enviar por delante del Ejér-c
+ito regular a paramilitares políticamente motivados, que no podían ser sino d
+e tendencias ultras. A pesar de su deficiente instrucción y encuadramiento, s
+u fanatismo los lanzó a asaltar Vukovar casa por casa. La ultraderecha serbia i
+ntegraba diversas unidades paramilitares, pero las más numerosas y eficaces, l
+as que se hicieron célebres y temidas, fueron las integradas por los comba-t
+ientes del movimiento Chetnik serbio, liderados por Vojislav /Scaron.titlinge/Scaron.sc e lj, que a
+demás presidía el Partido Radical, y la Guardia Voluntaria, conocida popu-l
+armente como los Tigres de Ar kan, apodo de Željko Ražnatović. E
+n el caso de la guerra del Donbas, los planificadores de la Operación Antiterr
+orista ya incluyeron en el despliegue inicial de fuerzas a las unida-des
+de autodefensa ultras del Euromaidan, dependientes de partidos y g
+rupos políticos ( Pravy Sektor, Svoboda, C14, UNA-UNSO) reconverti-das
+en unidades paramilitares. Y no solo eso: integradas en el organigrama de
+las fuerzas armadas ucranianas, más concretamente con el estatus de batallones
+de defensa territorial, similares a los de la Guardia Nacional (dependiente
+del Ministerio del Interior) pero bajo la jurisdicción del Mi-nisterio
+de Defensa1 .  Las unidades más conocidas fueron el Batallón Azov, 1
+González (2016): p. 171.
+
+---
+
+140
+140U CRANIA 22e
+l Batallón Donbass y el Cuerpo de Voluntarios Ucraniano (DUK, por sus siglas
+en ucraniano), ampliado desde la primera unidad de combatientes de
+P ravy Sektory  que llegó a integrar a varios batallones; también los rbatallones
+Dnepr I y II, Aidar, Kiev I y II, Sich, el de la OUN, el de la UNSO
+(brazo armado de la Asamblea Nacional Ucraniana, UNA) o el S
+okol. Cabe añadir que algunas de estas unidades se resistieron, en lo que p
+udieron, a integrarse en los organigramas de las fuerzas armadas regulares, y
+lo pudieron hacer precisamente por su vinculación con partidos y figu-r
+as políticas relevantes. Eso sucedió durante un tiempo con el célebre Ba-t
+allón Azov , pero también con el Batallón Donbass, que integraba a un contingente
+de ucranianos rusófonos no separatistas y leales al régimen de K
+iev. Conservó cierta autonomía tanto organizativa como operativa y subsistió
+durante un tiempo gracias a donantes privados. Es más, las uni-dades
+paramilitares ultras más relevantes de la lista habían sido constitui-d
+as y equipadas gracias a la financiación total o parcial de capital privado a trav
+és de algunos oligarcas, o incluso de donantes opacos2 . D
+e esa forma, sobre la marcha, en el campo de batalla, se refundó un E
+jército ucraniano orientado a ganar la guerra civil, con unidades de ultra-d
+erecha, de ideología neonazi, integradas en el organigrama regular de las f
+uerzas armadas de un país supuestamente democrático sostenido por los E
+stados Unidos y la Unión Europea. La actitud de las cancillerías y buena p
+arte de la prensa occidental con respecto a esta situación tan anómala ha s
+ido uno de los pecados originales más peligrosos en su apoyo al régimen uc
+raniano surgido del Euromaidan con la inestimable ayuda de la comadro-na
+neofascista y neonazi. Ya desde un principio, en los momentos más duros d
+e los choques en el Euromaidan, cabeceras destacadas de la prensa occiden-t
+al tendieron a mirar para otro lado, a restarle importancia o incluso a negar lo
+que era más que evidente3 :  la importancia que estaba cobrando el ultra-n
+acionalismo armado en un conflicto europeo, y eso en un contexto conti-n
+ental de auge de esas tendencias, incluso en el Parlamento Europeo.D
+espués, ya en plena guerra del Donbas, se continuó argumentando que
+su peso en los combates contra los insurgentes había sido menor, limi-2
+Véase «The Donbass Battalion prepares to save Ukraine from separatists», por Sabra Ayres, en A
+lJazeera America, 29 de junio de 2014 [consultable en r ed].3
+«Ukraine turns a blind eye to ultrarightist militia», por Jack Losh, The Washington Post, 13 de f
+ebrero de 2017 [consultable en red]; «Kiev’s protesters: Ukraine uprising was no neo-Nazi p
+ower-grab», por Luke Harding, en The G uardian, 13 de mar zo de 2014 [consultable en red].
+
+---
+
+CA
+ÍN CONTRA CAÍN141 t
+ándose a tareas de control y seguridad en la retaguardia. Pero lo cierto es que
+unidades como el Batallón Azov tomaron parte en algunos de los combates
+más duros contra los insurgentes —intento de asalto a la ciudad d
+e Donetsk, en agosto; segunda batalla de Mariúpol, septiembre— y vie-r
+on cómo su entidad crecía hasta reconvertirse en regimientos, e incluso terminar
+on disponiendo de armas pesadas propias, como artillería y carros de
+combate. Esa tendencia se vio incrementada de forma clara y decisiva durante
+las operaciones contra las unidades rusas en 2022, pero estaba ya m
+uy presente ocho años antes4 .  Y ello fue así por una razón bien clara: su idealismo
+fanático los convertía en combatientes más implacables y sacri-ficados que el r
+esto de las unidades regulares.A
+ello también contribuyó, en no menor medida, la afluencia de vo-luntarios
+extranjeros, movidos por esos mismos idearios, un fenómeno s
+obre el que la prensa occidental pasó de puntillas en 2014 y que en 2022 y
+a no tuvo ningún interés en mencionar. Llegaron de muchos países: F
+rancia, Gran Bretaña e Irlanda, Alemania, Italia, España, Grecia; de entre los
+países escandinavos destacó Suecia5 .  No faltaron estadounidenses y de otr
+os lugares de América6 .  Por entonces estaba en ascenso la ultraderecha en
+todo el continente y la perspectiva de tomar las armas por esa causa e
+nfervoreció a muchos jóvenes. La unidad que tenía más prestigio entre ellos, por
+que además estaba más abierta al exterior, fue el Batallón Azov7 . Como
+no podía ser menos, este fenómeno causó una enorme excita-c
+ión en la Europa supremacista. No se había visto nada igual desde los t
+iempos de la guerra de Croacia, hacía más de veinte años. Había transcurri-do
+casi una generación, y por entonces el fenómeno neonazi se había lle-v
+ado con más discreción; las unidades neoustachas del HOS se diferen-ciaban
+porque el damero de sus escudos nacionales empezaba por un cuadrado
+blanco y no rojo. En Ucrania, en cambio, los combatientes del 4
+Para un análisis desapasionado: Vyacheslav Tseluyko, «Rebuilding and Refocusing the Force. R
+eform and Modernization of the Ukrainian Armed Forces», en Howard y Pukhov (2014): pos. 4265 a 4285.
+5
+«The Swedish Neo-Nazis “Volunteers” of Kiev», por Michael Moynihan, en D aily Beast, 28 de
+febrero de 2014 [consultable en red]; «Swedish neo-Nazis join fight in Ukraine», en The Local,
+30 de julio de 2014 [consultable en r ed].6
+«Why American Right-Wingers Are Going to War in Ukraine», por Alexander Clapp, en Vi ce magazine,
+20 de ener o de 2016 [consultable en red].7
+«Ukraine crisis: the neo-Nazi brigade fighting pro-Russian separatists», por T om Parfitt, en The
+T elegraph [consultable en r ed].h
+
+---
+
+142
+142U CRANIA 22B
+atallón Azov hacían ostentación de las runas W olfsangel, en sus unifor-m
+es y paradas, en las banderolas amarillas y azules. Y no cabía ninguna duda
+de que se trata del conocido símbolo heráldico germánico inspirado en
+las antiguas trampas para lobos que durante la Segunda Guerra Mun-d
+ial habían ostentado las tropas de la 2.ª División de las Waffen SS. Y ade-más
+eran bien visibles los tatuajes de muchos combatientes, y las ocasiona-l
+es banderas nazis con las que se fotografiaban. De otra parte, los voluntarios internacionales
+que acudían a las filas de las milicias ultranacionalistas y neonazis
+ucranianas lo hacían convencidos de que luchaban contra el crip-tocomunismo r
+uso que buscaba invadir Occidente8 . N
+o es de extrañar que en los foros internacionales neofascistas y neo-nazis
+se empezara a considerar la oportunidad histórica de erigir el primer E
+stado «verdaderamente nacionalista desde 1945». Lo cual no tardó en generar
+una llamativa polémica en esos mismos foros, donde enseguida surgier
+on los que criticaban a los camaradas que iban a combatir a Ucrania por
+una causa más que dudosa, puesto que el gobierno de Kiev no era sino u
+n peón de la OTAN y los «hermanos» que luchaban allí en realidad lo hacían
+al servicio de fuerzas oscuras, entre ellas el ZOG, el malévolo Zio-n
+ist Occupation Government o Gobierno de Ocupación Sionista, esto es, la
+manida teoría antisemita del supuesto gobierno judío en la sombra9 .  La p
+olémica crecía en las webs y foros neonazis, neofascistas o supremacis-t
+as. La página del T raditionalist Youth Network consideraba que la guerra de
+los ucranianos era «ideológicamente ambigua». En Radix —la antigua Alternativ
+e Right.com— se argumentaba en contra de P ravy Sektor, con- s
+iderando a ese grupo insuficientemente radical. Denunciaban que pare-cía
+estar más dedicado a defender un tipo determinado de «nacionalismo cívico
+en el cual el interés por preservar el Estado era más importante que e
+l de preservar la propia raza o incluso el propio grupo étnico»10 .  En cam-bio,
+los de Aryanism.net respaldaban a P ravy Sektor, aunque a la vez pro-clamaban
+que «los auténticos nacionalsocialistas no colaboran con un ré-gimen
+tan corrupto como el de los Estados Unidos, que apoya a Israel y está
+controlado por judíos, y no acepta ser utilizado como un peón geopo-8
+«Foreigners Who Fight And Die For Ukraine: Russians join Ukrainians to battle Kremlin in D
+onbas», por Oleg Shukov, en K yivPost, 24 de abril de 2015. 9
+«Z OG Hate M y Brains», por Chip Berlet, en N ew Internationalist, 2 de octubre de 2004 [consultable en r
+ed].10
+T odas las referencias en «US fascists debate the conflict in Ukraine», post cit.
+
+---
+
+CA
+ÍN CONTRA CAÍN143 lítico».
+Incluso se llegó a polemizar en S tormfront, la página principal del neonazismo
+estadounidense, aunque algunos debates fueron borrados por los
+administradores a los pocos días para no dar imagen de desunión; o quizá
+para no contradecir la línea oficial del gobierno en un asunto tan delicado
+como la guerra «contra los rusos», presentada muy a menudo en estos medios como el viejo combate contra el bolchevismo r
+edivivo.T
+ambién resultó muy desconcertante descubrir que algunos oligarcas u
+cranianos, y muy en especial Íhor Kolomoiski —con triple nacionalidad: ucraniana,
+chipriota e israelí—, era uno de los financiadores de unidades milicianas,
+en espacial los batallones Dnipro y Aidar. Estas unidades no ostentaban
+una orientación tan descaradamente neonazi o neofascista, p
+ero sí que tenían una supervisión de los sectores ultras. En concreto, el B
+atallón Dnipro (también conocido como Batallón Kolomoiski por haber donado
+este oligarca diez millones de dólares para la constitución de la unidad)
+incluía militantes de P ravy Sektor y  voluntarios estadounidenses. E
+n el Batallón Aidar también existía un volumen apreciable de milicianos genéricamente
+neonazis, aunque sus comandantes militaran en partidos de
+la derecha conservadora. Asimismo, en ambos casos —aunque en espe-cial
+en el Aidar— menudearon las denuncias por violencia contra la po-b
+lación civil, robos, extorsiones, secuestros. Y en especial, esta unidad, j
+unto con el Batallón Donbass, obstaculizó el reparto de ayuda internacio-n
+al a la población civil prorrusa del Donbas11 .  P ara concluir , el mismo K
+olomoiski ofrecía recompensas, muy jugosas, por la captura de insurgen-tes
+(10.000 dólares cada uno) y el desalojo de edificios administrativos ocupados
+(hasta 200.000 dólares). Pues bien, «Benya» Kolomoiski no solo tenía
+origen judío, sino que además era presidente de la Comunidad Judía U
+nida de Ucrania, y en 2010 había sido nombrado presidente del Conse-j
+o Europeo de Comunidades Judías. Aunque, en este caso, desde Israel se l
+legó a denunciar que ese cargo lo había logrado mediante maniobras d
+udosas12 . P
+or otra parte, aunque Israel no pareció inmiscuirse militarmente en e
+l conflicto del Donbas, al menos en estos primeros meses, sí que se eva-c
+uaron a ese país heridos de guerra ucranianos, y por lo que parece despren-11
+«Eastern Ukraine: Humanitarian disaster looms as food aid blocked», A mnesty International,24 de diciembr
+e de 2014 [consultable en red].12
+«A Necessary Putsch?», por Ben Hartman, T he Jerusalem Post, 29 de octubre de 2010 [con-sultable en r
+ed].
+
+---
+
+144
+144U CRANIA 22derse
+de algunas fotografías, se trataba de paramilitares, quizá porque no poseían
+servicios sanitarios propios en las unidades, o escogidos en base a otras
+razones no especificadas, pero entre los cuales se vio a combatientes de
+P ravy Sektor, p recisamente.T
+odo ello provocó una fractura en las filas de la ultraderecha interna-cional
+cuando una parte de esta se decantó por la variante rusa en detri-mento
+de aquellos a los que veían como ucranianos vendidos a la OTAN, a
+l capital y al judaísmo. Hubo casos en que simpatías y apoyo se desplaza-r
+on de uno al otro en poco tiempo. Un ejemplo espectacular fue el de R
+oberto Fiore, dirigente de Forza Nuova, partido italiano ultracatólico y neofascista,
+euroescéptico y contrario a la inmigración y la homosexuali-d
+ad. Mantenía relaciones amistosas con los camaradas ucranianos desde hacía una década y orbitaba especialmente en torno a
+Sv oboda. La
+guerra en el Donbas supuso una rápida mutación hacia la ultrade-r
+echa rusa a través de sus sectores más tradicionalistas, y en concreto de A
+lexey Komov, una especie de representante informal de la Iglesia orto-d
+oxa rusa, miembro destacado de la Fundación San Basilio el Grande, por
+tavoz del patriarca de Moscú e integrante del patronato de CitizenGo. P
+ero Komov no actuaba solo, formaba parte del entramado financiero c
+onservador ruso, para la acción política exterior, presidido por los oligar-c
+as Konstantin Maloféyev y Vladimir Yakunin. Por las manos del primero de
+ellos, muy especialmente, pasaron todo tipo de proyectos de apoyo a la u
+ltraderecha y el conservadurismo europeos, pero también a la izquierda r
+adical populista. Desde publicaciones en línea de gran tirada, como la re-vista
+Katehon  o G eopolítica.ru, instrumentos de influencia como el Insti-t
+uto de Investigación del Diálogo de Civilizaciones o el Fondo de Dota-c
+ión Istoki, hasta la financiación de organizaciones ultraconservadoras, a
+ntifeministas o anti-LGTB, pasando por la presidencia del Congreso M
+undial de las Familias, la sociedad caritativa San Basilio el Grande —
+para la salud y educación infantiles— o la organización del simposio para
+conmemorar el 200.º aniversario del Congreso de Viena que puso fin a
+las guerras napoleónicas e instituyó en Europa la Santa Alianza, consti-tuida por el zar de R
+usia y los emperadores de Prusia y Austria13 . 13
+P ara una aproximación rápida, véase por ejemplo: «Dos oligarcas rusos riegan con sus fortu-na
+s el movimiento antifeminista en Europa», por Ángel Munarriz, en p
+p p jpg i
+nfoLibre, 7  de marzo d
+e 2022 [consultable en red]. Para el trabajo seminal de referencia: Datta (2016).
+
+---
+
+CA
+ÍN CONTRA CAÍN145 Así
+que no solamente parte de la ultraderecha europea y americana fue
+hacia la nueva ultraderecha rusa, sino que la ultraderecha rusa se diri-g
+ió también a ella. La atracción fue recíproca y regada con financiación s
+uficiente y hasta generosa. Precisamente, el mismo Maloféyev fue uno de los
+encargados de gestionar el apoyo ideológico —en sentido amplio, in-cluy
+endo medios económicos— a la insurgencia del Donbas.Con
+todo, la dinámica enunciada va a diferir de la que se establece e
+ntre las extremas derechas internacional y ucraniana. En el caso ruso, los a
+poyos externos no van a llegar en forma tanto de combatientes volunta-rios
+—que también los hubo— como de apoyo ideológico y socavación de las
+posiciones intervencionistas occidentales desde dentro, y a veces inclu-so
+de forma indirecta. Un ejemplo es la carta abierta de Roberto Fiore al líder
+neonazi ucraniano Oleh Tiahnibok14  e n la cual expresaba su temor a q
+ue Ucrania cayera en manos de los lobbies a nticristianos y masónicos de lobbiesl
+a UE, la OTAN y los Estados Unidos. Los supremacistas blancos esta-dounidenses
+Richard Spencer, Matthew Heimbach y David Duke se pu-sier
+on del lado ruso, que lo agradeció creando una bandera para la causa secesionista
+en Ucrania basada en la utilizada por la Confederación: un aspa
+azul de San Andrés, fileteada en blanco, sobre fondo rojo, aunque sin las
+trece estrellas blancas15 .  De forma más explícita, mantuvieron tratos c
+on Moscú los neofascistas húngaros de Jobbik, los neonazis griegos de A
+lba Dorada, los austriacos del FPÖ, los flamencos de Vlaams Belang y el F
+rente Nacional de Marine Le Pen, que precisamente en 2014 obtuvo un p
+réstamo multimillonario de una entidad bancaria ligada al Kremlin en un momento de apur
+o para el partido. E
+n cualquier caso, pronto queda patente que en el Donbas el núcleo ideológico
+de ambos bandos enfrentados, o al menos el que confiere moral y
+determinación a los ejércitos en lucha, es el mismo: ultranacionalismo, neofascismo
+e identitarismo. En su momento costó mucho aceptarlo por par
+te de los analistas partidarios de uno u otro bando que proyectaban en el
+contrario los propios sonrojos. Timothy Snyder escribió que «el esqui-z
+ofascismo fue una de las numerosas contradicciones visibles en la prima-14
+La carta se puede leer en varias direcciones, en la red. Por ejemplo, en «La solidarietà di F
+orza Nuova con i fascisti ucraini», por Marco Santopadre, en Contr opiano, post 27 de febrero de 2014 [consultable en r
+ed].15
+Snyder (2018): pp. 145-146.
+
+---
+
+146
+146U CRANIA 22v
+era de 2014»16 .  Este era un término muy útil para entender ese mecanismo: «
+Era una nueva variedad de fascismo que podríamos llamar e squizofascismo:l
+os verdaderos fascistas llamándoselo a sus adversarios»17 .  Este autor solo se lo a
+tribuía al bando ruso o prorruso, aunque ese era también un recurso del n
+acionalista ucraniano. Pero la realidad ahí estaba, bien presente y cobrándo-s
+e vidas humanas: el fascismo y el ultranacionalismo pueden combatirse entre sí
+. De hecho, en la historia contemporánea se han dado varios casos, sobre to
+do durante la Segunda Guerra Mundial. Es una falacia suponer que la ul-t
+raderecha y el fascismo, por definición y por sistema, tienden a organizar f
+rentes comunes contra la democracia liberal o la izquierda. En realidad, re-s
+ulta bastante natural que los ultranacionalismos luchen entre sí. E
+n el Donbas insurgente la estructuración de la ultraderecha en el d
+ispositivo político-militar mantuvo ciertos paralelismos con la que se ar-ticulaba
+en el bando de Kiev, pero con particularidades muy especiales. En su
+detallado estudio sobre la guerra del Donbas (2016), Rubén Ruiz Ra-m
+as y Javier Morales hacen un repaso documentado de las diversas ten-d
+encias políticas presentes en la zona insurgente y en las diferentes unidades paramilitar
+es. El cuadro es laberíntico, pero se puede resumir a partir de unos pocos parámetr
+os.A
+unque todavía es pronto para que se publiquen estudios desapasio-nados
+sobre la guerra del Donbas, todo parece indicar que, si bien Moscú t
+enía un plan de contingencia para hacerse con el control rápido de Crimea, por
+la cuenta que les traía no perder la base de Sebastopol, y eso desde antiguo,
+en cambio la insurgencia en el Donbas le pilló más por sorpresa. Eso
+fue debido a la precipitada fuga del presidente Yanukovich, que dejó t
+ras de sí un vacío de poder en el este y sur de Ucrania, plazas fuertes del P
+artido de las Regiones. Y también al hecho de que Moscú no deseaba, de b
+uenas a primeras, anexionarse el Donbas, como sí que hizo con Crimea, un
+territorio considerablemente más poblado por rusos étnicos que la U
+crania oriental. Por lo tanto, se impuso un cierto grado de improvisación a par
+tir de las fuerzas en presencia.H
+aciendo una clasificación sencilla, en la primavera de 2014 se en-c
+ontraban en el Donbas la facción de los federalistas, los panrusos y la ultrader
+echa eurasianista o neoeurasianista. 16
+I bid., p . 144.17
+I bid., p . 143.
+
+---
+
+CA
+ÍN CONTRA CAÍN147 Los
+primeros constituían los restos del régimen político colapsado con
+la desaparición de Yanukovich y el hundimiento del Partido de las R
+egiones. Ya no contaban los que apostaban por una Ucrania unida y centralizada
+porque, en un contexto de confrontación militar, no había espacio
+político para ellos. Solo cabe, en el mejor de los casos, optar por u
+na Ucrania federal. Esta facción, que no poseía una representación polí-tica
+concreta, era el grupo posibilista: capacidades de influencia, disposi-c
+ión a cubrir vacío de poder, vínculos amistosos con los oligarcas de la z
+ona y el antiguo aparato de la administración «azul» y unas buenas rela-c
+iones con Moscú: cada uno sabe dónde está. Gente de orden, conserva-dor
+es, disponen de su propia unidad de combate, la Brigada Vostok.Los
+panrusos estaban por la secesión del Donbas y su integración en l
+a «madre Rusia». En cuanto a sus opciones socioeconómicas, eran conser-v
+adores y, como los federalistas, mantenían contactos con el anterior apa-rato
+de poder en la zona, incluyendo en ello al oligarca Ajmetov, quien al par
+ecer contribuyó discretamente a la puesta a punto de la Brigada Oplot, la
+poderosa unidad de combate de esta facción, comandada por Aleksandr Z
+ajarchenko, quien en agosto de 2014 llegará a ser primer ministro de la R
+epública Popular de Donetsk. Los fundadores del partido Op lot(F orta-tl
+eza) proceden del Partido de las Regiones, y de entre ellos destacan Alek-sandr
+Bobkov y Serguiy Arbuzov, ambos cercanos a la claque de Yanuko-v
+ich y el segundo de ellos, además, primer ministro de Ucrania en los m
+omentos finales del huido presidente. Con todo, habían estado entre l
+os iniciadores de la ocupación de edificios administrativos en Donetsk, c
+iudad que controlaban. Los panrusos mantienen buenas relaciones con los federalistas,
+igualmente conservadores, con los que sostienen una alianza política y operativ
+a. E
+n tercer lugar, los neoeurasianistas. Su ideología entroncaba directa-mente
+con lo que se podría llamar la doctrina de la transición gestionada p
+or Putin en Moscú. La idea consiste en hacer las paces con el pasado para e
+rigir sobre ello un futuro viable; en ese caso, ello se logró asimilando el orgullo
+por la herencia soviética, fracasada en 1991, a la reivindicación de lo
+mejor del Imperio zarista, desaparecido en 1917. El resultado de todo ello
+se combinó con una reformulación de la antigua teoría eurasianista d
+el príncipe Nikolai T rubetskoi y otros seis pensadores en los años vein-t
+e del siglo xx .  La idea, actualizada por Aleksandr Dugin, el gran teórico del
+moderno ultranacionalismo ruso, establece, entre otros principios, que
+
+---
+
+148
+148U CRANIA 22R
+usia es una civilización en sí misma, síntesis con carácter propio de Eu-r
+opa y Asia. Y como tal, su historia y destino están llamados a permanecer durante
+siglos, lo que supone que el periodo soviético no es sino una eta-pa,
+grandiosa pero más bien corta; una más entre otras pasadas y las que v
+endrán. De esa forma las propuestas marxistas-leninistas de la Unión S
+oviética quedan relegadas en favor de una visión nacionalista de la URSS, una
+superpotencia militar y estratégica de la que solo se mantienen restos de
+la fachada exterior y de ciertas maneras de gestionar el poder que ejer-cen
+los líderes formados en la cultura soviética, comenzando por Vladimir P
+utin.A
+sí que no van a regresar los sóviets ni la planificación centralizada o l
+a propiedad socializada. Pero para muchos rusos, es suficiente con el en-v
+oltorio de esas grandes propuestas. De ahí el éxito de la «síntesis putinia-na»
+que borra el desastre del experimento neoliberal en los años noventa, e
+n tiempos del presidente Boris Yeltsin, y lo sustituye con promesas de grande
+za nacional.Y
+esa es precisamente la tendencia de los líderes más agresivos entre la insurgencia
+en el Donbas: el ya mencionado y temible Igor Girkin St rel-k
+ov, asociado con Alexander Borodai: licenciado en Filosofía, correspon-s
+al de guerra en Chechenia para RIA Novosty, columnista en el rotativo neofascista
+Z avtra, asesor electoral, experto en manejo de crisis políticas para
+una consultoría, asesor del primer ministro de Crimea, Sergei Aksi-y
+onov. Y, sobre todo, ferviente neoeurasianista, amigo del profesor Lev G
+umyliov, el críptico gurú del nuevo eurasianismo, fallecido en 1992. Así como
+St relkovl lega a ser el gran jefe militar en el Donetsk, Borodai deven-vdrá
+primer ministro de la RPD. Ya se ha mencionado también al historia-d
+or Pavel Gubarev, elegido como gobernador popular de Donetsk ya en mar
+zo de 2014.S
+on personajes salidos de no se sabe bien dónde, pero que no parecen enviados
+por Moscú, ni mucho menos. En realidad, terminan por inco-m
+odar a los rusos con sus propuestas de nacionalización de empresas y de expansión
+de la insurgencia más allá de las fronteras del Donbas. Están más
+que dispuestos a hacer realidad el proyecto ultra N ovorrósiya, es decir, N
+ueva Rusia: una gran república que puede abarcar más del 20, del 30 o quizás
+el 40% de Ucrania, sobre las tierras que el Ejército imperial ruso había
+liberado de los tártaros en el siglo x /v.sc/i.sc/i.sc/i.sc y que se habían ocupado y t
+rabajado en régimen de colonización. La confederación Nueva Rusia po-
+
+---
+
+CA
+ÍN CONTRA CAÍN149 dría
+incorporar, en 2014, los óblast de Dnipropetrovsk, Zaporiyia, Myko-l
+aiv, Jerson, Odesa, parte del óblast de Kirovogrado, aparte de Lugansk y D
+onetsk. Pero de hecho, Girkin y Borodai llegan a soñar con llegar a Kiev y
+reincorporar toda Ucrania, menos la Galitzia, vista como demasiado p
+olaca, a la madre Rusia. Los neoeurasianistas del Donbas se apuntan a t
+odas, a las propuestas de Dugin sobre el «fascismo rojo y sin fronteras», al P
+royecto Ortodoxo Rojo o el Socialismo Soviético Ortodoxo. Ahí se fun-d
+e todo: la Iglesia ortodoxa, las síntesis neofascistas más modernas, el idea-r
+io soviético puesto al servicio del nacionalismo. Por ello en esos círculos se
+integran comunistas del PCU, neoestalinistas, militantes de izquierdas de
+opciones menores, voluntarios extranjeros de esas tendencias, cosacos y hasta neomonár
+quicos zaristas. Los
+neoeurasianistas son los ultranacionalistas de la insurgencia que no
+tienen ambages en presentarse como rojipardos o nazbols ( nacional-nazbolsbolcheviques)
+y en un primer momento resultan útiles a Moscú. Además, tienen
+algunos contactos allí, y Maloféyev, que simpatiza con ellos y su popurrí
+de ideas conservadoras y revolucionarias a la vez, les suministra ayuda
+financiera. Pero eso no quiere decir que Putin viera con buenos ojos esa
+kermesse heroica. En Moscú él no se casa con nadie. Aplica el habitual juego
+de equilibrios y contrabalances entre facciones, tendencias y pode-r
+es, propio de cualquier régimen autoritario. Los asesores y consejeros van y
+vienen, suben y bajan. En la primavera de 2014, los neoeurasianistas del D
+onbas dicen luchar contra el fascismo, recuperan la épica ruso-soviética d
+e la Gran Guerra Patriótica y combaten con ellos unidades que exhiben l
+a bandera roja junto con la nacional rusa. Girkin posee su propio batallón d
+e fieles, y cuenta además con aliados valiosos como Igor Bezler, con su p
+ropia unidad, los batallones Batman y Variag, la Brigada Prizrak, el Ejér-c
+ito del Gran Don, integrado por cosacos, y el Ejército Ortodoxo Ruso, compuesto
+por neonazis. Y junto a ellos, unidades más o menos izquier-d
+istas o «proletarias», como la Brigada Kalmius en Donetsk, compuesta p
+or voluntarios mineros o el Destacamento de Voluntarios Comunistas (DK
+O) en Lugansk, además de numerosos voluntarios chechenos.T
+oda esta densidad de odio y fanatismo explotó en Odesa, paradóji-camente,
+lejos del epicentro de la contienda, que era el Donbas. En esa ciudad
+de gran mayoría rusófona, el 3 de marzo había tenido lugar un intento
+de ocupación del edificio de la administración regional, a fin de p
+edir un referéndum de autonomía para el óblast. Un mes más tarde vol-
+
+---
+
+150
+150U CRANIA 22v
+ieron a producirse manifestaciones federalistas y cobró forma allí un mo-vimiento
+Antimaidan. A partir de ahí, a la manera de lo sucedido en Kiev, aunque
+en un sentido político inverso, los jóvenes contestatarios organiza-r
+on un campamento permanente de protesta en Campo Kulikovo, ante la S
+ede de los Sindicatos. Allí los militantes del movimiento Alternativa Po-p
+ular recogían firmas en pro de un referéndum para la descentralización d
+el poder, la oficialidad de la lengua rusa y cambios en la orientación de la política
+exterior ucraniana. El 1.º de Mayo se organizó una gran manifes-tación
+en la que se pedía el referéndum para la federalización y se exhibían pancar
+tas antifascistas.Alguien
+debió de pensar que se había llegado demasiado lejos, porque al
+día siguiente los nacionalistas ucranianos organizaron una gran mani-festación
+para reclamar la unidad nacional. El núcleo de ese evento lo constituían
+militantes de P ravy Sektor —muchos, al parecer, llegados des-de
+Kiev—, así como ultras de los equipos de fútbol Chernomorets Odessa y
+Metalist Járkov. Como en las guerras de la antigua Yugoslavia, como en el g
+enocidio de Ruanda en 1994 y otros conflictos, hinchas violentos de los equipos
+de fútbol constituyeron el núcleo de milicias y grupos paramilita-r
+es utilizados para combatir en guerras civiles o desencadenar masacres de población
+civil. Así, de la misma forma que de los ultras del Estrella Roja d
+e Belgrado surgió el núcleo de los «Tigres» de Ar kan que se distinguieron por
+llevar a cabo crímenes de guerra en Croacia y Bosnia, de Sect 82 del M
+etalist Járkov surgió el Batallón Azov, de probada ideología neonazi. La
+manifestación nacionalista recorrió Odesa protagonizando enfren-tamientos
+violentos, pues algunos portaban armas de fuego o escudos y g
+arrotes, propios de los «autodefensas del Euromaidan». Al final conver-g
+ieron sobre Campo Kulikovo, donde atacaron y quemaron las tiendas de los
+Antimaidán, que corrieron a refugiarse en la Sede de los Sindicatos. Los
+ultras no se detuvieron allí. Lanzaron numerosos cócteles Molotov contra
+el enorme edificio hasta que lograron prender un aparatoso incen-d
+io. Como este comenzó por la puerta principal, las personas que se ha-b
+ían refugiado allí no pudieron salir. Algunos de los que, presas del páni-co,
+se lanzaron desde las ventanas fueron rematados en el suelo por los ultras.
+Los bomberos tardaron en llegar, y cuando lo hicieron no pudieron extinguir
+el fuego porque lo impidieron los grupos de fanáticos que rodea-ban
+el edificio. En total perecieron 42 personas, muchas de ellas asfixiadas o quemadas, y 214 r
+esultaron heridas.
+
+---
+
+CA
+ÍN CONTRA CAÍN151 L
+as imágenes, retransmitidas por televisión en directo, mostraron e
+scenas de una crueldad inaudita. Ultras que seguían lanzando botellas d
+e gasolina contra el edificio cuando ya ardía sin control; jóvenes que se h
+acían selfis frente a la pira; grupitos rematando a los infortunados que h
+abían saltado y yacían en el suelo traumatizados; jovencitas adolescen-t
+es preparando cócteles Molotov; tipos armados con palos merodeando p
+or Campo Kulikovo con gesto extraviado. Imágenes que retrotraían a l
+os pogromos de Lviv en 1918 o, peor aún, los de 1941, protagonizados p
+or partidarios del UPA y simples civiles —entre ellos algunos niños—, l
+os cuales masacraron a miles de judíos tras llegar las tropas alemanas a
+la localidad, en los primeros días de la invasión de la Unión Soviéti-ca
+18 .  Los mismos rostros de sadismo y borrachera de violencia colectiva b
+ajo el calor del verano y los incendios. Porque la masacre de Odesa fue un
+pogromo organizado con antelación, en el cual parece que estuvo i
+mplicado el mismo alcalde de la ciudad, socio del oligarca Kolomoiski, q
+ue dejó actuar a los de P ravy Sektor y  no hizo nada por detener la m
+asacre19 . La
+investigación oficial no llegó a ninguna conclusión y se disolvió en el
+tiempo y el olvido20 .  Sin embargo, la matanza tuvo un efecto electrizan-t
+e. Hasta ese momento, las fuerzas presentes en el Donbas habían estado tanteándose.
+A partir de ese momento, que también coincidió con los combates
+para la reconquista de Kramatorsk, el choque cobró entidad de guerra abier
+ta.Las
+autoridades de Kiev tenían prisa por recuperar el terreno perdido, máxime
+teniendo en cuenta que el 11 de mayo se celebraría el referéndum para
+la independencia de las Repúblicas Populares de Donetsk y Lugansk, y
+que el 25 de ese mismo mes tendrían lugar las elecciones presidenciales e
+n Ucrania. En esta fase de la guerra, el gobierno decretó la movilización mientras
+el presupuesto militar se incrementaba en un tercio. A pesar de ello,
+la falta de medios del Ejército imponía una estrategia de presión y asedios
+sobre las ciudades a tomar, concentrándose en la recuperación del 18
+Amar (2015): pp. 94-98, para detalles y referencias sobre el pogromo de Lviv; Motzkin (1927/2010),
+para los pogromos en Ucrania entre 1917 y 1920, durante la primera indepen-dencia.
+19
+Ruiz Ramas (2016): p. 152.20
+Véase el vídeo de noticias: «Ucrania, crimen sin esclarecer», enfoque Europa, D eutsche Welle, 28 de abril de 2017 [consultable en
+YouT ube].
+
+---
+
+152
+152U CRANIA 22p
+uerto de Mariúpol, en el sur, y las localidades de Kramatorsk y, sobre t
+odo, Sloviansk, en el centro del frente rebelde, e intentando disputar el co
+ntrol de puntos de acceso a lo largo de la frontera con Rusia. Tal estra-t
+egia era la única que se podía aplicar, dadas las circunstancias y medios d
+e las fuerzas armadas ucranianas. Pero tenían la desventaja de que las un
+idades comprometidas en esos cercos quedaban aisladas en el archi-p
+iélago de «islas» que eran las posiciones de los insurgentes, los cuales se c
+entraban en el control de las localidades conquistadas, a veces sin conexión en
+tre sí. E
+n esas circunstancias, van a celebrarse los referéndums en el Donbas, en
+los cuales, a pesar de ganar mayoritariamente el sí (sin observadores internacionales),
+no van a ser reconocidos por ningún país, ni siquiera por R
+usia. En cierta manera va a ser un jarro de agua fría a las ambiciones de los
+sectores más radicales de la insurgencia. Pocos días más tarde, en Kiev, g
+ana las presidenciales el oligarca Petró Poroshenko, el «rey del chocolate». Allí
+el mundo político surgido de la independencia en 1991 se ha quema-do,
+las convulsiones y la guerra lo han diezmado y las figuras veteranas se h
+an retirado o no cotizan, en un panorama dominado por nuevas fuerzas y
+necesidades. Yulia Timoshenko solo obtiene un 12,81% de los votos; el b
+oxeador Vitaliy Klichkó se retira de la carrera por la presidencia y se cen-tra
+en la alcaldía de Kiev. Los hombres de los alemanes ya no juegan en primera
+línea, y el insumergible Poroshenko, que subvencionó la Re volu-ción
+Naranja, fue escudero de Yushchenko, ministro de Yanukovich y par-t
+idario del Euromaidan, gana las elecciones ya a en la primera vuelta, con un
+54,70%, algo no visto en Ucrania desde 199121 .  Se supone que puede ser
+una figura de consenso para salir de la crisis que ha generado el estalli-do de la guerra civil.
+Comienza
+su mandato con energía y triunfalismo. Llega a proclamar que
+terminará con el conflicto en horas; y en efecto, tras el fracasado in-t
+ento de retomar el aeropuerto de Donetsk por parte del Batallón Vostok, que
+se salda con más de una treintena de muertos, la mayoría voluntarios r
+usos y chechenos, parece que las cosas le están yendo mal al bando insur-g
+ente. En base a ello, y a partir de su toma de posesión formal como pre-s
+idente, a comienzos de junio, Poroshenko desarrolla un plan de paz que 21
+Para la carrera de Poroshenko como oligarca y político, véase Sakwa (2016): pp. 63-65. T
+ambién: Ward (2016).
+
+---
+
+CA
+ÍN CONTRA CAÍN153 lanza
+oficialmente tras mantener una conversación telefónica con Putin, el 2
+0 de junio. Esta salida diplomática se basa en quince puntos que garan-tizan
+la seguridad de los insurgentes para negociar el final de la guerra, la r
+econstrucción del Donbas, la preservación del idioma ruso como lengua o
+ficial y diálogo para pactar alguna forma de autonomía administrativa. A continuación,
+decreta un alto el fuego unilateral a fin de favorecer la salida de los v
+oluntarios rusos. Las
+negociaciones parecen a punto de alcanzar el éxito. La OSCE hace
+de mediadora entre Poroshenko y los insurgentes, con la participa-ción
+del expresidente Kuchma. En Moscú, Putin hace un gesto de buena v
+oluntad: en marzo, durante la crisis de Crimea, había pedido permiso al Consejo
+de la Federación para enviar tropas al territorio ucraniano. Aho-ra, en junio, pide la r
+evocación de esa autorización. Y
+entonces el sector neofascista de los insurgentes, los neoeurasianis-t
+as, hacen descarrilar la posibilidad de un acuerdo situándose en contra de
+los «conservadores» federalistas y panrusos. Para ellos, lo que propone P
+oroshenko es la capitulación, y ahí los ultras van a llevar la peor parte. A
+demás, el primer ministro de la RPD, Borodai, y el ministro de Defensa y
+líder militar en la misma república, Igor Girkin S trelkov, así como el r
+esto de los neoeurasianistas —y los comunistas, ya convertidos en nazbol o
+rojipardos— están decididos a demostrar que no son unos peones del K
+remlin, y que incluso pueden llegar a imponerle sus ambiciones. R
+otas las negociaciones y expirado el alto el fuego, el 30 de junio las t
+ropas ucranianas reemprenden los ataques y comienzan a obtener resulta-d
+os tangibles. El 5 de julio logran tomar Kramatorsk, Sloviansk y Arte-m
+ovsk, romper la cerradura del frente en el Donbas e irse acercando al centr
+o del dispositivo insurgente. E
+l Estado Mayor ucraniano ha ido cobrando aplomo, y se lanza a planificar
+asaltos aerotransportados mediante helicópteros para tomar los aer
+opuertos de Donetsk y Lugansk y también para abastecer a las unidades de
+cerco que se han ido quedando aisladas en territorio enemigo, sobre todo
+las desplegadas en la frontera entre Rusia y el Donbas. La estrategia no
+termina de funcionar, porque los aparatos están anticuados no poseen sistemas
+de contramedidas y de navegación para operar de noche. Y las t
+ropas de élite ucranianas son insuficientes y solo se puede comprometer a
+un par de compañías por operación. Pero también porque desde Moscú deciden
+enviar armamento antiaéreo a los insurgentes. En consecuencia,
+
+---
+
+154
+154U CRANIA 22l
+os helicópteros empezaron a caer uno tras otro, derribados por las ametra-l
+ladoras pesadas y, sobre todo, los misiles antiaéreos portátiles (MANPADS), con
+los que, el 14 de junio, incluso lograron derribar un enorme avión de t
+ransporte Iliushin Il-76 que pretendía aterrizar en el aeropuerto de Lu-gansk,
+matando a cuarenta paracaidistas de la 25.ª Brigada Aerotranspor-t
+ada y a la tripulación del aparato. Así, desde el 2 de mayo hasta finales del mes
+de agosto serán derribados por los rebeldes nada menos que diecisiete helicópter
+os ucranianos, siete aviones de combate y tres aviones de trans-por
+te22 ;  esto es, una parte sustancial de la fuerza aérea ucraniana ha que-dado fuera de combate.
+P
+ero conforme la apuesta rusa sube, se produce un incidente muy gra-v
+e: el derribo del vuelo 17 de la Malaysia Airlines (MH17) sobre territorio d
+el Donbas, el 17 de julio. Cubría el trayecto entre Ámsterdam-Schiphol y
+Kuala Lumpur . M urieron 283 pasajeros y 15 miembros de la tripula-c
+ión. Más de siete años después de la catástrofe, en diciembre de 2021, la F
+iscalía neerlandesa presentó sus conclusiones en el juicio sobre el derribo, p
+roceso que se sigue en ese país, aunque continúan sin haber sido esclare-cidos todos los hechos.
+La
+hipótesis ucraniana y de los analistas occidentales fue que el MH17 r
+esultó derribado por los insurgentes, que estaban recibiendo ayuda anti-aér
+ea suplementaria de los rusos en forma de baterías de misiles capaces de abatir
+aviones a gran altura. En este caso, parece que un transporte provis-to
+del sistema de misiles Buk-1 había accedido al Donbas cruzando la f
+rontera rusa y había cometido un error al derribar al avión de pasajeros, confundiéndolo
+con un transporte militar ucraniano. En concreto, la in-v
+estigación internacional identificó a la 53.ª Brigada de Misiles Antiaéreos d
+el Ejército ruso como la unidad orgánica a la que estaba adscrito el misil r
+esponsable del derribo, y señaló a tres responsables rusos y un ucraniano, ente
+ellos Igor Girkin23 .  Sin embargo, la responsabilidad del disparo fue de
+la unidad de cosacos del atamán Nikolai Kozitsin24  . Al parecer , por e
+ntonces, y debido al peligro que representaban las defensas antiaéreas in-surgentes
+para la aviación ucraniana, aparatos de esa nacionalidad habían 22
+Goya (2022): pp. 25-26.23
+«MH17 Ukraine plane crash: What we know», en BBC News, 26 de febrero de 2020 [con-sultable en r
+ed].24
+«From the archives: SBU intercepts phone conversations of separatists admitting downing a civilian plane», por
+K yiv Post, 18 de julio de 2014 [consultable en r ed].
+
+---
+
+CA
+ÍN CONTRA CAÍN155 intentado
+acceder al teatro de operaciones situándose bajo la sombra del radar de nav
+es comerciales. Los
+insurgentes negaron la responsabilidad del hecho y respondieron c
+on sus propias explicaciones25 ,  pero, sea como fuere, el incidente perju-dicaba
+gravemente su imagen y la de sus protectores. El apoyo internacio-n
+al al régimen de Kiev se reforzó y se redobló la intensidad de la ofensiva militar
+contra los insurgentes hasta ponerlos contra las cuerdas. Una cuña p
+enetró en su territorio separando e incomunicando a Donetsk con Lu-gansk,
+los ucranianos sostenían combates a las puertas de ambas capitales y
+la plaza fuerte de Gorlovka estaba asediada. El territorio de la República P
+opular de Donetsk, por otra parte, quedó aislado de la frontera rusa. Los ucranianos
+combatían con rabia, sin contemplaciones, y bombardeaban z
+onas de población civil con artillería y lanzacohetes múltiples, provocan-do
+muchas bajas. Llegó un punto en que estas acciones enturbiaron la solidaridad con las fuer
+zas de Kiev a raíz del derribo del MH17.A
+comienzos de agosto, el mapa del territorio controlado por los in-surgentes
+en el Donbas parece desgarrado, hecho trizas, por la ferocidad del
+ataque ucraniano. En medio de esta situación, ya desde finales de julio, Ig
+or St relkovc lama públicamente contra Putin pidiendo ayuda militar. vD
+enuncia su aparente pasividad y amenaza con un Maidan en Moscú. «
+Espero que la tragedia de Ucrania no se convierta en la tragedia de Ru-s
+ia, ni en la tragedia personal de Putin», escribió Igor Druzd, el asesor de St
+relkov26 . F
+inalmente, Putin decide intervenir. No puede dejar tirados a los in-surgentes
+en la derrota después del derribo del MH17, porque sería como admitir
+que la causa del nacionalismo ruso en Ucrania se resume en una chapuza
+criminal, en la imagen de decenas de cadáveres de viajeros des-membrados
+cayendo sobre viviendas y campos del Donbas debido a la torpe
+za de los milicianos. Pero los neoeurasianistas no pueden seguir asu-m
+iendo la responsabilidad política máxima y el mando militar de las Re-p
+úblicas Populares del Donbas. Si Putin se lo permite, los neoeurasianistas 25
+«Conspiracy Files: Who shot down MH17?», por Mike Rudin, 25 de abril de 2016 [consul-table en r
+ed].26
+«Putin’s Number One Gunman in Ukraine Warns Him of Possible Defeat. Igor Strelkov, the r
+ebel commander many hold responsible for firing on MH17, is sending a thinly veiled war-n
+ing to the Kremlin that he won’t go down alone», por Anna Nemtsova, The Daily Beast, 25 de julio de 2014 [consultable en r
+ed].
+
+---
+
+156
+156U CRANIA 22d
+e Moscú, a su vez, cobrarían demasiada influencia en su entorno, en detrimento del equilibrio de poder
+.P
+rimero llegan las purgas. Igor Girkin St relkove s cesado como minis-vt
+ro de Defensa de la RPD, el 14 de agosto. Alexander Borodai había deja-do
+su cargo de primer ministro ya una semana antes. En Lugansk, Valery B
+olotov deberá abandonar la presidencia el 14 de agosto. Esos cargos re-c
+aerán en manos de nacionalistas panrusos, más moderados: Aleksandr Z
+ajarchenko, el líder de Oplot, sustituirá a Borodai. Los recién ascendidos son
+todos ucranianos del Donbas, frente a los neoeurasianistas cesados, vistos
+ahora como unos «aventureristas» de nacionalidad rusa. Un desco-nocido
+Vladimir Kononov Ts ar, teniente coronel de las fuerzas armadas de la
+RPD, sustituirá a St relkov.  Pero da igual, porque a partir de entonces la mar
+cha de las operaciones la llevarán militares rusos de alta graduación, y en la sombra.
+L
+os refuerzos comienzan a cruzar la frontera el día 15 de agosto, justo al
+día siguiente de las purgas efectuadas en el Donbas. Pero la operación n
+o se limita a enviar material militar y tropas. Es todo el estilo operativo e
+l que va a cambiar, sustituyendo la guerra de insurgencia que desarrollan l
+as milicias prorrusas por despliegues y tácticas profesionales de última g
+eneración. A mediados de agosto, los mandos rusos van a poner en liza l
+os GTIA o Grupos Tácticos Interarmas, en su denominación francesa y española,
+o BTG (Б /uni0430/uni0442/uni0430/uni043B/uni044C/uni043E/uni043D/uni043D/uni0430/uni044F /uni0442/uni0430/uni043A/uni0442/uni0438/uni0447/uni0435/uni0441/uni043A/uni0430/uni044F /uni0433/uni0440/uni0443/uni043F/uni043F/uni0430,  Battalion Tactical G
+roup), en sus siglas rusas y anglosajonas. Por entonces era un concepto t
+áctico de reciente aparición. Consistía en formar una unidad tipo bata-l
+lón reforzada con diversas capacidades para operar de forma semiautóno-ma
+en una misión concreta. La variante rusa de este concepto agrupaba ad hoc
+a  unos quinientos hombres que combinaban una gran potencia de f
+uego y una movilidad procedente de diversas unidades. En el Donbas reu-nían
+carros de combate, transportes de tropas blindados y artillería mó-vil
+27 .  Se había comprobado que la artillería bien utilizada resultaba devas-tadora
+contra las fuerzas ucranianas. El 11 de julio, en Zelenopilya, un batallón
+mecanizado ucraniano había sido diezmado en tan solo tes minu-t
+os por salvas de diversos tipos de cohetes, termobáricos y anticarro, l
+anzados por LRM o lanzacohetes múltiples28  (los célebres «órganos de 27
+Goya (2022): pp. 36-37.28
+I bid., p . 29.
+
+---
+
+CA
+ÍN CONTRA CAÍN157 S
+talin» de la Segunda Guerra Mundial). La superioridad rusa en la utiliza-c
+ión del arma de artillería era histórica, al ser esta la que permitió con-t
+rarr estar a la caballería tártara en las estepas ya desde el siglo x/v.sc /i.sc.  Los oficiales
+superiores ucranianos, formados en las academias de la Unión S
+oviética, también han recurrido a la artillería, y de hecho esta arma es la r
+e s p o n s a b l e  d e l  8 5 %  d e  l a s  p é r d i d a s  e n  l a  g u e r r a  d e l  D o n b a s29 .  Por lo tanto,
+los GTIA o BTG rusos van a integrar una gran potencia de fuego a
+rtillero móvil: LRM, obuses automotores de 152 o 203 mm y piezas de 1
+2 2  m m .  T o d o  e l l o  p e r m i t e  g o l p e a r  a l  e n e m i g o  e n  p r o f u n d i d a d ,  h a s t a  distancias
+incluso de 90 kilómetros, lo que favorece que esas unidades, que
+se introducen clandestinamente en Ucrania, no sean detectadas por l
+as fuerzas de Kiev. Contribuirá a ello la cuidadosa elección de soldados bien
+adiestrados y con alta moral, seleccionados para la ocasión y que solo v
+an a permanecer sobre el terreno unas pocas semanas. De otra parte, los GTIA
+se camuflarán en el seno de las unidades milicianas insurgentes. H
+acia finales de agosto, el número de efectivos rusos en Ucrania pasa de l
+os 3.500 a los 6.500, según estimaciones, lo que equivale al 15 o 25% del total de fuer
+zas insurgentes en el Donbas30 . La
+contraofensiva rusa, desde mediados de agosto, pilla por sorpresa al
+gobierno ucraniano y a los países occidentales, que ya daban por fini-quitada
+la insurgencia en el Donbas. El golpe ofensivo inicial de los rusos s
+e produce la noche del 23 al 24 de agosto en el frente ucraniano de la f
+rontera, cuando el 5.º Batallón T erritorial se desbanda ante la acometida r
+usa y deja una brecha de 40 kilómetros por la que pasa un centenar de v
+ehículos. Al mismo tiempo, en el norte, otro BTG ruso utiliza morteros 2
+S4 Tyulpan, los más potentes del mundo, de 239 milímetros y munición de
+230 kilos guiada por láser contra las fuerzas ucranianas que ocupan el aer
+opuerto de Lugansk. Cuando la 1.ª Brigada Blindada ucraniana inten-ta
+un contraataque, ha de hacer frente a los carros de combate rusos T72B y
+T90 en el primer choque de tanques a gran escala, en Europa, desde la S
+egunda Guerra Mundial. Los blindados ucranianos son rechazados y los paracaidistas abandonan el aer
+opuerto de Lugansk el 1.º de septiembre.P
+ero el golpe más letal lo sufren los ucranianos en la localidad de Ilo-v
+ajsk, al sureste de Donetsk. Allí, fuerzas de los batallones Dombass, Dni-29
+I bid., p . 31.30
+I bid., p . 37.
+
+---
+
+158
+158U CRANIA 22p
+ro y Jerson, además de elementos de una brigada de tanques y dos meca-nizadas,
+son cercados desde el 24 de agosto y machacados por la artillería r
+usa, sin que otras fuerzas ucranianas puedan romper el cerco. En la reti-rada
+subsiguiente, negociada por los altos mandos, se producen nuevas pér
+didas en combates hasta el 29 de agosto; Ilovajsk es reconquistada por l
+os rusos el 1.º de septiembre. Esta batalla, muy sangrienta, fue el mayor d
+esastre militar del Ejército ucraniano hasta entonces, con unas pérdidas de
+entre 450 y un millar de hombres y un número similar de heridos y prisioner
+os31 . Ante
+este desastre, como había sucedido poco antes en el bando insur-gente,
+las «unidades políticas» protestaron por la ineficacia del alto man-do,
+desde el comandante del Batallón Donbass, Semén Semenchenko, que
+acusó al gobierno de haberlos abandonado en Ilovajsk, hasta parami-litar
+es del Euromaidan en Kiev, que amenazaron con volver a movilizarse. La
+derrota fue vista por los ultranacionalistas como un intento de margi-n
+arlos y eliminarlos enviándolos al combate. Como anécdota, Volodímir P
+arasiuk, el joven líder del grupo de autodefensa que la noche del 20 de f
+ebrero había lanzado el ultimátum a Yanukovich para que dejara el poder, alistado
+posteriormente en el Batallón Donbass, fue hecho prisionero por los r
+usos en la batalla de Ilovajsk.E
+l último BTG se abrió paso por la costa capturando Novoazovsk el 27
+de agosto y dirigiéndose hacia la ciudad portuaria de Mariúpol, uno de l
+os trofeos más preciados en la guerra del Donbas. Cercada por los r
+usos, los combates en su extrarradio comenzaron el 4 de septiembre pero c
+oncluyeron enseguida ante la firma del Protocolo de Minsk, al día si-guiente, que ponía fin a las hostilidades.
+L
+a iniciativa diplomática era el resultado del desplome de la moral ucraniana
+ante la intervención militar rusa. Es imposible pensar en la re-conquista
+del Donbas por la fuerza de las armas, al menos por el momen-t
+o, y se impone regresar a la mesa de negociaciones. Estas tienen lugar en M
+insk, la capital de Bielorrusia, y reúnen al expresidente Leonid Kuchma c
+omo representante del Estado ucraniano, al embajador ruso en Kiev, a los lider
+es de las RPD y RPL, Zajarchenko y Plotnitski, y a una diplomática suiza
+por parte de la OSCE. El acuerdo que se firma se basa en los quince puntos
+enunciados por Poroshenko el 20 de junio, reducidos a doce. Y se 31
+I bid., p . 40.
+
+---
+
+CA
+ÍN CONTRA CAÍN159 agr
+upan en disposiciones para detener los combates y supervisar la paz y l
+a frontera ruso-ucraniana; liberación de detenidos, secuestrados, prisio-ner
+os; mejora de la situación humanitaria en el Donbas, además de recu-p
+eración económica de la región; salida de las fuerzas y combatientes extran-j
+eros de territorio ucraniano, y puesta en marcha de la descentralización del p
+oder en Donetsk y Lugansk a través de una ley ucraniana de estatuto espe-c
+ial, lo cual se articularía a partir de unas elecciones locales anticipadas.Este
+primer acuerdo sobrevive poco tiempo, porque el 28 de septiem-b
+re los combates se reanudan en torno al aeropuerto de Donetsk. La línea del
+alto el fuego pasaba por sus pistas y era la última porción de territorio insurgente
+en manos de las fuerzas ucranianas. Por ende, aunque en esta segunda
+batalla del aeropuerto de Donetsk intervinieron diversas unida-d
+es regulares, sobre todo del lado ucraniano, los protagonistas fueron ba-tallones
+paramilitares de ideología ultra: el Batallón Dnipro y sobre todo el
+DUK de P ravy Sektorp or parte ucraniana, así como la Brigada Vostok ry
+unidades de reciente formación: el Batallón Sparta y el Batallón Somalia, del
+lado insurgente. La batalla, que se prolongó hasta enero de 2015 y en l
+a que los prorrusos lograron ocupar las instalaciones, fue un combate urba-no
+claustrofóbico entre las instalaciones del aeropuerto, reducido a ruinas d
+eformes, similar a la que tendría lugar en Mariúpol en la primavera d
+e 2022. Como en esta batalla, en la del aeropuerto de Donetsk las uni-dades
+ucranianas forjaron su propia leyenda llevando orgullosamente el sobr
+enombre dec íborgsq ue le puso el mismo enemigo. El 16 de enero se sconmemora
+en Ucrania la fiesta patriótica del Día de los Cíborgs, medio humanos y medio máquinas, superhombr
+es invulnerables.P
+ero con todo y con ello, la guerra todavía no había concluido. Aún faltaba
+la batalla más dura, el choque más cruento. Acaeció en Debáltsevo, un
+punto estratégico de gran importancia por ser cruce de carreteras y c
+entro ferroviario. Su ocupación por las tropas ucranianas impedía la co-n
+exión directa entre las ciudades de Donetsk y Lugansk, las capitales re-beldes.
+La localidad ocupaba el centro de una cuña que penetraba más de t
+reinta kilómetros en el frente insurgente y que estaba bien defendida y a
+rtillada por unos 6.000 hombres.Los
+insurgentes no están dispuestos a que los acuerdos sobre líneas del fr
+ente pactados en Minsk perpetúen la situación estratégica creada desde julio
+por la cuña de Debáltsevo y el 22 de enero lanzan una gran ofensiva para
+cerrarla y embolsar a los defensores. Para ello ponen en línea a unos
+
+---
+
+160
+160U CRANIA 2219.000
+hombres, la casi totalidad de sus fuerzas de maniobra. Han echado mano
+de todo lo que han podido, incluyendo el Batallón Prizrak, que a
+g r u p a  a  l o s  v o l u n t a r i o s  i n t e r n a c i o n a l e s ,  7 . 0 0 0  h o m b r e s  d e  l a  G u a r d i a  N
+acional Cosaca y dos BTG rusos, uno en cada flanco de la cuña. Solo ese despliegue
+ya era una prueba de que los insurgentes no estaban cumplien-d
+o los Acuerdos de Minsk, puesto que no habían evacuado a los comba-tientes extranjer
+os.La
+batalla debuta con un po tente bombardeo de artillería, pero los i
+nsurgentes y las tropas rusas empiezan a constatar que los ucranianos re-sisten
+mejor, porque están atrincherados y las nuevas tácticas del enemigo ya
+no les sorprenden como hace medio año. De esa manera, se desarrolla una
+batalla de desgaste que prefigura las que se librará siete años más tarde en
+esas mismas tierras. El 6 de febrero los combates se ralentizan mientras l
+os rusos introducen refuerzos hasta alcanzar un total de 10.000 solda-dos
+32 .  Dos días más tarde, relanzan la ofensiva con tormentas artilleras de una
+violencia no vista hasta ese momento en la guerra del Donbas. En c
+onjunto, y salvando las proporciones, el choque recuerda la batalla de K
+ursk, durante la Segunda Guerra Mundial, solo que en este caso los ata-cantes son los r
+usos.E
+l 10 de febrero, embistiendo desde el oeste, los rusos cruzan el sa-l
+iente y se hacen con la aldea de Lohvinovo, que son cuatro casas pero que c
+orta la carretera M3, eje logístico del saliente. Para no quedar aislados, l
+os ucranianos contraatacan, incluso con tanques, y el 12 de febrero se v
+ive el choque más violento de la guerra. En él, la 5.ª Brigada rusa de c
+arros, que forma el núcleo de la correspondiente BTG, pierde ocho tan-ques
+T72 B3 contra cuatro T64 ucranianos, otra prueba de que estos están apr
+endiendo con rapidez.P
+ero como un cascanueces implacable, los rusos siguen haciendo cru-jir
+el saliente con nuevo material, más lanzacohetes, más carros de comba-t
+e, y todas sus fuerzas convergen hacia Debáltsevo. Los nuevos Acuerdos d
+e Minsk se firman el 15 de febrero, pero los choques no cesan. El asalto f
+inal se produce al día siguiente. El ataque viene precedido del envío de S
+MS a los móviles de los soldados ucranianos con mensajes que les acon-s
+ejan rendirse. A la par, la electrónica rusa consigue interferir las comuni-caciones
+del alto mando ucraniano con sus sistemas R-330Zh Zhitel y las 32
+I bid., p . 45.
+
+---
+
+CA
+ÍN CONTRA CAÍN161 salv
+as de artillería son dirigidas por drones33 .  De esa forma se hunde todo el fr
+ente, y la localidad de Debáltsevo es tomada al asalto.E
+l Estado Mayor ucraniano intenta evacuar a toda prisa el saliente, en la
+noche del 17 al 18 de febrero, pero la operación se desordena y termina por
+dislocarse en pequeños grupos que escapan como pueden por el pai-saje gélido y sufr
+en fuertes pérdidas. 33
+Ib id. dd
+
+---
+
+
+
+---
+
+C
+APÍTULO 9G
+RANDES PLANES DE HUMOEL
+RÉGIMEN DEL EUROMAIDAN A
+PLICA LA TERAPIA DE CHOQUE, 2015-2016L
+a propaganda, para ser eficaz, debe ser creída. Para ser creí-d
+a, tiene que ser creíble. Para ser creíble, debe ser verdad.H
+ubert H. HumphreyLa
+firma de los Acuerdos de Minsk II dejó, de nuevo, muy mal parado a P
+oroshenko. Ya en Minsk I había tenido que pactar con los dirigentes de l
+as Repúblicas Populares de Donetsk y Lugansk, es decir, aceptar el hecho consumado
+de que en esas regiones de Ucrania gobernaban unos poderes que
+lo trataban de tú a tú. Vladimir Putin había impuesto esa condición. E
+l presidente ucraniano había accedido porque estaba claro que las fuerzas armadas
+ucranianas no tenían ya la superioridad en el campo de batalla. S
+e había rendido ante los rusos. E
+n meses sucesivos, estos habían retocado a tiro limpio las fronteras de
+facto e ntre Ucrania y lo que ya eran unas soberanías aceptadas por Kiev. P
+ero no solo no se habían desprendido de los combatientes extranjeros, como
+se estipulaba en Minsk I, sino que mantenían las fronteras abiertas de
+par en par, a fin de que siguiera entrando la ayuda militar rusa a caño libr
+e, como había quedado demostrado en la batalla de Debáltsevo. Y
+es que la hoja de ruta que marcaban los Acuerdos de Minsk no se podía seguir
+. Paul D’Anieri lo sintetizó con sagacidad: L
+a propuesta de una mayor autonomía regional fue vista como una «píldora v
+enenosa» para Ucrania. Haría a Ucrania responsable de reconstruir las re-giones
+devastadas, al tiempo que otorgaría a las regiones (y por extensión, al
+
+---
+
+164
+164U CRANIA 22p
+arecer, a Rusia) un veto sobre la futura reforma y orientación internacional de U
+crania [...]
+Cada
+lado esperaba que los compromisos que favorecía no fueran nego-ciables,
+mientras buscaba evitar los compromisos que consideraba inacepta-b
+les. El resultado fue un acuerdo que no se pudo implementar, pero tampo-co se pudo abandonar
+1 . D
+e esa forma, los Acuerdos de Minsk se convirtieron en una genuina T
+rampa 22 para todos en general y para P oroshenko en particular.2E
+n el frente de la política interior, la situación también era delicada. D
+urante la batalla de Debáltsevo, el Batallón Donbass volvió a quedar a
+trapado en el embolsamiento, y de nuevo su comandante, Semén Se-m
+enchenko, clamó que el gobierno los había dejado abandonados y re-cla
+mó la creación de un ejército paralelo, que no podía ser sino un «ejér-c
+ito político» de tendencia ultranacionalista o incluso neonazi, similar a la
+s Schutzstaffel de la Alemania nazi, con sus correspondientes divisio-n
+es Waffen SS. J
+unto con el temor a un golpe de Estado de los radicales, o a una pre-sión
+continuada, también había cobrado nueva carta de naturaleza la espi-nosa
+cuestión de los oligarcas. Como se ha visto, habían contribuido al e
+sfuerzo de guerra equipando las unidades paramilitares que habían teni-do
+un destacado papel en los primeros compases de la contienda en el D
+onbas. En algunos casos, como el de Ajmetov —aunque no era el úni-c
+o—, habían procurado nadar entre dos aguas a fin de que sus intereses en l
+as zonas insurrectas no quedaran demasiado perjudicados, en especial durante
+la «fase eurasianista» de las repúblicas populares. No era un asun-to
+baladí: el mencionado oligarca daba trabajo a casi 300.000 personas en D
+onetsk antes de la guerra. Y eso implicaba mucho poder político, tenien-do en cuenta que esa r
+egión era de las más ricas de Ucrania.Como
+no podía ser menos, esa explosiva precariedad no estaba arro-pada
+por un sistema político maduro y estable. Desde octubre, en que se habían
+celebrado elecciones parlamentarias, el presidente se apoyaba en el d
+enominado Bloque Petró Poroshenko, una coalición ad hocf ormada con hocescisiones
+de estos y los otros, de tendencia derechista liberal, que se llevó 1
+D’Anieri (2016): p. 249.
+
+---
+
+G
+RANDES PLANES DE HUMO165 la
+mayoría de escaños, 132, ayudado por la ingeniería electoral. El Partido d
+e las Regiones no se había presentado a los comicios, pero se había meta-mor
+foseado en una formación denominada Bloque de Oposición, que s
+olo obtuvo un 9,43% de los votos y 29 escaños. Entre ambos se habían r
+epartido los bastiones del Partido de las Regiones, en el este y sur de U
+crania. El centro y oeste de Ucrania, las zonas más nacionalistas, queda-r
+on en manos del Frente del Pueblo (82 escaños), un partido nacional-populista
+fundado en ese mismo año por el expresidente Oleksandr T ur-c
+hinov, el primer ministro Arseniy Yatseniuk, ambos del entorno de B
+atkivshchyna (P atria), y Yulia Timoshenko. aCon
+esos mimbres se erigió el poder político de la nueva Ucrania desgarrada,
+que solo un año más tarde ya contaba con muy escasa confian-za
+de la población. En diciembre de 2015 solo un 19% de la ciudadanía tenía
+confianza en el presidente. En el caso del gobierno, el cual seguía estando
+en manos de Yatseniuk, ese porcentaje caía hasta un dramático 8%.
+Esa tendencia continuó durante todo el mandato de Poroshenko has-t
+a hacer de Ucrania uno de los países del mundo con el nivel de confianza más bajo en su gobierno, según datos de G
+allup2 . La
+razón de ese rechazo era muy evidente para todos los ucranianos que
+conocen su país: la corrupción, la crisis económica, el empobreci-miento
+generalizado. En efecto, el final de la fase aguda de la guerra no t
+rajo la recuperación, sino la caída del PIB, la contracción económica, el descenso
+en la producción, la bajada de las exportaciones. Ucrania se fue convir
+tiendo en uno de los países más pobres de Europa. A escala interna-cional,
+su nivel de riqueza era comparable al de El Salvador; o al del Irak i
+nvadido y destruido posterior a 2003, y quizá no por casualidad. En 1992 c
+ompartía PIB con Polonia, pero once años más tarde ese país había tripli-cado
+el suyo, mientras que Ucrania no había logrado recuperar el que te-nía
+por entonces. Una conclusión desoladora, un dato a retener, aunque sea
+insistente: en 2014 Ucrania no había conseguido recuperar el nivel de su P
+IB en 19913 . E
+n consecuencia, los ucranianos emigraron, las parejas optaron por no
+tener hijos. El país perdió diez millones de ciudadanos; uno de cada 2
+«World-Low 9% of Ukrainians Confident in Government», por Zach Bikus, G allup News, 21 de mar
+zo de 2019 [consultable en red].3
+Sakwa (2015): p. 72.
+
+---
+
+166
+166U CRANIA 22t
+res vivía por debajo del umbral de pobreza. Hacia finales de la década, el 12% del P
+IB de Ucrania procedía de las remesas de la emigración.Las
+razones de este desastre estaban bien a la vista. En primer lugar, el hecho
+de que Ucrania acababa de perder buena parte del Donbas, un te-rritorio
+especialmente rico, con sus minas, recursos y empresas. Eso de por sí
+ya habría tenido un impacto económico apreciable. Pero es que, ade-más,
+la guerra también había servido para cortar la gran mayoría de los vínculos
+comerciales y financieros con Rusia, echándose en brazos de la U
+nión Europea. El tajo fue espectacular, y los gráficos enseguida mostra-r
+on el efecto tijera a partir de 2014. El 40% de intercambios con Rusia e
+n 1996 descendió hasta menos del 10% en 2016. Consecuentemente, del 2
+0 o 23% de ese primer año, el comercio con la UE se incrementó hasta s
+uperar el 40% un año después de Minsk II4 .  De hecho, el Acuerdo de A
+sociación con la UE que Yanukovich había rechazado se firmó el 21 de mar-z
+o de 2014, solo un mes después de que triunfara el pulso de Euromaidan5 . E
+so ya supuso negociar en 2015 un acuerdo para asistencia con el FMI por v
+alor de 15.500 millones de euros, por cuatro años, lo cual formaba parte d
+e un paquete de asistencia (financiera) más amplio que debería alcanzar los 4
+0.000 millones de dólares. «Es un programa ambicioso, duro y no sin ries-g
+os», había señalado Christine Lagarde, la directora gerente del FMI. Por s
+upuesto que lo era. De entrada, supuso «acometer reformas nunca vistas» e
+n Ucrania —esto es, reformas hacia la privatización masiva—, así como un incr
+emento significativo de los precios del gas, hasta del 56%, y de los combustibles, hasta del 40% durante 2014»
+6 . P
+ero el impacto de las privatizaciones, los salarios, los precios, las pen-siones,
+todo ese ritual de reajuste liberal en la línea del TINA, no tuvo ningún
+efecto en la eficacia de lo que la confiada Lagarde anunció como «
+reformas de gobernanza y otros cambios legales que pondrán en marcha una
+agenda de lucha contra la corrupción»7 .  Muy al contrario, la privati-zación
+radical en un país gobernado por oligarcas y presidido por una es-4
+VisualPolitik (2021): minutos 15:10 y ss.5
+T exto completo del Acuerdo en Mission of Ukraine to the European Union, «EU-Ukraine Association
+Agreement — the complete texts». Se trata de un conjunto de 13 textos en PDF , consultables
+en https://w eb.archive.org/web/20150721143444/http://ukraine-eu.mfa.gov.ua/en/page/open/id/2900.
+6
+«El FMI anuncia un acuerdo con Ucrania para asistencia por 15.500 millones de euros», Agecia EFE, B
+ruselas, 12 de febrero de 2015 [consultable en red].7
+Ib id. dd
+
+---
+
+G
+RANDES PLANES DE HUMO167 p
+ecie de Berlusconi a la ucraniana llevó a una verdadera orgía de corrup-c
+ión y despilfarro que tuvo el efecto de alejar a Ucrania de su posible ingr
+eso en la Unión Europea.P
+or último, los oligarcas, actuando como verdaderos toros en una cacharr
+ería, cada vez más desprovista, terminaron de repartirse los benefi-cios
+derivados de las privatizaciones, los préstamos internacionales y las inv
+ersiones en defensa resultado del estado de guerra, haciendo juegos malabar
+es con todo ello a fin de enjugar pérdidas y salvar lo salvable. Íhor K
+olomoiski, el gran ganador de la «revolución del Euromaidan», vio cómo la
+guerra del Donbas puso en peligro su participación en el negocio meta-l
+úrgico en Lugansk; pero se las apañó para conseguir un contrato exclusivo para
+suministrar combustible a los militares, con la posibilidad de que pudiera
+extenderse al abastecimiento del complejo agroindustrial. Vladi-m
+ir Putin, al cual Kolomoiski le profesaba un odio —real o fingido— os-tensible,
+llegó a decir de él: «Es un chorizo único. Incluso logró engañar a n
+uestro oligarca, Roman Abramovich, hace dos o tres años. Lo tangó, como
+les gusta decir a nuestros intelectuales»8 .  No era ningún piropo: P
+utin había logrado imponer la vertical de poder a los oligarcas rusos. N
+ingún presidente ucraniano lo había podido hacer con sus magnates, que campaban a sus anchas
+9 . C
+omo buenos caciques, los oligarcas podían ponerse de acuerdo, unir f
+uerzas o disputar y hasta combatirse según las circunstancias, lo que, por s
+upuesto, podían hacer también contra el gobierno. En la primavera de 2
+015 parecía llegado el momento de «desoligarquizar el país», o así se vendió e
+n medios occidentales. Eso implicaba que el presidente Poroshenko salía «a l
+a caza de oligarcas», según titulaba A tlantic Councile n una crónical10 .  Allí se r
+elataba el pulso entre Ajmetov y Kolomoiski de una manera un tanto es-q
+uemática y de forma indirecta se relataba la disputa por la empresa estatal U
+krnafta, el mayor productor de petróleo y gas de Ucrania. Kolomoiski h
+abía enviado a uno de sus batallones de voluntarios —el Dnipro-1— a la s
+ede de Ukrnafta en Kiev . Al final, el presidente P oroshenko había hecho p
+revalecer los intereses de Estado, cesando de paso a Kolomoiski como go-8
+Sakwa (2016): pp. 65-66.9
+I bid., p . 6; Poch de Feliu (2022): minutos 36:39 y ss.10
+«Poroshenko Goes Hunting for Oligarcs», por Briand Mefford, A tlantic Council, 9 de abril de 2015 [consultable en r
+ed].
+
+---
+
+168
+168U CRANIA 22b
+ernador provincial de Dnipropetrovsk11 .  Sin embargo, el artículo de At lan-tic
+Councild etallaba los amplios límites de tolerancia concedidos al su-Councilp
+uestamente damnificado: pagos por dividendos retrospectivos de U
+krnafta (2.300 millones de dólares), sobreseimiento de auditorías sobre l
+as pasadas actividades comerciales y nombramiento de un aliado de Kolo-m
+oiski, escogido por él mismo, como nuevo gobernador de Dnipropetrovsk.P
+ero quizá la partida más aparatosa fue la que se jugó en torno a la nacionalización
+de PrivatBank, fundado por Kolomoiski en 1992 y que l
+legó a ser el mayor banco privado de Ucrania. La operación tuvo lugar en d
+iciembre de 2016, en medio de una considerable confusión y falta de transpar
+encia12 .  Con el tiempo, se fueron abriendo paso rumores sobre el trasfondo
+de una operación que no parecía ser necesaria y que estaba rela-cionada
+con la masiva economía ucraniana en la sombra, que ascendía, g
+rosso modo, a la mitad del P IB13 . E
+n concreto, Ucrania se había convertido en un centro de blanqueo de
+capitales, y parte de esa actividad pasaba por el PrivatBank, que conce-d
+ía préstamos a compañías y empresas sin activos reales. En realidad, estas operaciones
+no eran sino evasiones de capital que iban a parar a cuentas extranjeras
+no identificadas. La nacionalización del banco no fue tal, sino su
+compra por el Estado y por una cantidad simbólica, de modo que las multimillonarias
+deudas del banco pasaron a ser enjugadas por el presu-p
+uesto y a cargo de los contribuyentes ucranianos. T odo ello sin ser deba-tido
+en la Rada, sino en base a una decisión del presidente, el primer mi-n
+istro y el presidente del Banco Nacional. Lógicamente, los rusos hicieron s
+angre con este asunto14 .  Pero es que, ciertamente, las implicaciones po-tenciales
+de la nacionalización del PrivatBank eran descomunales, tenien-do
+en cuenta, además, que ese banco parecía centralizar buena parte de los p
+réstamos internacionales concedidos a Ucrania. A todo ello, por supues-to,
+la operación de nacionalización, tal fue como fue gestionada, sirvió para
+librar a Kolomoiski de toda investigación y responsabilidad en las operaciones del que había sido su banco durante v
+einticuatro años.11
+De Ploeg (2017): pp. 49-50.12
+«¿Por qué nacionalizó Ucrania su mayor banco privado?», por John Mills, en M ises Institute,7 de septiembr
+e de 2017 [consultable en red].13
+De Ploeg (2017): p. 88.14
+Aleksander N. Brusentsov, «La “nacionalización” de PrivatBank enterrará el modo de Poro-shenko», en
+To p  Wa r,  22 de may o de 2017.
+
+---
+
+G
+RANDES PLANES DE HUMO169 A
+ún había más. En 2015, un experto en transacciones financieras internacionales
+ilícitas publicó un artículo de investigación sobre el lavado de
+capitales en Ucrania. En él, su autor, Graham Stack —nada que ver con el
+futbolista irlandés homónimo—, explicaba y documentaba con detalle, y
+por primera vez, cómo se efectuaba el blanqueo de capitales en un Esta-do
+postsoviético15 .  Lo interesante del caso era que la Unión Europea par-ticipaba
+de una forma u otra, por activa o por pasiva, consintiendo o mi-rando
+hacia otro lado. La clave de las operaciones de blanqueo en Ucrania radicaba
+en el «nexo báltico», a partir de los «centros de conversión», esto es,
+en una serie de bancos radicados en los Países Bálticos, y especialmente en
+Letonia. Los ejemplos descritos por Stack reúnen la participación de b
+ancos británicos, chipriotas, sudafricanos, kirguises, estadounidenses y
+ucranianos, cuentas de ciudadanos rusos y empresas ficticias en Panamá y N
+ueva Zelanda, girando todo ello en torno a un banco letón.L
+os mecanismos descritos muestran cómo el sistema financiero neo-l
+iberal aplicaba en Ucrania los habituales mecanismos de la «terapia de choque»
+que ya habían experimentado otros países en la Posguerra Fría, y e
+ntre ellos la Rusia de Yeltsin en los años noventa. Por lo tanto, existía una continuidad
+con el periodo de la denominada «economía canalla», descri-to
+en su día por Loretta Napoleoni16 .  Más crudo, si se quiere, aún más desv
+ergonzado y atropellado. El sistema todavía estaba convaleciente de la G
+ran Recesión y aplicaba cinta americana por aquí y por allá para mante-ner
+unidas las piezas del puzle, aunque a veces eran imposibles de encajar.M
+ás allá del abrazo de oso de la Unión Europea, Ucrania parecía ha-b
+erse convertido en un Estado clientelar de los estadounidenses. El entonces vicepr
+esidente de los Estados Unidos, Joe Biden, lo decía medio en bro-ma,
+medio en serio: «¡Hablo más por teléfono con Poroshenko que con mi mujer!»
+17 .  Pero no era el único. La Embajada estadounidense era el centro del
+poder en Kiev: los mismos políticos ucranianos se referían abiertamen-t
+e a nombramientos y despidos en el gobierno examinados personalmente por
+el embajador Geoffrey Pyatt, e incluso el mismísimo vicepresidente J
+oe Biden. Sí, el mismo que alcanzaría la presidencia de los Estados Uni-dos
+en 2021 y al año siguiente haría suya la «guerra de Putin» en Ucrania. 15
+Stack (2015).16
+Napoleoni (2008).17
+«Biden says he spends longer periods on phone with Poroshenko than with own wife», U
+nian Information Agency, 7 de diciembr e de 2015 [consultable en red].
+
+---
+
+170
+170U CRANIA 22La
+labor de asesoría incluía evaluaciones de ministros con los cuales los americanos
+estaban particularmente satisfechos. Por ejemplo, Natalia Ja-r
+esko (ministra de Hacienda); Aivaras Abromavichus (ministro de Eco-nom
+ía); Aleksei Pavelko (ministro de Política Agraria y Alimentación), q
+ue prometió privatizar la tierra, o Andrei Pivovarskiy (ministro de T rans-por
+te). E
+n aquellos años posteriores a la guerra del Donbas, se tomaban muy en
+serio la tarea de convertir al país en una marioneta de los Estados Uni-d
+os. Un cargo del Bloque Poroshenko comentaba del embajador: «Pyatt es un
+rollo diferente [al resto de los cabilderos estadounidenses]. No admite un no»
+18 .  Otro cargo del mismo partido detallaba:G
+eoffrey Pyatt se reúne con el jefe [Poroshenko] aproximadamente una vez cada
+dos semanas. Estuve presente durante una de esas reuniones. Duró 15 m
+inutos. Inmediatamente, el embajador sacó sus notas y con firmeza señaló las
+acciones a realizar. Después de esto, el jefe explicó brevemente lo que ya se había hecho
+19 . Y
+en diciembre de 2015, el mismo Biden, por entonces vicepresidente de B
+arack Obama, se dirigió a la Rada ucraniana en estos términos: P
+ara que Ucrania continúe progresando y mantenga el apoyo de la comuni-dad
+internacional, también debe hacer más. Lo más importante es que avan-c
+en con su programa del FMI, lo cual requiere reformas difíciles. Y son bien d
+ifíciles. Permítanme decir entre paréntesis aquí: todos los expertos de nues-t
+ro Departamento de Estado y todos los grupos de expertos vienen [a Kiev] y
+les dicen que saben que lo que deben hacer es lidiar con las pensiones. Que deben
+tratarlo como si fuera fácil de hacer. Demonios, estamos teniendo p
+roblemas en Estados Unidos para lidiar con eso. Estamos teniendo proble-m
+as. En muchos lugares, votar para aumentar la edad de jubilación es escri-bir el pr
+opio obituario político20 . M
+ás allá de la monitorización de la «terapia de choque», se abría el capítu-lo
+de los grandes planes para la nueva Ucrania. No se publicaban en las por
+tadas de los medios de prensa, pero andaban por ahí, se manejaban. 18
+De Ploeg (2016): p. 79.19
+I bid., p . 80.20
+Cit. ibid . ibidibid
+
+---
+
+G
+RANDES PLANES DE HUMO171 P
+or ejemplo, reconvertir la economía del país a la agricultura. Olvidarse de
+los grandes combinados de industria pesada. Eso supondría conceder m
+á s  p e s o  a  l a  m i t a d  o c c i d e n t a l  d e  U c r a n i a  e n  d e t r i m e n t o  d e  l a s  z o n a s  m
+inero-industriales del este. De hecho, daba la sensación de que, a pesar de M
+insk II, el nuevo régimen ya daba por perdido el Donbas y se desconec-taba
+de él. Se dejaron de pagar las pensiones allí, se liquidó la administra-ción
+del Estado en la región y los funcionarios que no eran originarios de la z
+ona dejaron las nuevas repúblicas. Cabía
+la posibilidad de transformar a Ucrania en un hub ener gético,hubp
+ensado precisamente como un muro al suministro de gas ruso a Euro-pa
+21 ;  y eso era un proyecto anterior a la guerra del Donbas. Por un lado, la
+idea era que Ucrania fuera el país receptor de los hidrocarburos, proce-dentes
+de Asia Central; por ejemplo, desde T urkmenistán vía Azerbaiyán y
+el Cáucaso, a través del mar Negro. Esa era una opción que puenteaba a l
+a T urquía de Erdoğan, aunque lo hacía depender todo del Cáucaso.Esta
+posibilidad se combinaba con la explotación de los recursos ucra-nianos,
+que no eran tanto los yacimientos propios, cuya producción había ido
+menguando mucho con los años, como el descubrimiento, en 2012, de
+importantes reservas en las aguas territoriales del mar Negro. Se llegó a hablar
+de unas reservas de 2,3 billones de metros cúbicos y el ministro ucraniano
+de Energía hizo unas declaraciones muy triunfalistas, según las c
+uales, entre los yacimientos del mar Negro, ante las costas de Crimea, y otr
+os que se habían descubierto en el este de Ucrania, el país no iba a ne-cesitar
+abastecerse en los mercados del exterior; al contrario, Ucrania po-dría
+llegar a constituirse en exportador neto a Europa, compitiendo inclu-s
+o con Rusia, y eso contando para el año 202022 .  Eso sucedía durante el p
+ulso entre la Unión Europea, por al Acuerdo de Asociación, y Rusia, por la
+unión aduanera en la Comunidad Económica Eurasiática. Pocos meses después
+se iniciaba la revuelta del Euromaidan y luego la guerra del Don-bas, y todas estas posibilidades quedar
+on completamente en el aire. La
+otra opción que entraba en los proyectos para convertir al país en un
+hub e nergético era, muy en especial, del agrado estadounidense. Resul-hub21
+Hay una cierta cantidad de material disperso para evaluar esa posibilidad. Informes como: U
+krainian Energy Exchange — Ukraine as the Gas Hub for Earsten Europe—  16 tf. Gas Forum eof
+the Energy Community, Ljubljana, 22-23 September 2021; M onitoring the Energy Strategy of U
+kraine 2035, OECD-N orwegian Ministry of Foreign Affairs, 2020.22
+Russell (2022): p. 141.
+
+---
+
+172
+172U CRANIA 22t
+aba que Ucrania era el tercer país de Europa con las mayores reservas de gas de
+esquisto, con 1,2 billones de metros cúbicos. Los yacimientos se locali-zaban
+en el óblast de Donetsk y en el de Járkov, al este, y en los de Lviv e I
+vano-Frankivsk, al oeste. En enero de 2013, el gobierno firmó un acuerdo c
+on Royal Dutch Shell, por cincuenta años, para iniciar los trabajos de pros-p
+ección y explotación en los yacimientos del este (yacimiento de Yuzivska). Los
+10.000 millones de dólares del acuerdo resultaban ser la inversión extranjera
+más directa acordada nunca antes en Ucrania23 .  Obviamente, la g
+uerra del Donbas tiró por tierra el proyecto cuando Shell rompió el con-trato, en 2015.
+E
+l 21 de abril de 2014, justo cuando comenzaba la guerra del Donetsk, el
+vicepresidente Joe Biden aterrizó en Kiev, donde hablaría en la Rada para
+marcar las directrices que debería seguir Ucrania en la nueva política neoliberal
+de reajustes y privatizaciones. De paso, también aprovechó para impulsar
+los intereses estadounidenses en el desarrollo de la producción de gas
+de esquisto a partir de las técnicas de extracción por f racking.  El resul-ggtado
+de ello fue el impulso dado a la firma Burisma Holding, que databa de
+2002 pero que en la primavera de 2014 cambió de propietario miste-riosamente
+—poco después del triunfo del Euromaidan, recordemos—  e
+n cuyo consejo directivo aparecieron el mismísimo hijo de Joe Biden, es
+to es, Hunter Biden, y también el expresidente polaco Alexander K
+waśniewski, gran campeón del reajuste neoliberal de Polonia en la tran-sición
+poscomunista. Inicialmente, Burisma parecía estar implicada en los p
+royectos de traer gas desde Asia Central —Kazajistán, en concreto—; p
+ero rápidamente, conforme se hacía evidente que con la pérdida de Cri-m
+ea y la guerra en el Donbas esa estrategia se hacía inviable, cobró más y más
+importancia el negocio del f racking. En 2016, la empresa adquirió ggdos
+flotas de fracturación hidráulica. Y al año siguiente, compró una pla-t
+aforma de perforación Service King Manufacturing SK 3000 de 3.000 ca-ballos
+de fuerza por 40 millones de dólares (USD); era la plataforma de per
+foración más poderosa de Europa del Este en ese momento24 . Los
+americanos se disponían a potenciar la capacidad de Ucrania como
+productora de gas de esquisto mediante f racking, una actividad que 23
+«Ukraine set to sign landmark $10 billion shale gas deal with Shell», por Richard Balmforth, R
+euters, 23 de enero de 2013.24
+«Burisma Group deploys most powerful drilling rig in Ukraine», en W orldOil, 2 2 de sep-tiembr
+e de 2017 [consultable en red].
+
+---
+
+G
+RANDES PLANES DE HUMO173 e
+staba prohibida en la Unión Europea pero que le estaba dando a los Es-t
+ados Unidos una posición de supremacía mundial en el negocio de los hidr
+ocarburos. En 2018, precisamente, los Estados Unidos pasarían a ser expor
+tadores netos de energía. Desde 2010 las compañías extractoras esta-dounidenses
+habían comenzado a utilizar de forma generalizada la técnica del
+f racking, o fracturación hidráulica, para la obtención de gas y petróleo, lo
+cual incrementó las reservas hasta tal punto que pronto llegaron a tener más
+del que necesitaban, y las previsiones indicaban que esa seguiría sien-do la tendencia a cincuenta años vista.
+E
+n la participación del negocio energético ucraniano los intereses d
+e Joe Biden no eran tanto crematísticos —al margen de que pudiera c
+onseguirle alguna gratificación a su desnortado hijo Hunter25 —  como g
+eoestratégicos. La implicación de Joe Biden con Ucrania fue profunda y
+continuada en el tiempo. Ya en 2009 fue el primer alto cargo de la administración
+del presidente Barack Obama que visitó Ucrania y Geor-g
+ia, que el año anterior había sufrido las iras rusas, mientras su progra-m
+a de adhesión quedaba aplazado indefinidamente por presiones de Mo
+scú. B
+iden atendía ese flanco de la política de Obama que el presidente d
+ebía dejar un tanto de lado, centrado como estaba en buscar soluciones p
+ara el problema de las relaciones de los Estados Unidos con el mundo á
+rabe musulmán y el peligro aún muy serio del terrorismo yihadista. P
+ero el vicepresidente, y la Secretaria de Estado, Hillary Clinton, de-s
+arrollaron una política sostenida y coherente sobre la reestructuración d
+el espacio exsoviético periférico a Rusia, que no se quedaba solo en Uc
+rania.E
+l hecho de que políticos, estadistas y asesores polacos surgieran de d
+ebajo de las piedras a lo largo de toda la crisis ucraniana no era, desde lue-go,
+una casualidad. Existían unas ambiciones polacas, de raigambre histó-rica,
+que ahora parecían tener visos de convertirse en realidad. T enían un nombr
+e, y era In termarium( Międzymorze, en polaco), el proyecto ideado p
+or el caudillo de la independencia Józef Piłsudski (1867-1935) en los años v
+einte del siglo /x.sc/x.sc .  La idea estaba basada, a su vez, en una propuesta del príncipe
+Adam Jerzy Czartoryski (1770-1861), presidente del gobierno nacional
+polaco durante el levantamiento de 1830. Inicialmente se trataba 25
+Woodward y Costa (2021): pp. 70-71, para los problemas de Joe Biden con su hijo Hunter.
+
+---
+
+174
+174U CRANIA 22d
+e resucitar la República de las Dos Naciones (Polonia y Lituania) como u
+n baluarte de países independientes del este de Europa durante el siglo /x.sc /i.sc/x.sc. Ese
+Estado central estaría federado a su vez con checos, eslovacos, húnga-r
+os, rumanos y los eslavos del sur. El proyecto no consistía solo en estable-cer
+una barrera de aislamiento ante una Rusia expansionista y agresiva, sino
+también en prevenir la presión de la potencia prusiana, creando un hábitat
+estable y armónico para los países que algún día se independiza-r
+ían del Imperio Habsburgo. En tal sentido, Polonia, siempre Polonia en e
+l centro del dispositivo, podría actuar como mediadora en los conflictos entr
+e húngaros, eslavos y rumanos. Con
+la fuerza que le daba la independencia de Polonia lograda tras la P
+rimera Guerra M undial, y tras haber obtenido territorios de Lituania, B
+ielorrusia y Ucrania, aprovechando la debilidad rusa durante su revolu-c
+ión, Józef Piłsudski relanzó el proyecto, ahora con mayores posibilidades d
+e prosperar, teniendo en cuenta que podría servir como valladar contra la emergencia
+de la Rusia soviética. De hecho, una de las variantes de la idea, la
+denominada P rometeísta, pretendía aprovechar la capacidad emocional d
+e la propuesta para atraerse los nacionalismos de la Unión Soviética, idea que un siglo más tar
+de se volvería a poner en práctica. L
+a moderada versión de Intermarium r esurgió con el final de la Guerra F
+ría que trajo la descomposición de la Unión Soviética. Conforme el am-biente
+se deterioraba en la zona tras el advenimiento de Vladimir Putin a l
+a presidencia rusa, Varsovia fue metiendo presión en la caldera del viejo p
+royecto. Proliferaron los debates en televisión26 ,  las publicaciones27  y los vídeos
+en internet. Hoy en día se pueden encontrar muestras de tipo di-v
+e r s o  e n  Y o u T u b e ,  q u e  v a n  d e  l o  m á s  e m o c i o n a l  y  e s t e t i c i s t a  a  l o  m á s  dramático
+y apremiante28 .  El formato de los integrantes también cambió, desde
+los países originales que trazaban la diagonal original entre los dos m
+ares, Báltico y Negro, hasta la variante «tres mares» (Thr ee Seas Initiativeo
+3SI), que incorporaba los ribereños con el mar Adriático29 .  La primera c
+umbre de la 3SI tuvo lugar en Dubrovnik en 2016. A esta le siguieron 26
+INTERMARIUM | Щ /uni043E /uni0440/uni043E/uni0431/uni0438/uni0442/uni0438 /uni0437 /uni0411/uni0456/uni043B/uni043E/uni0440/uni0443/uni0441/uni0441/uni044E?, Canal Ukrainian Media Network (YouT u-be), 15 de diciembr
+e de 2017.27
+«The Jagiellionan Idea. Past and Present», en P oliteja, 51/2017 (Universidad Jagellónica, C
+racovia).28
+Véase, a título de ejemplo: «Intermarium - /uni0430 /uni043B/uni044C/uni0442/uni0435/uni0440/uni043D/uni0430/uni0442/uni0438/uni0432/uni0430 /uni0404/uni0421 | alternative of the EU», Canal R
+econquista /uni0423/uni043A /uni0440/uni0430 /uni0457/uni043D/uni0430 ( YouT ube), 5 de septiembre de 2016.29
+Three Seas Summit and Business Forum, Riga, 2022. Consultable en https://3seas.eu/.
+
+---
+
+G
+RANDES PLANES DE HUMO175 r
+euniones anuales en Varsovia (2017), Bucarest (2018) , Liubliana (2019), T
+allin (2020) y Sofía (2021)30 . E
+n todo caso, se planteaba como una alternativa a la Unión Europea, q
+ue prometía no solo una política económica y energética propia, sino también
+seguridad y defensa, y proyecto de armonización para las tensio-nes
+nacionalistas del Este. El 3SI agrupaba a más de 112 millones de per-s
+onas y cubría un área total de más de 1,2 millones de kilómetros cuadra-dos
+(una docena de países), lo que representaba un tercio del territorio de l
+a Unión Europea31 .  Eso sí: Polonia estaba siempre en el centro del meo-l
+lo. Era su idea, su iniciativa, su historia. Por ello, conforme crecía el sen-t
+imiento nacionalista y las tendencias iliberales en ese país, a caballo de las políticas
+de los hermanos Kaczyński y del auge del Partido Ley y Justicia, los
+polacos se hacían más ilusiones de que su país pudiera abanderar un n
+uevo concepto político para la reestructuración de Europa del Este que les
+permitiera contrarrestar las presiones de los que consideran sus grandes peligr
+os históricos: Rusia y Alemania.Y
+esta vez tenían a los Estados Unidos de su lado, lo cual no suponía q
+ue Washington estuviera explícitamente interesado en el proyecto In ter-marium;
+e n puridad, no habían dicho nada a favor, pero tampoco nada en c
+ontra. Era innegable que en los Estados Unidos —con una comunidad polaca
+muy extensa— existía una simpatía histórica hacia la causa polaca, por
+cuanto luchadores de esta terminaron combatiendo en América. El l
+íder militar Tadeusz Kościuszko, que dirigió la fallida insurrección polaca de
+1794 contra el Imperio Ruso, aportó después sus valiosos conocimien-tos
+de ingeniería militar al Ejército Continental de los revolucionarios es-tadounidenses.
+El general Casimir Pulaski (Kazimierz Pułaski), padre del C
+uerpo de Caballería estadounidense, fue otro caso. Tampoco es extraño que
+en la diplomacia de Washington se conceda especial crédito a los ana-l
+istas o estrategas de origen polaco cuando se trata de abordar las proble-máticas
+del ámbito ruso. Un caso célebre es el de Zbigniew Brzezinski (1928-2017),
+Consejero de Seguridad Nacional durante la presidencia de J
+immy Carter (1977-1981) y gran teórico arquitecto de la estrategia de los E
+stados Unidos tras la Guerra Fría, especialmente en Eurasia, en general, y
+Rusia en particular. Fue precisamente Brzezinski el que explicitó en su 30
+Necșu/uni021Bu (2022).31
+Ib id. dd
+
+---
+
+176
+176U CRANIA 22obra
+E l gran tablero mundial: la supremacía estadounidense y sus imperativos geoestr
+atégicos( 1997) que la clave para dar jaque mate a Rusia y hacerseatégicoscon el contr
+ol de Eurasia estaba en Ucrania32 . A
+ello se unía la inclusión de Polonia como aliado preferente de los Estados
+Unidos al formar parte de la «Nueva Europa», definida en 2003 por
+el secretario de Defensa Donald Rumsfeld, en vísperas de la invasión d
+e Irak. Ese concepto hacía referencia a una serie de países del Viejo Con-tinente,
+exsocialistas, que se alienaban con los Estados Unidos, potencia a l
+a que veían como campeona de su desvinculación del Bloque del Este y de su inclusión en la órbita liberal capitalista.
+P
+or todo ello, no era extraño encontrar al ministro de Asuntos Exte-r
+iores de Polonia, el ferozmente antirruso Radosław Sikorski, como inter-locutor
+especial entre el gobierno ucraniano y la oposición durante la crisis d
+el Euromaidan; y que incluso poseía su propia tienda de campaña en la pl
+aza33 .  Sin llegar a ese nivel de implicación, habían pasado por el Euromai-d
+an, para alentar y solidarizarse con las huestes en pie de guerra, estadistas polacos
+de la talla del vicepresidente del Parlamento Europeo, Jacek Pro-tasie
+wicz, el expresidente del Parlamento Europeo y exprimer ministro, J
+e r z y  B u z e k ,  o  e l  l í d e r  d e l  P I S ,  e l  P a r t i d o  L e y  y  J u s t i c i a ,  J a r o s ł a w  Kaczyński.
+Así, no era de extrañar que corrieran rumores de que integran-tes
+de las unidades de autodefensa habían recibido instrucción específica e
+n la E mbajada de P olonia en Kiev . T ampoco faltó la figura de Lesz ek B
+alcerowicz, el economista polaco creador del plan que lleva su nombre p
+ara reconvertir la economía polaca desde un sistema de economía plani-ficada
+hacia una economía de mercado, y al cual, en abril de 2016, Poro-shenko nombr
+ó como su representante en el consejo de ministros. P
+olonia estaba metida hasta las trancas en el «reacondicionamiento» d
+e Ucrania desde una posición de patronazgo estratégico, por lo que no es de extrañar
+que en Varsovia se manejaran todo tipo de planes para el futuro de
+la histórica vecina Ucrania. Pero este tipo de vinculaciones no se limi-t
+aban a un solo país del posible proyecto I ntermarium, sino que iban más a
+llá. Un caso célebre fue el nombramiento del expresidente georgiano M
+ijeíl Saakashvili como gobernador de Odesa en junio de 2015, con el p
+ropósito de luchar contra la corrupción en una de las ciudades ucrania-32
+Brzezinski (1998).33
+De Ploeg (2016): p. 58.
+
+---
+
+G
+RANDES PLANES DE HUMO177 nas
+más castigadas por esa lacra. La operación terminó en un desastre tragicómico,
+cuando Saakashvili dimitió al cabo de un año y medio acu-s
+ando al propio Poroshenko, su protector, de ser el mayor cómplice de la corr
+upción34 .  Pero tras la iniciativa se movía esa estrategia estadouniden-se
+de gestionar la arquitectura de nuevas alianzas antirrusas —y también a
+utóctonas y al margen de la UE— en el este de Europa. En ello intervenían una
+legión de políticos y gestores polacos, georgianos, bálticos, que se h
+abían formado o incluso nacido en los Estados Unidos y que ahora eran colocados
+en las administraciones de esos países exsoviéticos por designa-ción
+casi directa de Washington, en base a las viejas afinidades —como la q
+ue existe realmente entre Georgia y Ucrania— o los proyectos de postín con caché histórico, como
+In termarium. S
+in embargo, en esos breves años convulsos, entre el Euromaidan y las hostilidades
+de 2022, no fraguaron esos planes y gestos de humo. Ucrania par
+ecía haber perdido su alma y no terminaba de encontrar una nueva: ni s
+e convirtió en el gran h ub energético de Euro pa ni terminó de cuajar e
+l corredor Viking, que debía restablecer por vía ferroviaria los antiguos víncu-los
+medievales entre Escandinavia y Bizancio, hoy Estambul, vía Odesa35 , todo
+ello como primera fase, quizá, del sueño I ntermarium.  El histriónico exgobernador
+Saakashvili terminó siendo detenido en el tejado de su apar-tamento
+mientras acusaba a gritos a Poroshenko de intentar matarle por o
+rden de Putin, al tiempo que la fiscalía lo acusaba a él de recibir dinero de M
+oscú para dar un golpe en Kiev. M
+ientras tanto, y de repente, todo empezó a descolocarse y desenfo-carse, y eso en un periodo muy cor
+to de tiempo.34
+«Saakhasvili, in Odessa and Ukraine», The Odessa Review, 13 de febrero de 2017 [consulta-ble en r
+ed].35
+Martin (2014).
+
+---
+
+
+
+---
+
+C
+APÍTULO 10V
+IEJOS Y JÓVENESD
+E OBAMA A TRUMP , DE POROSHENKO A
+ZELENSKI, 2017-2019S
+in Ucrania, Rusia deja de ser un imperio euroasiático. U
+na Rusia sin Ucrania podría competir por un estatus im-perial,
+pero se convertiría en un Estado imperial predomi-nantemente
+asiático, más susceptible de ser arrastrado a extenuador
+es conflictos con los países del Asia Central re-cientemente salidos de su letargo
+.Zbignie
+w Brzezinski, E l gran tablero mundial, 1997 P
+ara entender qué sucedió en Ucrania en ese lustro crucial que va desde 2017
+hasta 2022, hay que apartar la mirada de Ucrania durante unas cuantas
+páginas. Y comenzar el relato, paradójicamente, el 10 de noviem-b
+re de 2013. Ese día se celebró en Moscú, por primera vez en la historia, e
+l certamen Miss Universo, en el que resultó ganadora la venezolana Ma-r
+ía Gabriela Isler Morales. Pocos meses antes, durante el verano, el promo-t
+or del evento y propietario de los derechos, el empresario metido a polí-t
+ico Donald T rump, reflexionando sobre su posible encuentro con V
+ladimir Putin en Moscú, escribió en su cuenta de T witter: «Si eso ocurre, ¿
+se convertirá en mi nuevo mejor amigo?»1 .  El organizador del concur-s
+o era el multimillonario azerí Aras Agalarov, que tenía contactos en el K
+remlin y al que T rump había conocido cinco meses antes en Las Vegas. P
+utin no acudió al evento ni dio más señales de que le interesara contactar con
+el estadounidense, quien, por entonces, era un magnate de los nego-cios
+estadounidense, un tanto estrafalario. Muy poco tiempo después co-1
+@realDonadlT rump, «Do you think Putin will be going to the Miss Universe Pageant in Nov-e
+mber in Moscow — if so, will he become my new best friend?», 8:17 pm, 18 de junio de 2013.
+
+---
+
+180
+180U CRANIA 22m
+enzó la tormenta de Euromaidan en Kiev. T rump se mostró comprensi-v
+o con Putin, en público, incluso durante la guerra del Donbas, pero el r
+uso no se dignó a prestarle atención.T
+ras el aislamiento diplomático que orquestan las cancillerías occi-dentales
+contra él, el líder ruso impulsará la intervención militar en la g
+uerra de Siria, respondiendo a solicitudes de ayuda del presidente sirio B
+áshar al-Asad. La operación comienza en septiembre de 2015, y ya en d
+iciembre es admitida públicamente por Moscú, que declara que está e
+n guerra contra el Estado Islámico. E
+se conflicto, así como el que también se sigue en Libia, son con-s
+ecuencia de la célebre Primavera Árabe (2011), que era una de las ba-z
+as importantes de la presidencia Obama. Cuando los rusos llegan a S
+iria, parece evidente que la apuesta americana en Oriente Medio no h
+a dado los resultados apetecidos. Mientras tanto, el Estado Islámico se ha h
+echo con el control de parte de Siria e Irak. Por lo tanto, la interven-ci
+ón rusa fue una oportunidad única para Putin de demostrar que ellos e
+ran capaces de hacerlo mucho mejor que los occidentales, cuyas inter-fe
+rencias en asuntos internos de otros países solo habían comportado ca
+os y colapso. D
+e esa forma, en un año, Rusia cambió la situación militar en Siria y
+consiguió salvar al régimen del presidente Asad —los sirios habían s
+ido aliados y clientes de la Unión Soviética durante la Guerra Fría— a la
+par que contribuyó decisivamente a la derrota del Estado Islámico; d
+e esa forma, Putin respondía en sus mismos términos al comentario d
+espectivo de Obama, hecho durante la guerra del Donbas, en el sen-t
+ido de que Rusia era una potencia regional que solo sabía meterse con v
+ecinos débiles. Rusia regresaba al escenario mundial y ya no podía s
+eguir siendo ninguneada ni ignorada. Los militares estadounidenses h
+abían estado en contacto con sus homólogos rusos en Siria para coor-d
+inar operaciones, gustara o no. Continuaba así el proceso de recupe-r
+ación del orgullo nacional que había subido muchos enteros con la a
+nexión de Crimea.E
+n paralelo, Donald T rump había anunciado su candidatura a la pre-sidencia
+de los Estados Unidos en junio de 2015. Medio año más tarde, e
+n diciembre, Putin hace una referencia positiva, casi informal, al candi-d
+ato republicano. Es el primer síntoma de que empieza a tomárselo en serio
+como posible aliado. T rump está al quite, y propone un entendi-
+
+---
+
+V
+IEJOS Y JÓVENES181 miento
+Washington-Moscú2 .  P utin está de acuerdo y con ello señala al r
+epublicano como el candidato más idóneo a la Casa Blanca.Conforme
+sube en las encuestas, T rump va desvelando sus propuestas p
+rogramáticas, y una en especial hace sonar todas las alarmas. Ya en julio de
+2016, en plena campaña, explica su planteamiento: la OTAN supone u
+n gasto excesivo para los Estados Unidos debido a la falta de compromi-so
+de los socios europeos3 .  Estos debían atenerse al compromiso de dedi-car
+al menos el 2% de su PIB a defensa y ponerse al día en sus deudas con l
+a Alianza. Por entonces solo cumplían con ello Reino Unido, Polonia, Estonia, G
+recia y los Estados Unidos. A
+unque la administración Obama había expresado su descontento con
+esa situación, T rump lo utilizó como un ariete, tanto en su campaña electoral
+como desde la Casa Blanca, ya siendo presidente. No ahorró en r
+udeza ni en antipatía, llegando a proponer que los Estados Unidos aban-d
+onaran la OTAN si las cosas no mejoraban. Por esas mismas fechas, el 22 de
+julio, saltó la noticia de que hackers r usos estaban interviniendo en lashackerselecciones
+presidenciales a favor de Donald T rump y tratando de devaluar la
+imagen política y personal de la candidata demócrata Hillary Clinton, una
+estrategia que en el vocabulario de la inteligencia rusa, supuestamen-te,
+era conocida como kompr omat.  Ese día, WikiLeaks publicó casi veinte mil
+correos electrónicos pertenecientes al Comité Nacional Demócrata. H
+asta el momento no se ha podido establecer la autenticidad de esos do-c
+umentos, y el mismo CND no ha colaborado en ello. Finalmente, el in-forme
+del fiscal especial Robert Mueller concluyó en abril de 2019, en p
+leno Jueves Santo, que cabía exonerar de facto a  T rump de conspiración con el Kr
+emlin, por falta de pruebas.F
+uera cierto o no, el incidente de la trama rusa causó un desgarrón en la
+política americana que contribuyó a dividir al país en dos mitades áspe-ramente
+enfrentadas, de lo cual fue expresión el sobrecogedor asalto al Capitolio,
+el 6 de enero de 2021, por parte de manifestantes y milicianos que r
+ecordaban a los protagonistas del Euromaidan.E
+l incidente de la supuesta injerencia rusa en el proceso electoral ame-ricano,
+que los demócratas compararon por activa y por pasiva con el 2
+Walding 1 (2020): minutos 27:50 y ss.3
+«Donald T rump Sets Conditions for Defending NATO Allies Against Attack», bud David E. S
+anger y Maggie Haberman, The N ew York Times, 20 de julio de 2016.
+
+---
+
+182
+182U CRANIA 22W
+atergate de 1972 —siendo T rump un personaje muchísimo peor que N
+ixon—, histerizó enormemente la confrontación ruso-americana y movi-l
+izó al Congreso y otras muchas instituciones de alto rango, que, en base al complejo
+sistema de controles y equilibrios, impidieron que T rump logra-ra
+un acercamiento diplomático a Putin, en especial tras haberse encontra-d
+o y conocido en persona durante la reunión del G20 en Hamburgo, en julio
+de 2017. A pesar de la evidente simpatía mutua que se profesaban, basada
+en similares planteamientos políticos ultraconservadores, no llegó a
+cuajar ningún acuerdo, ni a desactivarse la escalada de confrontación entr
+e los Estados Unidos y Rusia.E
+l episodio de la frustrada descongelación entre Putin y T rump afectó a
+Ucrania de dos maneras. La más evidente fue que contribuyó a derrum-bar
+todavía más la imagen de Poroshenko, al cual el entorno de T rump l
+legó a acusar de injerencia en las presidenciales de 2016, como reacción a las
+acusaciones de injerencia rusa. Incluso el mismo Putin exculpó a Po-r
+oshenko: sencillamente, el presidente ucraniano creyó que Hillary Clin-t
+on y los demócratas ganarían las elecciones4 ,  apostó por ella sin vacila-ciones,
+habló mal de T rump públicamente y la realidad final lo dejó fuera de
+juego ante el nuevo presidente, que consideraba a Ucrania un corral de los
+demócratas y un estorbo en su política de acercamiento a Putin. De hecho,
+durante la campaña electoral había sugerido que reconocería la a
+nexión rusa de Crimea, y poco antes de asumir el cargo comentó que posiblemente lev
+antaría las sanciones a Rusia por ese motivo5 . La
+segunda consecuencia sobrepasa el marco de los intentos de apro-x
+imación a Putin por parte de T rump. Lo que este buscaba, sobre todo, era desmantelar
+la política exterior demócrata, muy basada en las recomenda-c
+iones del gurú Brzezinski, que eran las que seguían, efectivamente, en r
+elación con Rusia, y ya desde 1997. Esto es: las hipótesis estratégicas de un Z
+bigniew Brzezinski eufórico y triunfalista, tras el final de la Guerra Fría, plasmadas
+en su libro E l gran tablero mundial, que llevaba un subtítulo muy
+elocuente: La supremacía estadounidense y sus imperativos geoestratégi-c
+os. Esas ideas y teorías estaban en la onda de las de Fukuyama sobre el final
+de la historia, de la misma época, en el mismo contexto de desbor-dante
+exaltación. En cambio, poco caso le hicieron al último gran libro de 4
+Stone (2019): minuto 56:58.5
+Hutin (2022): p. 104.
+
+---
+
+V
+IEJOS Y JÓVENES183 B
+rzezinski, publicado en 2012, quince años más tarde, escrito por un an-ciano
+de 84 años con el título: V isión estratégicay  un subtítulo elocuente:aA
+mérica y la crisis del poder global.  De hecho, esa obra ni se tradujo al es-llp
+a ñ o l ,  y  p a s ó  b a s t a n t e  d e s a p e r c i b i d a .  N o :  H i l l a ry  C l i n t o n  y  J o e  B i d e n  seguían
+leyendo E l gran tablero mundial, en el cual Ucrania desempeñaba un papel cr
+ucial:U
+crania, un espacio nuevo e importante sobre el tablero euroasiático, es un piv
+ote geopolítico porque su propia existencia como país independiente a
+yuda a transformar a Rusia. Sin Ucrania, Rusia deja de ser un imperio eu-r
+oasiático. Una Rusia sin Ucrania podría competir por un estatus imperial, p
+ero se convertiría en un Estado imperial predominantemente asiático, más susceptible
+de ser arrastrado a extenuadores conflictos con los países del Asia C
+entral recientemente salidos de su letargo. En ese caso, estos países estarían r
+esentidos por la pérdida de su reciente independencia y recibirían apoyo de los
+demás Estados islámicos del sur. También sería probable que China se o
+pusiera a cualquier restauración del dominio ruso sobre Asia Central, dado s
+u creciente interés en los Estados recientemente independizados de la re-g
+ión. Sin embargo, si Moscú vuelve a hacerse con el control de Ucrania, con sus
+52 millones de habitantes y sus importantes recursos, además del acceso a
+l mar Negro, Rusia volverá a contar automáticamente con los suficientes r
+ecursos como para convertirse en un poderoso Estado imperial, por encima d
+e Europa y Asia. La pérdida de independencia de Ucrania tendría conse-cuencias
+inmediatas para Europa Central, al transformar a Polonia en el pi-v
+ote geopolítico de la frontera oriental de una Europa unida6 . U
+crania era, para Brzezinski, lo que él denominaba un «pivote geopolíti-co»,
+junto con Azerbaiyán, Corea del Sur, T urquía e Irán7 .  Pues bien, algunas
+anécdotas parecen revelar que T rump se disponía a desmontar esos
+pivotes en la nueva estrategia de distensión ultraconservadora que contemplaba
+para los Estados Unidos. Bob Woodward relata que en sep-t
+iembre de 2017 el recién elegido presidente tenía sobre su mesa de traba-jo
+el borrador de una carta dirigida al presidente de Corea del Sur, por la cual
+daba por finalizado el Ko rus, esto es, el Acuerdo de Libre Comercio e
+ntre los Estados Unidos y Corea del Sur. Este acuerdo, que se remontaba a
+los años cincuenta del siglo /x.sc/x.sc ,  era la base de la alianza militar y de las 6
+Brzezinski (1998): pp. 42-43.7
+I bid., p . 36.
+
+---
+
+184
+184U CRANIA 22operaciones
+de inteligencia con ese pivote geopolítico. Salir del Ko rus, q ue r
+esultaba crucial para la economía del país asiático, podría tener efectos impor
+tantes sobre la seguridad nacional de los Estados Unidos. Wood-w
+ard lo atribuía al déficit que tenía la superpotencia con Corea del Sur y los gastos que r
+eportaba el mantenimiento de las tropas americanas allí8 . E
+n la misma línea iban las prevenciones de T rump contra la OTAN, q
+ue Brzezinski consideraba esencial para la estrategia estadounidense como superpotencia incontestable tras la G
+uerra Fría:U
+na política favorable a una Europa unida llevará también a abordar —aun-que
+de manera conjunta con los europeos— la cuestión, considerablemente sensible,
+del alcance geográfico de Europa. ¿Hasta dónde debería llegar la ampliación
+hacia el Este de la Unión Europea? Y ¿deberían coincidir los lí-mites
+orientales de la UE con la frontera oriental de la OTAN? Lo primero es
+más una cuestión que debe decidirse a nivel europeo, pero una decisión eur
+opea sobre ese tema tendrá implicaciones directas sobre una decisión de l
+a OTAN. Esta última organización, empero, compromete a los Estados U
+nidos, y el voto estadounidense en la OTAN sigue siendo decisivo. Dado el c
+reciente consenso sobre lo deseable de admitir a las naciones centroeuropeas tanto
+en la UE como en la OTAN, el significado práctico de esta cuestión hace
+que la atención se centre en el futuro estatus de las repúblicas bálticas y quizás también en el de U
+crania9 . E
+l problema que tenía T rump a la hora de aplicar sus políticas de «disten-sión
+ultraconservadora» frente a Putin y la oposición demócrata era su carácter
+desordenado, incluso caótico, asociado a la tendencia a la gestión personalizada
+del poder, que le impedía corregir esa disfunción con la eficacia
+de un equipo. Era un fenómeno nuevo en la política estadouni-d
+ense: un hombre de negocios que solían quebrar, pero de los cuales él s
+iempre obtenía dinero. Un populista al que no le interesaban tanto el fin o
+los medios de un proyecto como lo que pudiera pensar la gente de ello. U
+n Berlusconi, también él, con el lenguaje, maneras y temperamento za-f
+io de Berlusconi. Incluso con la fijación de seguir presentándose como un r
+esultón y que se arreglaba el cabello en peinados imposibles para intentar engañarse a sí mismo; pr
+ecisamente, como Berlusconi, también.8
+Woodward (2018): pp. 9-11.9
+Brzezinski (1997): p. 60.
+
+---
+
+V
+IEJOS Y JÓVENES185 P
+or otra parte, tuvo encima durante todo su mandato, desde el mi-n
+uto uno, la presión inmovilizadora de la administración, que no le c
+onsentía lo que veía como extravagancias y boicoteaba o censuraba ab
+iertamente algunas de sus iniciativas más atrevidas y potencialmente c
+atastróficas.P
+ero sus intenciones estaban bien a la vista para los demócratas. De ahí
+que cuando Joe Biden llegó a la Casa Blanca intentara recuperar el tiempo
+perdido y marcar distancias con Moscú en previsión de que Putin ganara
+bazas o la situación de traspaso de poder —con el asalto al Capito-lio
+de por medio y las continuadas denuncias del presidente saliente sobre las
+supuestas elecciones amañadas por su rival— se resolviera dramática-mente,
+de alguna forma, a favor de T rump, tal como lo relata, con detalle e
+inigualable tensión dramática, Bob Woodward en su libro P eligro10 .  Él lo llamó,
+concretamente, «encontrar una manera de proceder estable y pre-decible
+con Putin y con Rusia»11 .  A pesar de ello, su carácter irritable le jugaba
+malas pasadas, como cuando llamó «asesino» al ruso en público o le dijo personalmente «que no tenía alma».
+Ese
+era el contexto en el que transcurrieron los últimos tiempos del mandato
+de Poroshenko. Sintiéndose un cero a la izquierda ante un T rump del
+cual se temía lo peor, no tuvo ambages en seguir con la corrupción h
+abitual. Buen reflejo de ello era el mismo T ribunal Supremo: 25 jueces d
+el total de los 113 nombrados a finales de 2017 fueron acusados de corrup-ción,
+enriquecimiento ilícito y complicidad política12 .  Un informe de T
+ransparencia Internacional situaba a Ucrania como el segundo país más c
+orrupto de Europa, solo detrás de Rusia, y el mismo FMI estaba preocu-p
+ado con respecto a Ucrania, con la que se había comprometido con un impor
+tante paquete de créditos y ayudas. Esa institución había puesto en mar
+cha la denominada Oficina Nacional Anticorrupción, que había ter-minado
+enfrentándose al fiscal general; lo alarmante del caso era que Yuri L
+utsenko, que ostentaba ese cargo, había accedido a él sin tener formación j
+urídica previa, es decir, a dedo. De hecho, la Rada ucraniana, dominada en
+parte por los oligarcas, votó la eliminación de ese requisito para que L
+utsenko pudiera acceder al cargo. Pero el escándalo no paró ahí: enfren-10
+Woodward y Costa (2021).11
+I bid., p . 488.12
+«El sistema político ucraniano sobrevive con la corrupción de costumbre en la presidencia de P
+oroshenko», por Agustín Fontela, en elDiario .es, 27 de febr ero de 2018 [consultable en red].
+
+---
+
+186
+186U CRANIA 22t
+ado a la Oficina Nacional Anticorrupción, terminó siendo investigado por enriquecimiento ilícito
+.P
+oroshenko se le había ido de las manos al mismo Joe Biden. Había v
+isitado Ucrania para presionar a favor de una lucha más enérgica contra el
+cáncer de la corrupción, y sus amenazas contra el fiscal general fueron d
+irectas y taxativas. O lo destituían o dejaba el país en seis horas sin apro-bar
+los mil millones de dólares como aval para solicitar créditos. «Si no echan
+al fiscal (general), no reciben el dinero. Bueno, vaya hijo de puta (risas
+en el público). Lo destituyeron. Y colocaron en su lugar a alguien que
+era fuerte en ese momento», explicó Biden. Y a quien pusieron al fr
+ente de la fiscalía, precisamente, fue a Yuri Lutsenko13 . U
+crania era un no parar. Por esas mismas fechas, T ransparencia Inter-nacional
+llegó a establecer que Ucrania era el segundo país más corrupto d
+e Europa, sólo por detrás de Rusia14 .  La realidad iba más allá, pues el r
+égimen político ucraniano no tenía nada que envidiar al ruso en cuanto a
+privación de libertades civiles y políticas. Un periodista español lo plas-maba así en un r
+eportaje:Es
+paradójico, porque a menos de un año de cerrar su mandato, Poroshenko h
+a establecido un orden político que guarda más similitudes con el de Rusia q
+ue el de Europa Occidental. Se limita la competencia política, la justicia depende
+de la élite gobernante, la prensa recibe presiones y la corrupción es un lastr
+e nacional.Como
+si fueran pocas coincidencias, el núcleo de la política de Kiev es el
+mismo en el Kremlin: agitar el fantasma del enemigo internacional para e
+vadir la responsabilidad sobre los problemas internos15 . E
+n efecto, Poroshenko aprovechaba cada oportunidad para engrandecer el p
+roblema de la guerra civil latente en el D onbas, de baja intensidad, y agitar
+la amenaza de una invasión rusa, llegando a barajar la posibilidad de p
+roclamar la ley marcial para retrasar los comicios. T raca final, gastó unos 50.000
+euros en unas vacaciones familiares en las islas Seychelles. Al final, P
+oroshenko había resultado no ser peor que Kuchma, Yushchenko o Ya-nuko
+vich. 13
+Ib id. dd14
+Ib id. dd15
+Ib id. dd
+
+---
+
+V
+IEJOS Y JÓVENES187 T
+rump le dejó hacer, hundirse en el barro. No podía hacer mucho al r
+especto, no más que Joe Biden, del cual Poroshenko era criatura política. A
+demás, la cuestión ucraniana como conflicto no era primordial para T rump, como
+no fuera para atacar, precisamente, a los Biden, padre e hijo. Para lo c
+ual encontró la oportunidad —o lo que a él le pareció una buena oca-sión—
+el 25 de julio de 2019, cuando telefoneó al nuevo presidente ucra-n
+iano, Volodímir Zelenski, para pedirle que colaborara en la investigación con
+la fiscalía estadounidense contra el exvicepresidente Joe Biden. Ahí jugaba
+una pesquisa contra su hijo, Hunter Biden, y se trataba de averi-guar
+si su padre había detenido el enjuiciamiento. Desde luego, era una petición
+muy inapropiada e inusual a esos niveles; y tal como la expresó T
+rump, contenía un tono de impertinente exigencia imperial dirigida al j
+oven gobernador de una remota provincia. Por si fuera poco, el presiden-te
+americano amagó con restringir entregas de armamento americano a U
+crania por valor de cuatrocientos millones de dólares con el fin de pre-s
+ionar a Zelenski. El escándalo fue mayúsculo —uno más de los que acompañar
+on la presidencia de T rump— y dio pie a que se iniciara el primer
+proceso de impeachment c ontra el mandatario, ante la Cámara de impeachmentR
+epresentantes. ¿
+Pero quién era Volodímir Zelenski?. T écnicamente hablando, era un j
+oven político populista; el nombre del partido que fundaría era elocuen-t
+e: Servidor del Pueblo. Se trataba de una formación política definida como multicompr
+ensiva, o catch-all,  creada en torno al líder y sin una ideología política
+concreta. El mismo Zelenski era un político accidental. Nacido en una
+familia de académicos de Krivói Rog, en el sureste de Ucrania, se ga-naba
+la vida como humorista y sho wman especializado en sátira política. P
+recisamente, su gran éxito profesional fue la serie televisiva S ervidor del Pu
+eblo, por la cual un humilde profesor de secundaria (Vasyl Holoborod-ko)
+llega a ser presidente de Ucrania a partir de que uno de sus alumnos graba
+inadvertidamente un vídeo del personaje quejándose del gobierno y lo
+convierte en viral. S ervidor del Pueblo se emitió entre 2015 y 2019, en v
+arias temporadas, y se hizo muy popular en Ucrania. La sorpresa vino cuando
+el cómico se presentó a las presidenciales, que tuvieron lugar en abril
+de 2019, y más aún cuando salió ganador en la segunda ronda, con el 73,22% de los v
+otos, derrotando a Poroshenko.V
+isto en perspectiva, lo sucedido no era tan novedoso a esas alturas del
+## siglo /x.sc/x.sc/i.sc .  Olga Baysha ofrece una lista nutrida de ejemplos similares
+
+---
+
+188
+188U CRANIA 22c
+ómicos y actores metidos a políticos, acompañados de partidos provoca-dor
+es, un perfil muy característicamente populista16 .  Estaba muy cercano en
+el tiempo el cómico italiano Beppe Grillo, cofundador y líder del Mo-vimiento
+Cinco Estrellas en 2009. El estilo populista y el tipo de críticas a
+l poder, hurgando en la corrupción y buscando movilizar al pueblo, eran semejantes.
+El italiano demostraba unas tendencias más izquierdistas, p
+ero el trasfondo político era el mismo y la evolución previsible, basada en el
+oportunismo, era similar. Pero Zelenski tuvo, desde un principio, un per
+fil decididamente más neoliberal, y sus simpatías iban hacia otro ex-actor
+que había alcanzado la presidencia de los Estados Unidos: Ronald R
+eagan17 . Lo
+que sí quedó en la penumbra fue el padrinazgo que ayudó a aupar a
+Zelenski al poder y las intenciones que había detrás. Por entonces circu-ló,
+con visos de credibilidad, la versión de que había sido apadrinado, o i
+ncluso promocionado, por el oligarca Íhor Kolomoiski con la intención de
+impedir que Poroshenko ganara las elecciones. Existían indicios com-p
+robados e hipótesis verosímiles. Es un hecho que el Canal 1+1 que emitía l
+os programas producidos por Estudio Barrio-95, la compañía audiovisual fundada
+en 2003 por Zelenski, era propiedad del oligarca Kolomoiski. La c
+uestión saltó en diversas ocasiones a la actualidad pública ucraniana y
+siempre fue desmentida por el que devendría nuevo presidente, antes y después
+de las elecciones. En marzo de 2019, en plena campaña electoral, K
+olomoiski dio una extensa entrevista en la que se mostraba como un firme
+partidario de Zelenski, puesto que era el representante de una nueva generación
+que debería rejuvenecer el mundo político ucraniano, y, sobre todo,
+una apuesta segura para derrotar a Poroshenko, bajo cuya presiden-cia
+el país se había empobrecido, la corrupción se comía todo y Ucrania había
+perdido Crimea y el Donbas. Por supuesto, negaba que el joven candidato
+fuera una marioneta suya18 .  Pero lo cierto era que el oligarca, q
+ue vivía exiliado entre Israel y Suiza, en razón de los escándalos de cor
+rupción que había protagonizado durante la presidencia de Poro s-h
+enko, regresó a Ucrania poco antes de la investidura de Zelenski como p
+residente. Afirmaciones de la prensa más amarillista hablaban del candi-16
+Baysha (2022): p. 37.17
+I bid., p . 38.18
+«Kolomoisky lucha por el poder absoluto, a pesar de la Constitución», F orum Daily, 28 de mar
+zo de 2019 [consultable en red].
+
+---
+
+V
+IEJOS Y JÓVENES189 dato
+haciendo la campaña electoral con guardaespaldas y vehículos cedi-d
+os por Kolomoiski o sugiriéndole a más de treinta candidatos a diputados del
+partido Servidor del Pueblo19 .  Uno de los abogados de Kolomoiski fue nombrado
+jefe de la administración presidencial20 .  Pero no parece caber duda
+de que los medios de comunicación del oligarca dieron mucha co-b
+ertura a la campaña electoral de Zelenski y se llegó a hablar de que el cer
+ebro estratégico de la operación fue el magnate. Esa
+campaña fue muy innovadora, revolucionaria, podría decirse. D
+esde el anuncio de su candidatura en la Nochevieja de 2018 hasta las elecciones
+del 31 de marzo de 2019, recorrió el país en autobús, no hubo mítines,
+sino actuaciones de su t roupe, trasladando el mundo de sus s howsy
+de la serie S ervidor del Pueblo —cuya última temporada se emitió preci-samente
+en esas semanas— a la campaña electoral. Fijó sus reglas en los debates,
+humilló a su rival, Poroshenko; hizo alarde de gestualidad histrió-nica,
+derrochó selfis, se comunicó noche y día con los ucranianos a través d
+e las redes sociales —Facebook e Instagram— y se convirtió más en un influencer
+que  en un candidato. Y, sobre todo, tiró de modernas técnicas influencerdel
+neuromárketing político, adaptó contenidos al tipo de humor que funcionaba
+para su público, generó márketing viral polémico ya desde las t
+## res temporadas de su serie S ervidor del Pueblo r ecurrió a fondo al efecto halo
+lo bello, lo joven, lo divertido, no puede ser malo. Emocionó a los ucranianos,
+los sacó de la rutina gris y desesperanzada, del muermo y el hastío,
+el aburrimiento y la desesperanza: los divirtió, los hizo reírse de sus desgracias
+—que eran las de todos—, los emocionó. Y ganó la partida con difer
+encia, arrasó. Con sus 41 años de edad, consiguió el 73,22% de los v
+otos en segunda vuelta, el 21 de abril de 2019.S
+in embargo, al cabo de unos meses, eso ya no parecía el comienzo de una
+historia. Como tras la R evolución Naranja, e l Euromaidan, la Prima-v
+era Árabe y todas las modernas «revoluciones blancas» de ingeniería so-cial
+ideadas en los Estados Unidos, el resultado ha venido siendo más o menos
+el mismo: ruptura del statu quo sociopolítico, fulgurante toma del p
+oder y, a continuación, incapacidad de cambiar la política y la sociedad 19
+«Cómo un multimillonario ucraniano financió a Hunter Biden, al presidente Volodymyr Z
+elensky y al batallón neonazi Azov», por KanekoaTheGreat, en E xtramuros, 31 de marzo de 2022 [consultable en r
+ed].20
+«Kolomoisky, el oligarca que pone en apuros al presidente ucraniano», SWI – swissinfo.ch, 28 de no
+viembre de 2019 [consultable en red].
+
+---
+
+190
+190U CRANIA 22e
+n profundidad, fracaso en la solución de los problemas estructurales bá-s
+icos. El público compra la historia, el producto, y al final resulta que no era sino eso, pr
+ecisamente: un producto. Comenzando
+por el hecho de que costaba creer a  priori, que la opera-c
+ión Zelenski pudiera ser limpia e innovadora habiendo surgido de un contexto político tan sucio y corr
+upto como el ucraniano de la época. Los
+hechos parecieron corroborar la hipótesis. Zelenski organizó los primer
+os tiempos de su presidencia como si fuera un r eality show21 ww.  Invita a
+T om Cruise al despacho presidencial; todo ante las cámaras, siempre ante
+las cámaras. Para elegir a su portavoz, organizó un concurso ante las cámaras,
+en el que sus candidatos fueron evaluados por su gestión del es-t
+rés y su sentido del humor. Les aplicaba el polígrafo a los diputados de su par
+tido acusados de recibir sobornos, en entrevistas retransmitidas en str
+eaminge n Facebookeaming22 kk.  Daba los buenos días a los ciudadanos desde el gimnasio;
+explicaba su rutina conduciendo el coche. Le encantaba, lo dis-f
+rutaba y se notaba; el espectáculo era su profesión. Pero luego, el mismo Z
+elenski terminó con las cámaras y los focos sobre su cabeza cuando T
+rump le presionó para que facilitara la investigación sobre las actividades d
+e los Biden en Ucrania, a finales de julio de 2019, a punto de convertirse en
+culebrón de verano. Y eso ya no fue tan divertido, porque el narcisismo implacable de
+T rump pasó por encima del de Zelenski.N
+o es de extrañar que tras dos años y medio al frente del país su trayec-t
+oria empezara a revelarse decepcionante. El espectáculo no va a más y can-s
+a. Las dos promesas centrales de su campaña electoral fueron eliminar la c
+orrupción y terminar con la guerra latente en el Donbas. Pero no está claro q
+ué resultados está obteniendo en el primer frente. En cambio, impulsa en m
+odo «turbo» (s ic) t oda una serie de leyes y medidas claramente neolibera-l
+es, entre ellas las de privatizar la educación superior o facilitar los despidos, l
+o que le vale la animadversión de los sindicatos. Y en cambio, consigue que l
+a firma de calificación de riesgos Fitch Rating, de Nueva York, muy bien c
+onsiderada en Wall Street, suba la nota de Ucrania de –B a B23 . N
+oviembre de 2019: se hace patente que antiguos compañeros y em-pleados
+de la productora audiovisual de Zelenski, Barrio-95, ocupan aho-21
+Papa, Fresco y Genre (2022): minutos 27:55 y ss.22
+I bid., minutos 27:55 y ss. 23
+Baysha (2022): pp. 38-40.
+
+---
+
+V
+IEJOS Y JÓVENES191 ra
+cargos importantes en el entorno presidencial. Serhiy Shefir, Sergiy T ro-f
+imov, Irina Pobedonostseva, Yuriy Kostyuk: el que antes era guionista ahora
+es jefe adjunto de la Oficina del Presidente; el socio comercial y p
+roductor de series deviene jefe de esa misma oficina. ¿El productor ejecu-tiv
+o? Es nombrado primer jefe adjunto de la Oficina del Presidente. Ivan B
+akanov, en concreto, experimentó un ascenso meteórico: amigo de la i
+nfancia del presidente, jefe y abogado de Barrio-95, luego presidente del p
+artido Servidor del Pueblo. Y a finales de agosto de 2019, nada menos que
+director del SBU, el servicio de inteligencia y seguridad ucraniano. Q
+ue es ni más ni menos que el mayor servicio de inteligencia y seguridad d
+e Europa por número de agentes24 . P
+ero la cosa, aunque alarmante, no se quedó ahí. Sergei Sivojo, s how-man,
+c omediante y productor creativo de Barrio-95, pasa a ser el asesor del
+secretario del Consejo Nacional de Seguridad y Defensa de Ucrania s
+obre la reintegración y recuperación de Donbas; Maxim Tkachenko, an-t
+iguo CEO de Barrio-Concert, empresa subsidiaria de Barrio-95, es nom-brado
+secretario de ese mismo Consejo de Seguridad y Defensa Nacional. R
+esulta incluso más llamativo que Vladislav Bujarev, que era un fan regio-nal
+de los espectáculos de Barrio-95, termine siendo transferido, por de-c
+reto de Zelenski, a la SBU, como jefe del servicio de inteligencia extran-jera (SZR), nada más y nada menos
+25 . Comité
+Antimonopolio, Ministerio del Interior, junta de supervisión d
+e PrivatBank, centros muy sensibles de poder, depositarios de informa-c
+ión reservada, controlados por antiguos colaboradores no políticos del p
+residente, por amigos de amigos, en algunos casos. Alexander Zavit-nevich,
+cuya esposa estudió en la misma clase de Zelenski, fue elegido como
+diputado para la Rada por la lista del partido Servidor de Pueblo, y también
+jefe del comité de Defensa de Seguridad Nacional. Pero no asiste a
+las reuniones del Comité que preside y solo ha comparecido tres veces en los
+debates de la Rada26 .  En otros casos, los beneficiarios dieron grandes s
+altos promocionales. Es el caso de Alexei Pashkov, un veterano oficial de inteligencia
+militar, quien tras servir durante dieciocho largos años en el 24
+«Getting Ukraine’ s security service reform right», por Oleksandra Ustinova y Steven Pifer , S
+tanford, Center for International Securuity and Cooperation (CISAC), 1 de marzo de 2021.25
+«Zelenski y el nepotismo de “Barrio-95”», en A l Sur de un horizonte, 8 de noviembre de 2019 [consultable en r
+ed].26
+Ib id. dd
+
+---
+
+192
+192U CRANIA 22D
+epartamento de Inteligencia Estratégica, dio un salto de diez puestos oficiales
+para asumir el cargo de jefe interino del mencionado departa-m
+ento. La razón parece haber estado en que su esposa, Oksana, era la jefa contable de B
+arrio-9527 . Estos
+personajes eran, en buena medida, gente del barrio de Zelenski, en
+su ciudad natal de Kryvyi Rih o Krivói Rog, según se pronuncie en u
+craniano o ruso. Es una localidad de poco más de 600.000 habitantes, per
+teneciente al óblast de Dnipropetrovsk, del cual, por cierto, era gober-n
+ador el oligarca Íhor Kolomoiski, que, además, era de la comunidad judía del
+sur de Ucrania, como Zelenski, cabe decirlo. Precisamente, el nombre d
+e  l a  p r o d u c t o r a ,  B a r r i o - 9 5 ,  h a c í a  r e f e r e n c i a  a  u n  b a r r i o  e s p e c í f i c o  d e  K
+rivói Rog. Era tan de allí que sus programas y s howss e emitían en ruso, sp
+uesto que era zona rusófona y el mismo Zelenski se expresaba en ruso como
+lengua materna. No es de extrañar que en Ucrania corriera el chiste d
+e preguntar o n line: « ¿Cuántas personas se mudaron de Barrio-95 al Barrio gubernamental?»
+Estas
+vinculaciones cobraron mayor relieve y significado cuando en o
+ctubre de 2021 salieron a la luz los denominados «Papeles de Pandora», la
+investigación del Consorcio Internacional de Periodistas de Investiga-ción
+(ICIJ) que filtró casi dos millones de documentos confidenciales so-b
+re cuentas offshor ed e unas trecientas personalidades políticas y famosos ed
+e 91 países. Aunque en sí mismas las cuentas en paraísos fiscales no son ilegales,
+su alto nivel de secreto y opacidad suele vincularlas con casos de c
+orrupción, evasión fiscal o lavado de capitales. Por ello, el descubrimien-to
+de que el nombre de Volodímir Zelenski aparecía en los «Papeles de P
+andora» disparó todas las alarmas28 . E
+n esencia, se encontró la documentación sobre una red de empresas extraterritoriales
+fundadas por Zelenski y una serie de colaboradores de la p
+roductora Barrio-95, cuya sede eran las Islas Vírgenes Británicas, Chipre y
+Belice. Ente los que aparecían implicados en esta red se encontraban dos personajes
+clave de su entorno: Serhiy Shefir e Ivan Bakanov. El primero accede
+al cargo de primer asistente del presidente, mientras que Bakanov, a
+migo de la infancia del presidente, director de Barrio-95 y cofundador del p
+artido Servidor del Pueblo, es el que termina siendo nombrado director 27
+Ib id. dd28
+Papa et al.  (2022): minutos 32:15 y ss.
+
+---
+
+V
+IEJOS Y JÓVENES193 d
+el SBU. Es decir, hay una voluntad clara de situar a un colaborador fiel y de
+total confianza como guardián de los secretos del grupo, al frente del ser
+vicio de inteligencia y seguridad, una vez Zelenski se convierte en pre-s
+idente. Pero los investigadores descubrieron también que el presidente y sus
+colaboradores utilizaron esas mismas compañías extraterritoriales para a
+dquirir propiedades inmobiliarias de alto standing en  Londres, cuartel standinggeneral en el extranjer
+o de oligarcas rusos y ucranianos. Estas
+operaciones eran relativamente antiguas, de cuando nadie podía imaginar
+que algún día Zelenski pudiera llegar a convertirse en presidente d
+e Ucrania. Hablamos de 2012, el año en el que el humorista y su equipo e
+mpezaron a trabajar para los medios de comunicación de Kolomoiski. P
+osteriormente, estas firmas extraterritoriales habrían recibido hasta unos 41
+millones de dólares de PrivatBank, el banco del oligarca, que se espe-c
+ializó en el esquema de sacar de Ucrania y lavar cientos de millones en divisas,
+obtenidos en concepto de líneas de crédito y préstamos fraudulen-tos,
+hasta un total de más de cinco mil millones de dólares. Poco antes de filtrarse
+toda esta documentación de los Papeles de Pandora, el 22 de sep-tiembr
+e, Serhiy Shefir sufrió un atentado del que salió ileso29 . E
+n paralelo, millones de esos dólares fueron lavados en los Estados U
+nidos por el método de inversión en bienes raíces comerciales, desde O
+hio hasta Kentucky y T exas. Eso incluyó la compra de una docena de plan-tas
+siderúrgicas en pequeñas poblaciones, operaciones que terminaron en «fábricas
+en bancarrota, impuestos impagados, edificios podridos y cien-tos de trabajador
+es desempleados»30 . Es
+comprensible que el joven presidente Zelenski terminara perdien-do
+buena parte de su pátina de líder ilusionante en poco más de un par de a
+ños. Y no solo por las desconcertantes sospechas o revelaciones que fue-r
+on abriéndose camino y que él mismo no supo contrarrestar eficazmente. El
+s howc ansaba, como todo espectáculo mediático. Entre estadistas inter-wnacionales,
+Zelenski no podía jugar su baza de chico travieso. Los guiños p
+ícaros y las sonrisas cómplices no tenían cabida entre Merkel, Macron, P
+utin o T rump. Quedaba fuera de juego, con cara de despistado, ajeno a la pompa y el pr
+otocolo; carecía de aplomo y estatura.29
+Loginova (2021).30
+Pedro González (2022), «Servant of the Corrupt», IM.1776,  27 de mayo de 2022 [consul-table en r
+ed].
+
+---
+
+194
+194U CRANIA 22Así
+que, junto con la falta de resultados en el lavado de la corrupción c
+on lejía y aguarrás, Ucrania seguía siendo el paraíso de los oligarcas, con s
+u economía a medio desmontar, cada vez más desconectada de Rusia, sí, p
+## ero dependiente de proveedores lejanos y extraños. Y otra promesa in-cumplida
+el final de la guerra en el Donbas, con goteo de muertos diario, con
+bombardeos y fuego de contrabatería, con escaramuzas ocasionales a lo
+largo de la línea de frente, ilustrada en el documental D onbassd e AnnesLaur
+e Bonnel (2016)31  o en el film homónimo de Sergei Loznitsa (2018) d
+esde el otro bando: una población empobrecida y abandonada, bombar-deada, una guerra civil eterna y doliente
+32 . P
+oroshenko había sido muy duro con el Donbas insurgente, y lo mos-t
+ró en el ya célebre discurso de 2014:N
+osotros tendremos trabajo. ¡Y ellos no! Nosotros tendremos pensiones. ¡Y e
+llos no! Nosotros tendremos prestaciones para los pensionistas y los niños. ¡
+Y ellos no! Nuestros hijos irán a la escuela y la guardería. ¡Los de ellos se quedarán
+en los sótanos! Porque no pueden hacer nada. Y así, precisamente así, ganar
+emos esta guerra33 . Z
+elenski, inicialmente, parecía dispuesto a gestionar la situación de una manera
+más racional. En diciembre de 2019, él y Putin se entrevistaron c
+ar a a cara en el Elíseo, en una cita auspiciada por el presidente francés, E
+mmanuel Macron, y la canciller alemana Angela Merkel. El presidente r
+uso y el ucraniano acordaron un alto el fuego total en el frente, intercam-bio
+de prisioneros, retirada de las respectivas fuerzas armadas de tres zonas d
+e repliegue para generar «zonas tampón» desmilitarizadas. Es lo que se d
+enominaba una cumbre de «formato Normandía», por la primera reu-ni
+ón que mantuvieron los mandatarios ruso, ucraniano, francés y ale-m
+án en el castillo de Bénouville, Normandía, el 6 de junio de 2014, para r
+esolver el conflicto en el Donbas. En aquella ocasión se conmemoraba e
+l desembarco aliado en las playas de Normandía, el 6 de junio de 1944. E
+n 2019, las bases de la reunión seguían siendo los Acuerdos Minsk I y M
+insk II. 31
+Bonnel (2016): https://www .youtube.com/watch?v=i7FZ5SY57_.32
+Véase asimismo el reportaje de Hutin (2022). Para un estudio actualizado sobre la guerra del D
+onbas a partir de 2015 y sus consecuencias sociales y económicas, Marples (2022).33
+Bonnel (2016): minuto 0:00 a 0:30.
+
+---
+
+V
+IEJOS Y JÓVENES195 U
+na vez más, la iniciativa diplomática no obtuvo resultados tangibles. Z
+elenski hizo balance del encuentro, medio año más tarde, en una entre-vista
+en la que afirmó que existía una alta probabilidad de terminar la g
+uerra, pero no se comprometió con una fecha. Y, por otro lado, no tuvo ambages
+en afirmar que «Crimea es nuestro territorio y lo traeremos de vuelta»
+34 .  «Sin diálogo no habrá resultados», admitió en la misma entrevis-t
+a, pero no se llevaron adelante cambios en la Constitución ucraniana para d
+efinir a Donetsk y Lugansk, o al menos la porción en manos de los insur-gentes, como una entidad autónoma o federal específica.
+E
+n cambio, sí que se estaban acelerando los programas de rearme impul-s
+ados por los Estados Unidos, y las maniobras militares conjuntas en suelo uc
+raniano. En cuanto a las cantidades enviadas a los gobiernos de Kiev, pasa-r
+on de los 85 millones de dólares de 2016, en concepto de Foreign Military F
+inancing, a los 115 de 2021. Y en el capítulo de ayudas específicas a la segu-r
+idad de Ucrania, las cantidades ascendieron de los 226 millones de ese pri-m
+er año a los 275 de 2021. No eran grandes sumas si se considera que los c
+ostes relativos a armamento, seguridad e inteligencia son siempre muy eleva-d
+os; y más si se trata de un país de la envergadura de Ucrania y con la necesi-d
+ad de confrontar a un adversario de la talla de Rusia. Parece evidente que la p
+residencia de T rump ha contribuido a echar un tanto el freno. Los gastos del p
+rimer capítulo (FMF) se estabilizaron en los 115 millones para 2019, 2020 y
+2021. En cuanto a los gastos destinados a seguridad e inteligencia, descen-d
+ieron a 148 millones en 2017 y luego se elevaron, sin mucho entusiasmo, a l
+os 195 (2018), los 214 (2019) y los 256 (2020)35 . P
+ero de repente las previsiones de los FMF crecieron dramáticamente hasta
+los 322 millones previstos para 2022 en un primer tramo y a los 4.0
+00 para un segundo tramo en ese mismo año. En cuanto a las cantida-des
+destinadas a la asistencia en seguridad, incluyeron un primer tramo de 300
+millones de dólares para ese mismo año de 2022, que se elevaron a los 6.000
+millones en un segundo paquete. Además, y sobre todo, la lista de los
+ejercicios y maniobras militares conjuntas entre unidades militares es-tadounidenses
+y ucranianas también se disparó para 2022. ¿Qué había sucedido?
+34
+Volodímir Zelenski, «Crimea es nuestro territorio, lo vamos a recuperar», Entrevista: E uro-news, G
+lobal Conversation, incluido en YouT ube el 25 de agosto de 2020 [consultable en red].35
+Congressional Research Service (2022).
+
+---
+
+
+
+---
+
+C
+APÍTULO 11P
+ELEAS EN CALLES VACÍASB
+AJO LA PANDEMIA, 2020-2021P
+reachers were all preachin’Charities beseechin
+’P
+oliticians dealin’Thiev
+es were happy stealin’W
+idows were all weepin’T
+here’s no beds for us to sleep inAlways had the feelin
+’I
+t will all come tumblin’ downI
+’m a ghostLivin
+’ in a ghost townY
+ou can look for meB
+ut I can’t be found«Living in A G
+osht T own» (2020), The Rolling StonesA
+comienzos del año 2020, el mundo se enfrentó a una verdadera contien-da
+mundial inesperada que iba a provocar varios millones de muertos a escala
+planetaria. Fue, en cierta manera, una gran guerra químico-bacte-riológica
+lidiada contra el virus COVID-19, en la cual se aplicaron proto-colos
+de guerra NRBQ para proteger masivamente a la población. La pan-demia
+afectó al tejido social de numerosos países, distorsionó las economías y
+provocó una nueva recesión que siguió a la de 2008. Por supuesto, alteró los
+planes geoestratégicos de las grandes potencias. Pero, sobre todo, la pandemia
+se dispersó por el mundo, impactando seriamente en una op-ción
+política que a su vez también se había extendido globalmente desde, más o menos, el año 2014: el populismo
+.N
+ormalmente, los grandes fallos tecnológicos que generan situaciones críticas
+tienden a dejar en mala situación a los gobiernos fundados sobre impor
+tantes corrientes ideológicas. Esa fue la causa de que la catástrofe
+
+---
+
+198
+198U CRANIA 22nuclear
+de Chernóbil, en 1986, impactara tan negativamente en el régi-m
+en soviético. El discurso de la Unión Soviética como faro de la revolu-ción
+socialista mundial y del progreso quedaba seriamente menoscabado ante
+la incapacidad de prevenir el accidente —producto de un deficiente diseño
+de las centrales nucleares— y de controlar y atajar sus consecuen-c
+ias. Por el contrario, los regímenes populistas, sin un soporte ideológico consistente,
+tendentes a buscar o imaginar soluciones y propuestas de un día
+para otro, en ocasiones resultan más resilientes ante este tipo de pro-blemas.
+Cabe añadir que, posiblemente, no encuentren la solución al de-s
+astre; pero pueden responder poniendo énfasis en otros escenarios colate-r
+ales, ganando tiempo o «inventando» nuevos problemas que em pe queñecen la
+crisis tecnológica. Y, en último término, como no existe un frente real d
+e regímenes populistas, los fracasos de los unos no desmerecen los acier-tos
+de los otros1 .  Los populismos son formas de gobierno hechas a medida d
+e culturas y naciones, sobre «pueblos» concretos; y no patrones de alcan-ce
+internacional. Tienden al aislacionismo y a la autarquía —como solu-ciones
+ideales difícilmente alcanzables, por supuesto— y por ello sus a
+ciertos se presentan como «originales» en cada caso. Buen ejemplo de lo cual
+fueron las diversas formas de encarar la pandemia del COVID-19, m
+ás o menos extravagantes, por parte de T rump, Bolsonaro, Boris John-s
+on, Lukashenko o los dictadores del Asia Central postsoviética, por poner solo
+unos pocos ejemplos2 .  A este respecto, cabe recordar que la mayor par
+te de los estadistas implicados en la crisis de Ucrania eran populistas: lo e
+ran T rump y P utin, y lo era Z elenski. T ambién entraba dentr o de esa categoría
+el presidente turco Recep Tayyip Erdoğan, que tendrá un papel destacado
+en esta última fase de la crisis y durante la guerra de 2022. De otra
+parte, las políticas populistas tienden a generar reacciones interactivas q
+ue, a su vez, tiñen de populismo políticas ajenas. De ahí que si bien el p
+residente Joe Biden quizás no poseía una matriz populista, en ocasiones se dejó llev
+ar por respuestas y dinámicas de esa índole.T
+odo ello tendrá que ver, y mucho, con la crisis ucraniana. Pero vino p
+recedida por la «guerra de las vacunas», con diversos frentes, internos y e
+xternos. En líneas generales, respondió a los posicionamientos de los go-b
+iernos con respecto a las cuantiosas inversiones hechas en determinadas 1
+Katsambekis y Stavrakakis (2020).2
+Ib id. dd
+
+---
+
+P
+ELEAS EN CALLES VACÍAS199 farmacéuticas
+y sus investigaciones y productos. Pero también se abrieron campañas
+que obedecían a la supuesta continuidad de los enfrentamientos geoestratégicos
+anteriores a la pandemia de COVID. Las potencias occi-dentales
+acusaron a Rusia y China de intentar ganar influencia y prestigio c
+on la distribución solidaria pero «oportunista» de sus vacunas (Sputnik y
+Sinopharma o Sinovac). Rusia, en especial, fue la primera potencia en desarr
+ollar una vacuna contra el COVID, que por ende era más barata que las
+occidentales. Y a diferencia de los Estados Unidos, donde T rump pun-t
+ualizó que las vacunas estadounidenses eran solo para los ciudadanos es-tadounidenses,
+Moscú ofreció exportar su Sputnik a aquellos países que estaban teniendo dificultades para acceder a esos fármacos.
+T
+anto estadounidenses como europeos veían la posibilidad de que, t
+ras su intervención en la guerra de Siria, Rusia continuara rompiendo su aislamiento
+internacional, debido a las sanciones por la guerra del Don-bas,
+gracias a la distribución de su vacuna en Latinoamérica y África, pero también
+en algunos países europeos del Este. Esta alarma se veía azuzada p
+or la espectacular insolidaridad de los Estados Unidos y la Unión Europea, i
+ncluso entre ellos mismos, como abanderados del liberalismo ultracom-petitiv
+o y egoísta. L
+a iniciativa rusa tuvo un gran éxito en Latinoamérica, especialmente en
+Argentina, donde se inyectaron 20 millones de dosis; Venezuela, con 17
+millones; México, con 24 millones, y, atención, Perú, con 40 millo-nes
+3 .  Así que Moscú se había colado en el patio trasero del Tío Sam con s
+us vacunas Sputnik, hasta el punto de que algunos de esos países adqui-rier
+on la licencia para fabricar el fármaco. L
+a reactivada pelea ruso-americana durante los meses de la pandemia t
+uvo otro frente, de mayor envergadura, si cabe: el petróleo. El confina-miento
+en sus domicilios de miles de millones de personas en todo el planeta
+supuso que los aviones de las compañías aéreas se quedaran en los hangar
+es de los aeropuertos; las empresas detuvieran su maquinaria y can-celaran
+el consumo de energía; las ciudades quedaran desiertas. Así que la demanda de cr
+udo se hundió en un catastrófico 30%. E
+n esa situación, en marzo de 2020, Arabia Saudí y Rusia iniciaron una
+guerra de precios al incrementar su producción, en vez de recortarla, 3
+«Las vacunas Sputnik: ¿se verán afectadas por las sanciones contra Rusia?», por Mar Romero, F
+rance24 (canal en español), 22 de mar zo de 2022 [consultable en red].4
+
+---
+
+200
+200U CRANIA 22inundando
+los mercados de petróleo barato, amenazadoramente barato para
+los Estados Unidos. En principio, la causa es que China, cerrada y confinada
+en sí misma, rechaza los buques petroleros en sus puertos. La superpotencia
+consumidora de hidrocarburos, la economía siempre en c
+recimiento y hambrienta de energía, está enferma. Y por ello, los grandes p
+roductores del mundo, Rusia y Arabia Saudí, fuerzan una bajada de pre-c
+ios. Pueden hacerlo: ambos países poseen ingentes reservas de divisas para
+hacer frente a las pérdidas temporales que supone rebajar el crudo aun per
+diendo dinero. P
+ero hay alguien que puede salir muy perjudicado: los Estados Uni-d
+os. Su apuesta por la producción de petróleo de esquisto bituminoso se bloquea
+cuando el barril de petróleo cae a determinados niveles; sencilla-mente,
+deja de ser rentable, porque las inversiones que comporta la técni-ca
+del f rackings on elevadas. En T exas, epicentro de la revolución del es-gquisto,
+no saben dónde guardar el crudo que se les acumula. Pero es que l
+a ofensiva rusa, con la brutal caída de precios que genera, se lleva por d
+elante a compañías americanas tradicionales que se declaran en quiebra, c
+omo Whiting Petroleum Corporation o Diamond Offshore Drilling. E
+ntre abril y junio de 2020, la producción estadounidense tocó fondo por
+que la cotización del crudo es menos que cero, llega a ser negativa por p
+rimera vez en la historia. ¿La causa de la jugada rusa? Una respuesta a las s
+anciones de Washington contra la compañía petrolera estatal rusa Rosneft e
+n febrero de 2020, por negociar la venta y transporte de crudo venezola-no,
+ayudando así al régimen de Nicolás Maduro a evadir las sanciones impuestas por la Casa B
+lanca en su contra4 . E
+l mundo estaba cambiando a marchas forzadas, fragmentando la globalización.
+Cuando los precios del petróleo comenzaron a desplomar-se,
+los ejecutivos de las empresas de distribución de materias primas se pusier
+on en marcha con rapidez. Con su formidable capacidad para mo-vilizar
+miles de millones de dólares a velocidad de vértigo, se hicieron con una
+flotilla que integraba los mayores petroleros del mundo y empezaron a
+comprar remanentes de petróleo, enormes cantidades, especialmente de los
+pozos de esquisto, de Bakken y la Cuenca Pérmica. Desde allí, la mul-4
+«Estados Unidos sanciona a Rosneft: cómo ayuda la petrolera a Nicolás Maduro y por qué es c
+lave en el nuevo pulso entre Estados Unidos y Rusia en Venezuela», por Guillermo D. Olmo, BBC N
+ews, 7 de febr ero de 2020 [consultable en red].
+
+---
+
+P
+ELEAS EN CALLES VACÍAS201 t
+inacional Glencore llevó el crudo al golfo de México, donde estaba fon-deado
+el N ew Comfort, con cerca de 400.000 toneladas de capacidad de c
+arga. El buque puso proa hacia el estrecho de Malaca, frente a Singapur, donde
+traspasó el petróleo al supertanque Eu roped e 441.000 toneladas deecapacidad,
+esto es, el equivalente a tres millones doscientos mil barriles de p
+etróleo. Allí el navío cargado a reventar de oro negro esperó tres meses, con
+el ancla echada en alta mar, mientras Glencore negociaba ese produc-to
+en el mercado de futuros. En julio, un millón de barriles fueron trasva-sados
+delEu ropea  otro petrolero que lo desembarcó en la refinería de eO
+san, en Corea del S ur . De esa forma, Glencore, como otras empr esas i
+ntermediarias de materias primas, el gran negocio multinacional de los pri-mer
+os años del siglo /x.sc/x.sc/i.sc ,  ayudó a salvar el negocio del f rackinga mericano, ga
+la vez que amasaba unos beneficios de entre el 50 y el 100% en cada operación
+5 . P
+ero es que, previamente, el mismo tipo de empresas le habían salva-do
+la cara a Putin. T ras la guerra del Donbas, las sanciones occidentales i
+ncluyeron indirectamente a la empresa Gunvor, registrada en Ámsterdam en
+1997 por Gennady Timchenko y T orbjörn Törnqvist y especializada en la
+exportación de petróleo ruso a través de Estonia. El primero era amigo c
+ercano de Putin, aunque poco antes de que las sanciones se hicieran efec-t
+ivas Timchenko vendió su participación a su socio Törnqvist. Otro de los empr
+esarios y financieros severamente sancionado fue Igor Sechin. En este
+caso, la pieza era importante, puesto que Sechin había sido teniente de
+alcalde y jefe de Putin en el Ayuntamiento de San Petersburgo y, más t
+arde, el nuevo presidente lo nombró supervisor de seguridad relacionado, s
+obre todo, con los asuntos de energía. Era un hombre poderoso y peligro-s
+o, jefe de la facción de los s iloviki o personajes relacionados con los s
+ervicios de seguridad, inteligencia, policía, fiscalía e interior, en general. C
+uando en 2004 se convirtió en presidente de Rosneft, la gran empresa petr
+olífera del gobierno ruso, Sechin alcanzó la cumbre de su carrera. Ade-m
+ás de las sanciones impuestas por Washington al oligarca, se cerraron l
+os grifos del crédito occidental a Rosneft. La situación era difícil y afecta-b
+a a la estabilidad del rublo y a la capacidad financiera rusa en su conjun-t
+o. Pendiente de devolver unos 45.000 millones de dólares a bancos e in-v
+ersores occidentales, los comerciantes de materias primas se ofrecieron 5
+Blas y Farchy (2022): p. 413.
+
+---
+
+202
+202U CRANIA 22sin
+escrúpulos para solucionar el problemas a los rusos, entre ellas T rafigu-r
+a y Glencore. Esta última compañía, una multinacional con sede en Sui-za,
+compró en 2016 una importante participación de Rosneft gracias a q
+ue, a su vez, estaba fuertemente participada por el fondo soberano de Q
+atar. Unieron fuerzas y juntaron 11.000 millones de dólares para hacer-se
+con la participación de Rosneft, aportar un alivio a las arcas rusas y, por supuesto, ganar mucho diner
+o6 . Al
+menos desde 2008, cuando la Gran Recesión enterró el Nuevo O
+rden Mundial y las pretensiones de unilateralismo asociadas a él, las guerras
+comerciales y financieras, muchas de ellas desconocidas para el gran
+público, habían ido subiendo de tono. La pandemia del COVID terminó
+de agravar las cosas en un mundo con ciudades de calles vacías, como cantaban los R
+olling Stones por entonces.E
+n ese mundo, cada uno iba por su lado, era el sálvese quien pueda, aunque
+sin saber muy bien dónde estaba el puerto seguro al que había que l
+legar. Los sagaces israelíes parecieron verlo claro cuando el 15 de septiem-b
+re de 2020 firmaron el denominado Acuerdo de Abraham, con los Emi-r
+atos Árabes Unidos y Baréin7 .  Con Siria e Irak fuera de juego y Egip-t
+o apacig u a d o ,  I s r a e l  p o d í a  e m p ez a r  a  p e n s a r  e n  l a b r a r s e  u n  f u t u r o  d e  a
+lianzas y liderazgo tecnológico en el mundo árabe, empezando por los pujantes
+pequeños estados del Golfo Pérsico. Eso también implicaba asu-mir
+cierta mayoría de edad con respecto a los Estados Unidos. En efecto, la
+maniobra encajaba en la política aislacionista de T rump (el sentido del eslogan
+A merica Firste ra ese, precisamente), así como el cuestionamiento td
+e la OTAN, el acercamiento a Putin o la retirada estadounidense de Siria y
+, en general, de Oriente Medio. E
+n todo caso, como es tradición en los Estados Unidos, los objetivos en
+política exterior muchas veces trascienden a los presidentes porque obedecen
+a puros cálculos de r ealpolitik.  Los acuerdos firmados por la di-plomacia
+estadounidense y los talibanes el 29 de febrero de 2020 en Doha, Q
+atar, iban en este sentido. Estaban apoyados por Pakistán, Rusia y China y
+respaldados de forma unánime por el Consejo de Seguridad de las Na-c
+iones Unidas. Era un intento de buscar la estabilidad en el complejo país 6
+I bid., p p. 384-385.7
+«El Acuerdo de Abraham sí es el acuerdo del siglo», por Alberto Priego, en P olítica Exterior, 24 de septiembr
+e de 2020 [consultable en red].
+
+---
+
+P
+ELEAS EN CALLES VACÍAS203 de
+Asia Central tras veinte años de guerra. La esencia del acuerdo estable-cía
+que los Estados Unidos y la OTAN retirarían de Afganistán todas sus fuer
+zas de combate y a cambio, los talibanes y el gobierno afgano entabla-rían
+conversaciones para lograr alguna forma de reparto de poder. Ade-más,
+los talibanes se comprometían a que los activistas del ISIS-K (Estado I
+slámico del Gran Jorasán) no actuaran en zonas controladas por ellos. El final
+de la pesadilla tendría lugar, con una gran carga de simbolismo, el 11 de
+septiembre de 2021, fecha en la que debería concluir la retirada de las fuer
+zas occidentales.E
+n medio de esa situación incierta, cuando todavía la pandemia era u
+na realidad amenazante y las oleadas de COVID empezaban a sucederse t
+ras cierta tenue esperanza de que la pesadilla terminaría durante el ve-r
+ano —al menos en el hemisferio septentrional—, un trueno desgarró el horiz
+onte tormentoso: la segunda guerra del Alto Karabaj, que se iba a p
+rolongar entre el 27 de septiembre y el 10 de noviembre de 2020. Rápi-damente
+olvidado tras su finalización, este conflicto fue un aviso muy in-quietante
+de lo que, en efecto, iba a suceder quince meses más tarde en U
+crania. Como en 2008, también. Como en la guerra de Abjasia en 1992 y
+1993, en la cual los rusos se implicaron directamente con los separatis-tas,
+en contra de Georgia. Hay una relación de causa-efecto entre los ca-ñonaz
+os en el Cáucaso meridional y la tensión en Ucrania. De una forma u
+o t r a  s o n  g u e r r a s  e n  t o r n o  a l  m a r  N e g r o ,  c o m ú n  a  R u s i a ,  U c r a n i a  y  T
+urquía, actor de primera fila en esta historia y que a menudo es dejado de lado
+por los analistas. En Ucrania viven y prosperan muchos georgianos;  e
+l Cáucaso es el extremo meridional del proyecto I ntermarium;  e l  r í o  D
+niéper a lo largo del cual se articula la Ucrania histórica hace de este país un
+pasillo de conexión Báltico-mar Negro que incluye Estambul y el Cáu-c
+aso. Por supuesto, en los proyectos occidentales para hacer de Ucrania un hub
+e nergético que debería reunir el gas procedente de Asia Central enhubd
+irección a Europa, el control del Cáucaso es esencial, y en especial la aquiescencia
+de Azerbaiyán. Porque al otro lado de esa república, más allá del
+Caspio, está T urkmenistán, que con sus reservas de hidrocarburos po-dría
+abastecer al Viejo Continente sin pasar por T urquía. Para Europa es impor
+tante no depender de Rusia, pero tampoco de la T urquía de Erdoğan. P
+ero, sobre todo, la guerra del Alto Karabaj, en el otoño de 2020, va a tener mucha
+importancia para el destino de Ucrania por cómo se van a desarro-llar los combates.
+
+
+---
+
+204
+204U CRANIA 22L
+a nueva guerra que estalla el 27 de septiembre anuncia consecuen-cias
+para la situación en Ucrania, y a la vez es reflejo en su dinámica de la g
+uerra del Donbas de 2014. Los azeríes se han preparado a fondo para l
+a ofensiva. Sus fuerzas han sido entrenadas por los turcos y de ellos han adquirido
+los que devendrán revolucionarios drones Bayraktar TB2. A trav
+és de esos aliados se renovará la coordinación entre las unidades y se modernizarán
+las tácticas de combate, incorporándose enseñanzas obteni-das
+en la guerra de Siria —en la cual los turcos han tenido un destacado p
+rotagonismo, tomando nota de cómo combaten los rusos— pero tam-bién
+en el conflicto del Donbas, estudiado a conciencia. Así, los turcos par
+ticiparán en esa guerra, pero indirectamente, probando armas y tácti-cas, r
+eclutando a 1.500 mercenarios sirios que reforzarán las filas azeríes8 . F
+rente a ellos, los armenios van a luchar por conservar el control del e
+nclave histórico del Alto Karabaj o Nagorno-Karabaj, devenido Repúbli-c
+a de Artsaj, con una extensión de 4.400 kilómetros cuadrados, que coin-c
+ide más o menos con la de la provincia española de Pontevedra. Artsaj es un
+Estado cuasi ficticio, un Estado-base al servicio de Armenia pero tam-b
+ién de Rusia, que es el único Estado del mundo que lo ha reconocido diplo-máticamente.
+Ni siquiera Armenia lo ha hecho. Su actitud, previa al inicio de
+la guerra contrasta con la de los azeríes. El pequeño país ha pasado por u
+na reciente «revolución de color», la denominada «Revolución de T ercio-pelo
+en Armenia», en abril de 2018. No confundir con otra «revolución blanca»,
+la de T erciopelo en Checoslovaquia de 1989, atención. Ese albo-r
+oto ha llevado al poder como primer ministro al periodista Nikol Pashi-nián,
+que además encabeza al partido Contrato Civil, de tendencia liberal y
+gestualidad cívica. El nuevo hombre fuerte de Armenia quiere marcar d
+istancias con Rusia, pero a la vez es un nacionalista sin tacha y se muestra intransigente
+sobre el estatus del Alto Karabaj. El nuevo gobierno incluso ha
+efectuado una purga de responsables de seguridad e inteligencia militar considerados
+demasiado próximos a Moscú. Esa actitud populista es te-meraria,
+porque Rusia es la única potencia capaz de defender a Armenia, donde
+dispone de una base militar en Gyumri, con una brigada motoriza-da,
+una escuadrilla de helicópteros de combate y cazas MiG-29. Moscú ve tan
+mal un conflicto en esa zona que ha declarado su voluntad de no in-t
+ervenir para defender a la República de Artsaj, aunque la haya reconocido 8
+Goya (2021): pp. 2-3 y 6.
+
+---
+
+P
+ELEAS EN CALLES VACÍAS205 diplomáticamente.
+Eso es toda una luz verde para los azeríes, que además no
+temen ser sometidos a sanciones ni represalias por nadie, caso de iniciar una guerra
+9 . P
+ero, sobre todo, los armenios se han dormido en sus laureles. Habían obtenido
+una holgada victoria en la primera guerra del Alto Karabaj, entre 1
+9 8 8  y  1 9 9 4 .  L a  m o r a l  d e  c o m b a t e ,  l a  o r g a n i z a c i ó n ,  l a  c a l i d a d  d e  l o s  m
+andos, todo es favorable a  priori a los armenios, que menosprecian a l
+os azeríes como enemigos. Además, poseen las simpatías internacionales por
+su causa, que es siempre la de los armenios frente a los turcos. El re-sultado
+es que en 2020 su Ejército se ha quedado anticuado. Han compra-do
+armas, pero pocas, no siempre bien pensadas en cuanto a su utilidad p
+ráctica o francamente vetustas, como las lanzaderas antiaéreas rusas SA-8 adquiridas
+en Jordania10 .  Sencillamente, no están preparados para lo que se les viene encima.
+Los
+primeros compases de la guerra, tras el ataque azerí, que se centra en
+la microrrepública de Artsaj (170.000 habitantes, 40.000 soldados) y no
+en Armenia, parecen dar la razón a los confiados defensores. Inicial-mente
+logran parar las arremetidas del invasor infligiéndole pérdidas con-siderables.
+P
+ero al cuarto día de la guerra, los armenios se lanzan a un glorioso c
+ontraataque y es la debacle. Los drones azeríes, de origen turco e israelí, demuestran
+su versatilidad. Tienen capacidad de ataque de precisión, al-gunos
+se utilizan como kamikazes contra blancos valiosos, dirigen con e
+xactitud el tiro de la artillería. Precisamente, los azeríes, imitando a los r
+usos en el Donbas, utilizan sus piezas de largo alcance y los lanzacohetes múltiples
+para batir al enemigo en profundidad, a cuarenta e incluso a n
+oventa kilómetros del frente, sin necesidad de recurrir a aviones ni helicóp-ter
+os de ataque. Ese día, los armenios quedan hechos picadillo. Pierden 80 carr
+os de combate, decenas de piezas de artillería y equipo, una quincena de
+sistemas de defensa antiaérea. Pero sobre todo, desesperados, constatan q
+ue les resultará muy difícil maniobrar en campo abierto bajo la atenta m
+irada de los drones enemigos. En cierta manera va a ser la primera guerra que,
+casi se puede decir, ha sido ganada por estos sistemas de armas, que s
+e revelan revolucionarios. Los armenios quedan paralizados por la sorpre-9
+I bid., p . 6.10
+I bid., p . 3.
+
+---
+
+206
+206U CRANIA 22s
+a y no logran improvisar soluciones. Se puede decir que ya desde ese mo-m
+ento tienen la guerra perdida, aunque se prolongará cuarenta días más.Los
+bombardeos en profundidad, ataques y contraataques sobre cen-t
+ros urbanos —aunque se trata de localidades pequeñas, como la misma capital
+de Artsaj, Stepanakert, de 52.000 habitantes—, provocan el des-plazamiento
+de la población de la pequeña república, lo que aún complica más
+las operaciones a los armenios. Se pacta una tregua el 10 de octubre, por
+mediación rusa. Se establecen corredores humanitarios y esos cuatro días
+dan opción a ambos bandos a reorganizar sus fuerzas, pero solo los a
+zeríes la aprovechan; los armenios siguen con plomo en las alas. Los in-v
+asores toman Fizuli el 14 de octubre, ocho días más tarde controlan toda l
+a fr ontera con I rán, de donde puede llegar ayuda a los armenios, y se lanzan hacia S
+husha.Esta
+pequeña localidad, de unos 12.000 habitantes, es una clave im-por
+tante en esta guerra por su situación estratégica y por su valor simbóli-c
+o y sentimental. Está a unos quince kilómetros de Stepanakert, la capital d
+e la República de Artsaj, en pleno corazón del Alto Karabaj, y controla la r
+uta que une ese enclave con Armenia. Por otra parte, Shusha es el referen-t
+e épico e histórico de ambos bandos; es la inexpugnable ciudad fortaleza s
+ituada a unos 1.300 metros sobre el nivel del mar, que domina todo el e
+nclave del Alto Karabaj. La lucha por su control fue uno de los factores que
+desencadenaron la primera guerra del Alto Karabaj, mientras se hun-d
+ía la Unión Soviética. Los azeríes consideran que Shusha es su capital histórica
+de la región; y de hecho, en 1991, cuando los armenios capturan la
+localidad, hacen una limpieza étnica de la mayoría de su población. Estos
+hablan de legado histórico y del pogromo turco-azerí de Shusha, en 1
+920. En cualquier caso, la caída de la localidad en manos azeríes el 9 de n
+oviembre sentencia para la guerra los armenios. Concluye al día siguien-te
+con la firma de un alto el fuego por parte el presidente de Azerbaiyán, I
+lham Aliyev, el primer ministro de Armenia, Nikol Pashinián, y el presi-d
+ente de Rusia, Vladimir Putin, que es quien ha auspiciado el final de las hostilidades, pr
+esionando a Azerbaiyán.Esta
+guerra, como se afirmaba más arriba, tendrá una influencia di-r
+ecta sobre el comienzo de las hostilidades en Ucrania, en febrero de 2022. L
+os azeríes han preparado la campaña con dedicación, al detalle. Gracias a
+l dinero del negocio petrolífero, han adquirido armas modernas incluso e
+n Rusia o Chequia; pero sobre todo, de la mano de turcos e israelíes han
+
+---
+
+P
+ELEAS EN CALLES VACÍAS207 apostado
+por la utilización revolucionaria de los drones en el campo de batalla,
+hasta el punto de que se puede afirmar que esta es la primera gue-rra
+interestatal en que se recurre extensamente a la robotización. Se suman en
+la guerra del Alto Karabaj las enseñanzas adquiridas por los turcos en el u
+so de drones durante su intervención en Libia y Siria, y por los israelíes en
+su campaña contra Hezbolá en el Líbano. Son máquinas de última g
+eneración y los azeríes las emplearán extensivamente pero de forma muy especializada.
+Recurrirán a drones de reconocimiento israelíes (Héron, H
+ermes 450 y 900, Aérostar, Orbiter 3) y a drones suicidas o munición mer
+odeadora, también israelíes (Harop, SkyStriker, Orbiter 1 K). Y sobre todo,
+los drones de combate turcos Bayraktar BT2, adquiridos pocas se-manas
+antes de la guerra para ocultarlos al espionaje armenio y ruso. De h
+echo, van a llegar al extremo de intentar «dronizar» rústicos y baratos aviones
+de transporte y fumigación —los biplanos rusos Antonov An2— cargados con explosiv
+os y teledirigidos como bombas volantes11 . Estos
+apararos van a revolucionar el arte de la guerra desde un peque-ño
+rincón del Cáucaso, uno de los teatros de operaciones más antiguos del m
+undo. Los armenios no tienen donde esconderse ni saben hacerlo. No poseen
+la capacidad de camuflar térmica o electrónicamente sus fuerzas, que
+deben mantenerse enterradas y moverse con cautela para no ser detec-tadas
+por los sensores de los drones enemigos, que tampoco son capaces de d
+erribar. No disponían de drones antidrones, láseres, ni siquiera de un sistema
+para interferir las comunicaciones entre las máquinas y el enlace GPS
+12 .  De hecho, los drones son mucho menos detectables por los rada-r
+es. E n septiembr e de 2019, las r efinerías saudíes Aramco de A bqaiq y J
+urais, defendidas por sistemas antiaéreos muy sofisticados, fueron incen-diadas
+por una docena y media de drones de fabricación iraní, controlados p
+or combatientes huzíes del Yemen. El ataque, que no pudo ser preveni-d
+o por los radares saudíes, causó una conmoción en el mercado del crudo. De hecho
+los TB2 y los drones suicidas Harop, de fabricación israelí, liquida-r
+on una buena parte de los radares y sistemas de defensa antiaérea de los armenios
+(un total de 33). Para rematar, las cámaras de los drones no solo s
+on tremendamente útiles en el combate, sino también como amplifica-11
+I bid., pp. 21-22. En vez de An2 rusos podrían haberse utilizado copias chinas del mismo, los F
+eihong 98, que ya en 2018 habían sido reconvertidos en aviones no tripulados. 12
+Goya (2021): p. 22.
+
+---
+
+208
+208U CRANIA 22dor
+es de la propaganda de guerra: las redes sociales, los medios de comu-nicación,
+se llenarán de breves e impactantes grabaciones de decenas de carr
+os de combate, vehículos de todo tipo o grupos de soldados armenios eliminados
+con letal precisión por los robots aéreos. Eso se volverá a ver en U
+crania un par de años más tarde.E
+n la guerra del Alto Karabaj, los drones dejarán en las bases a los v
+aliosos aviones de combate e incluso a los helicópteros, mucho más caros que
+los pequeños robots aéreos y más fáciles de derribar con los MANPAD —misiles
+antiaéreos portátiles— y otros sistemas. Los aviones de combate han
+dejado de ser los reyes del cielo. También quedará cuestionada la uti-lidad
+de los carros de combate, cazados como chinches. Pero este conflicto no
+solo llamará la atención en todo el mundo por la utilización extensiva d
+e robots aéreos. La ofensiva ha estado planificada con todo detalle por los a
+zeríes, desde el comienzo hasta el final. La toma de Shusha coincide con l
+a Fiesta de la Bandera en Azerbaiyán, por ejemplo. Y no es que haya sido un
+conflicto espectáculo: las bajas están niveladas en ambos bandos: 2.178 hombr
+es por parte armenia frente a 2.783 soldados azeríes. Según el ana-l
+ista Michel Goya, coronel del Ejército francés, «es el mismo orden de magnitud
+(en pérdidas) en 44 días que los combates en el Donbas duran-te
+un año, desde abril de 2014 hasta abril de 2015»13 .  Es también una guerra
+en que las bajas son, ante todo, militares. Solo se computan unos 170
+civiles muertos en un conflicto de alta intensidad de 44 días14 ;  los 78 jornadas
+de la campaña de bombardeos de la OTAN sobre Yugoslavia, en 1999,
+dejaron 500 civiles muertos según Human Rights Watch, y 1.500 según la O
+TAN15 . La
+guerra del Alto Karabaj tuvo lugar en plena pandemia del CO-V
+ID-19. No quedó claro cuántos soldados y civiles de ambos bandos se vier
+on afectados por la enfermedad, que se transmitió con virulencia por las
+trincheras y entre los refugiados. Hubo muertes debido a ello, y como señaló
+## acertadamente el experto en conflictos eurasiáticos Kevork Oska-nian
+13
+Goya (2021): p. 17.14
+«The Nagorno-Karabah Conflict: A Visual Explainer», International Crisis Group, data last updated on 17.05.2022 [consultable en r
+ed].15
+«Civilian Deaths as a Result of Attacks», en «The Crisis in Kosovo», Human Rights Watch / R
+eports. Consultable en https://www .hrw.org/legacy/reports/2000/nato/Natbm200-01.htm.
+
+---
+
+P
+ELEAS EN CALLES VACÍAS209 N
+agorno-Karabaj puede ser una señal de lo que viene: un mundo más caó-tico,
+peligroso e impredecible [...] La pandemia proporciona un telón de fondo
+que permite a las principales potencias estar distraídas [...] Hace unos años,
+la participación de T urquía en la guerra actual hubiera sido impensa-b
+le, pero en la redefinición de las reglas del orden mundial que estamos p
+r e s e n c i a n d o  a h o r a ,  e s  c a p a z  d e  i m p o n e r  s u  i n f l u e n c i a  d e  f o r m a s  n u n c a  antes vistas
+16 . E
+sta observación era muy acertada, por cuanto muchos países tomaron nota
+de ello, y sobre todo Rusia. El conflicto había sido muy alarmante p
+ara Moscú. Indicaba bien a las claras una decidida capacidad ofensiva del mundo
+pantúrquico encabezado por una T urquía que llevaba varios años a
+ctuando según su propio juego, con sus propias reglas, y ahora mostraba unas
+garras más largas de las que cabría pensar. Aliada, además, con Israel, q
+ue intervenía en el conflicto por sus propias conveniencias energéticas, para
+asegurarse los hidrocarburos procedentes de Azerbaiyán, básicos para su
+economía y seguridad militar. Pero sobre todo, esos actores le habían infligido
+una derrota militar sin paliativos a uno de los aliados de Moscú que
+utilizaba al completo armamento, equipo y entrenamiento rusos. Los agr
+esores habían estudiado las estrategias y tácticas rusas, en Siria y el D
+## onbas, y les habían dado la vuelta como a un guante, desplumando a los armenios
+unos enemigos de lo más respetable, con una épica de raíz his-tórica
+que parecía haberlos convertido en intocables. Y ahora, en un mes y
+medio de guerra, todo se lo había llevado el viento por el desagüe histó-rico que era la pandemia, que par
+ecía no dejar nada en su sitio.La
+guerra del Alto Karabaj contribuyó de forma importante a tensar la
+cuerda que iba a romperse en febrero de 2022. Cundió la alarma en el K
+remlin. El conflicto en el Cáucaso hizo visible el acercamiento de T ur-q
+uía a Ucrania, que no tardó en adquirir los milagrosos drones Bayraktar B
+T2 y los utilizó enseguida en el Donbas, meses antes de que estallara la contienda.
+A finales de octubre de 2021, el Ejército ucraniano bombardeó con
+ellos objetivos de los insurgentes. Lo comunicó el mismo Ministerio d
+e Defensa en su cuenta de T witter (@DefenceU) el 26 de octubre de 2021 a
+las 8:56 p.m. El mensaje incluía una grabación de cómo se bombardeaba 16
+## «Armenia y Azerbaiyán, una guerra en plena pandemia: “Nagorno-Karabaj puede ser una señal
+un mundo cada vez más caótico e impredecible”», por Noemí López T rujillo, en N ewtral,19 de octubr
+e de 2020 [consultable en red].
+
+---
+
+210
+210U CRANIA 22con
+un misil de medio alcance una posición ocupada por equipo de arti-llería
+ligera de los rebeldes prorrusos. Inmediatamente, el portavoz del K
+## remlin, Smitry Peskov, dio unas declaraciones a la agencia Reuters en las que señalaba
+T
+enemos muy buenos lazos con T urquía, pero en esta situación nuestros te-mor
+es se están haciendo realidad, desgraciadamente, porque las entregas de este
+tipo de armas a los militares ucranianos pueden desestabilizar potencial-mente la situación en la línea de contacto
+17 . Y
+no solo eso. Corrían rumores de que la industria militar turca y la ucra-niana
+podrían llegar a asociarse para dominar el mercado de la guerra aé-r
+ea robotizada, combinando la experiencia en drones de ataque turcos con l
+as capacidades antidrón que desarrollaba la investigación hi gh tecu cra-cn
+iana.M
+ientras tanto, el país pasaba por su propia travesía del desierto bajo la
+pandemia. Allí solo se había vacunado al 36% de la población, muy p
+or debajo del 75% de la UE, el 71% de Norteamérica, el 54% de Rusia o
+el 82% de Latinoamérica (cifras a 5 de marzo de 2022)18 .  Ucrania era u
+no de los países europeos con mayor tasa de rechazo vacunal, y al res-p
+ecto, las autoridades del país explicaron que ello se debía a campañas de d
+esinformación promovidas por Rusia para desestabilizar el país. Pero no e
+ra sino un bulo en sí mismo. En realidad, la reticencia vacunal no era n
+ada nuevo en Ucrania —como mínimo se ha venido rastreando desde h
+ace quince años—, y en parte se debía a la desconfianza de la ciudada-ní
+a hacia las autoridades. No podía deberse a ninguna campaña de in-t
+oxicación rusa que solo el 53% de los ucranianos estuvieran vacunados cont
+ra la polio. Algunos incidentes concretos abonaban estas reticencias. P
+or ejemplo, en 2012-2013, la prensa dio cuenta de toda una serie de r
+eacciones adversas e incidentes sanitarios debidos a la mala administra-ci
+ón de vacunas a población infantil, sin atender a los protocolos y códi-g
+os de buenas prácticas, sin que las autoridades sanitarias ucranianas hu-b
+ieran informado al respecto. Como resultado, en noviembre de 2021 las a
+utoridades ucranianas tuvieron que destruir medio millón de dosis de 17
+«La sombra de T urquía en Ucrania preocupa a Rusia y Francia», por Juan Peña, en A talayar,29 de octubr
+e de 2021 [consultable en red].18
+AEP/CAV (2022), «Las vacunas en Ucrania», 7 de marzo de 2022 [consultable en red].
+
+---
+
+P
+ELEAS EN CALLES VACÍAS211 A
+straZeneca caducadas por el rechazo del 43% la población a vacunar-s
+e contra el COVID, dentro del 56% que no estaban dispuestos a hacerlo cont
+ra ninguna enfermedad19 . E
+n el otoño de 2021, el mismo presidente Zelenski se implicó en la c
+ampaña para la vacunación masiva, insistiendo en que los ucranianos debían
+«cambiar el chip» en esta cuestión. La respuesta fue un auge de los falsos
+certificados de vacunación COVID. De hecho, se sospechaba que la desconfianza
+de la mitad de la ciudadanía ucraniana —de nuevo el país par
+tido por la mitad— hacia la campaña de prevención del virus no era sino
+una crítica más al nuevo régimen. Por entonces, de acuerdo con una encuesta,
+el 65% de los ucranianos no estaba de acuerdo con el trabajo del p
+residente Zelenski; el 72% no estaba satisfecho con la oficina presiden-cial;
+el 80% pensaba lo mismo del gobierno en su conjunto, y el 83%, con la
+Rada20 .  Así que, de una forma muy precisa, se puede afirmar que en n
+oviembre de 2021, a tres meses escasos del comienzo de la guerra contra R
+usia, la gran mayoría de los ucranianos no estaba para nada satisfecho con el r
+égimen de Zelenski. Esa
+era la situación cuando, por fin, parecía que se estaba viviendo el final
+de la pandemia, arrancando su sexta oleada. Y ahora juntemos las pie
+zas para componer el relato del c rescendo trágico que llev ó a la guerra.D
+entro del contexto malsano en torno al cual todavía gravitaba el mun-d
+o a comienzos del año 2021, se produjo un hecho traumático y funda-m
+ental que empujó con fuerza una cadena de efectos fatales. El 20 de enero, D
+onald T rump abandonó la Casa Blanca, dejando tras de sí momentos de descontr
+olada tensión que Bob Woordward y Robert Costa recogieron en su
+libro Pe ligro (2021). El asalto al Capitolio, el 6 de enero, protagonizado por
+aquellas milicias violentas y burlonas, ultranacionalistas, que desfila-ban
+con fusiles de asalto: las territoriales en los estados, los Oath Keepers, l
+os Three Percenters, los Posse Comitatus o los Boogaloo Boys, con sus cami-sas
+hawaianas, armados hasta los dientes y buscando una nueva guerra civil
+en los Estados Unidos. Grupos que pasaron el 2020 protestando, s
+iempre armados, contra los confinamientos. Los Vigilantes de Wolverine, escépticos
+ante el coronavirus, que en octubre fueron detenidos acusados 19
+«Vaccine Hesitancy in Ukraine: The Sign of a Crisis in Governance?», por Kateryna Odar-chenko,
+F ocus Ukraine. A blog of the Kennan Institute, 30 de no viembre de 2021.20
+Ib id. dd
+
+---
+
+212
+212U CRANIA 22d
+e intentar el secuestro de la gobernadora demócrata de Michigan, Gret-c
+hen Whitmer, preludio de acciones a mayor escala destinadas a forzar u
+n levantamiento civil. Las frenéticas llamadas del general Mark Milley, p
+residente del Estado Mayor Conjunto a su homónimo chino, el gene-r
+al Li Zuocheng, intentando aplacar la ansiedad de Pekín y evitar la p
+osibilidad de que T rump desencadenara una guerra para continuar en l
+a Casa Blanca.«
+T enemos mucho que hacer en este invierno de peligro», proclamó el n
+uevo presidente. Y esa frase era como la premonición de una nueva era de
+desequilibrio y violencia. Joe Biden llegó a la Casa Blanca marcado por el
+estado de alerta constante, ansioso por desmontar la obra de T rump y detener
+el aislacionismo que propugnaba el A merica First! E n Moscú, Vla-d
+imir Putin formaba parte de ese cortejo de espectros. Adam Smith, el p
+residente de la Comisión de Servicios Armados de la Cámara de Repre-sentantes,
+explicó que un miembro del Congreso estaba preocupado ante la
+posibilidad, creía él, de que T rump robara el Air Force One en sus últi-mos
+días de mandato, volara con él a Moscú y le vendiera los secretos es-tadounidenses
+a Putin21 .  El presidente ruso era el Mal, tanto como T rump. E
+n abril, le pidió explicaciones al estadounidense. Le había llamado «ase-sino»
+durante una entrevista televisiva. Fue una interpelación provocativa, un
+tanto sin ton ni son. Le preguntaron si creía que Putin era un asesino y
+Biden dijo que «sí». La justificación que le ofreció a Putin, en conversa-ción
+telefónica, fue bastante banal, teniendo en cuenta que el incidente había
+sido serio, hasta el punto de que el Kremlin había llamado a consul-t
+as a su embajador en Washington. «Me hicieron una pregunta. Y di una r
+espuesta. Era una entrevista sobre un tema completamente diferente. Y no
+fue algo premeditado», se intentó justificar Biden sin mucha soltura diplomática
+22 . T
+al estado de cosas y de ánimo no era el mejor para limar asperezas s
+obre el conflicto ucraniano. Biden era consciente de que los demócratas todavía
+no habían aportado a su presidente providencial. El republicano Lincoln
+había abolido la esclavitud y ganado la guerra civil. El demócrata R
+oosevelt había conjurado la Gran Depresión con su New Deal. Los repu-blicanos
+George Bush padre y Ronald Reagan habían puesto fin a la Gue-21
+Woodward y Costa (2021): p. 330.22
+I bid., p . 488.
+
+---
+
+P
+ELEAS EN CALLES VACÍAS213 r
+ra Fría. ¿Qué habían hecho los demócratas que estuviese a esa altura? B
+arack Obama primer presidente de color en la Casa Blanca, no había e
+stado a la altura, a pesar de su voluntad de solucionar el espinoso proble-ma
+de las relaciones entre Estados Unidos y el mundo musulmán o liqui-dar
+el terrorismo islámico. La muerte de Bin Laden no fue suficiente; después
+llegó el ISIS; la Primavera Árabe no cambió mucho las cosas en MENA.
+La asignatura pendiente seguía sin ser aprobada. Es más, Putin se había
+colado por Siria saliendo del bloqueo tendido por las potencias oc-cidentales tras la guerra del D
+onbas. D
+e hecho, a raíz de la supuesta injerencia de los rusos en las elecciones estadounidenses
+que habían llevado a T rump al poder en 2016, ¿no pare-cía
+como si los republicanos se hubieran acercado demasiado a los rusos, ya
+desde 1989? ¿Quizá por eso se había cerrado el final de la Guerra Fría e
+n falso? Biden se creía llamado a solucionar eso, a liquidar el poder ram-p
+ante de Putin, y conocía bien el ring en el que se llevaría a cabo la pelea: U
+crania.E
+n Kiev, el deslucido presidente Zelenski había perdido la pátina ca-r
+ismática de joven promesa y esperanza para Ucrania. No había sabido defender
+bien al país contra el COVID. Pero sí lo haría contra los rusos, poniéndose
+en manos de los americanos. Al fin y al cabo, había vuelto B
+iden, el antiguo vicepresidente de Obama, consejero y protector de Ucra-n
+ia, ahora reconvertido él mismo en presidente de los Estados Unidos. Para Z
+elenski —como anteriormente para Poroshenko— su p residente era Bidenuy
+no T rump, en modo alguno. En junio de 2017, el Parlamento ucraniano adoptó
+una legislación que restablecía la membresía en la OTAN como un o
+bjetivo estratégico de política exterior y de seguridad. No se había hecho nada
+por cambiar la Constitución ucraniana a fin de negociar un nuevo estatus
+federal o autonómico para el Donbas, tal como se había acordado e
+n Minsk, pero en 2019 sí entró en vigor una enmienda constitucional para
+dar cabida al acercamiento de la OTAN a Ucrania. Y en septiembre del
+año siguiente, Zelenski aprobó la nueva Estrategia de Seguridad Na-c
+ional de Ucrania, que preveía el desarrollo de una asociación específica y distintiv
+a con la OTAN, con el objetivo de ser miembro de pleno derecho de la Alianza A
+tlántica.S
+obre esos acuerdos, que incorporaban todas las promesas y pactos formulados
+ya desde 1994, uno por uno, se erigió todo el esfuerzo, bási-camente
+estadunidense, para modernizar y entrenar a las fuerzas armadas
+
+---
+
+214
+214U CRANIA 22ucranianas,
+específicamente en vistas a un posible y cada vez más probable enfr
+entamiento con Rusia. Ya se empezó en 2015, a poco de finalizar la f
+ase aguda de la guerra del Donbas. En julio de 2016 se acordaron en l
+a cumbre de la OTAN, en Varsovia, los denominados Comprehensive A
+ssistance Packages para Ucrania. Y a partir de ahí, como se vio, se inyec-t
+aron dólares y esfuerzos, año tras año, en el sistema de defensa y seguri-dad
+ucraniano. Se reorganizó el mando, se cribó a la oficialidad más pro-c
+live a Rusia, por haber sido formada allí durante el periodo de la Unión S
+oviética o por tener relaciones familiares o cercanas de algún tipo. Lo mismo
+se hizo con el SBU, el servicio de inteligencia y seguridad ucrania-n
+o. Se empezó a trabajar en habilitar determinadas instalaciones militares ucranianas
+(Ochákiv, en la desembocadura del Dniéper; Yavoriv, cerca de l
+a frontera polaca) como futuras bases de apoyo para la OTAN, llegado el c
+aso. Y, sobre todo, se desarrollaron ejercicios militares y maniobras con-juntas en territorio ucraniano
+. E
+n febrero de 2021, Zelenski continuó quemando etapas y aprobó un plan
+para admitir tropas extranjeras a fin y efecto de organizar maniobras militar
+es conjuntas. Y ese mismo año tuvieron lugar los ejercicios ucranio-americanos
+R apid Trident 2021 y S ea Breeze 2021; los británico-ucrania-nos
+R apid Trident 2021 y  S ea Breeze 2021; los rumano-ucranianos Riv eri-ne
+2021, y los polaco-ucranios Thr ee Swords 2021 y S ilver Sabre 202123 . N
+ada de esto fue secreto, ni tan siquiera discreto. Se anunció a bombo y platillo,
+oficialmente, por los estadounidenses y con antelación. Así, por ejemplo, para 2022 estaban pr
+evistos los ejercicios24 : J
+oint Efforts 2022—  Febrero-diciembre de 2022; participación de 12.500 2tr
+opas. R
+apid Trident 2022—  Marzo-diciembre de 2022; participación de 8.500 2tr
+opas.Cossack
+Mace 2022—  Marzo-diciembre de 2022, participación de 5.500 2tr
+opas.L
+ight Avalanche 2022 — Febrero-diciembre, hasta 1.300 tropas.2S
+ilver Saber 2022—  En tres etapas, hasta un total de 5.500 participantes.223
+«Military from five NATO states to take part in Ukrainian-British drills», por Olena Kotova, U
+nian, 3 de abril de 2021 [consultable en r ed].24
+«Nine multinational military exercises will take place in Ukraine this year», en U krinform,3
+de enero de 2022 [consultable en red].
+
+---
+
+P
+ELEAS EN CALLES VACÍAS215 S
+ea Breeze 2022 — Marzo-diciembre de 2022, hastra 7.500 tropas.2Riv
+erine 2022—  Ejercicios rumano-ucranianos — Marzo-diciembre, hasta 2022400 tr
+opas.M
+aple Arch 2022—  Marzo-diciembre de 2022, hasta 3.700 participantes.2V
+iking 2022 — Febrero-diciembre, hasta un total de 200 tropas.2E
+n cuanto a suministro de material militar moderno, para cuando comen-z
+ó la guerra, las tropas ucranianas ya disponían de cierta cantidad de ar-m
+as de procedencia estadounidense, como, por ejemplo, misiles antiaé-r
+eos portátiles Stinger o contracarro Javelin —T rump se jactaría de que e
+llo fue por iniciativa suya— obtenidos gracias a la colaboración de los P
+aíses Bálticos25 . ¿Esto
+supone que Biden atizó el camino hacia la guerra en Ucrania? Si y
+no; o ni más ni menos q ue Putin, desde luego. Ambos sabían que se había
+terminado el tiempo para una salida pacífica en Ucrania. Por eso, la guerra
+que estalló allí en febrero de 2022 fue la guerra de Putin, desde luego;
+pero también la guerra de Biden. Washington sabe que no puede a
+tajar a Putin, que se ha escurrido por aquí y por allá tras intentar pararle los
+pies con las sanciones acordadas en 2014 y 2015 a raíz de la guerra del D
+onbas. El problema sobrepasa el marco ucraniano, de hecho. Si no se aplica
+la doctrina aislacionista de T rump, pactando una cierta división del m
+undo o concentrándose en pararle los pies a China, los rusos pueden h
+ostigar y hostigar las bases del poderío americano, cada vez más amena-z
+ado. En Oriente Medio, en África, incluso en América Latina. Pero, muy en
+especial, en Europa, cliente privilegiada de la energía rusa, escéptica c
+on la OTAN —sobre todo después de la actitud de T rump hacia la mera existencia
+de la Alianza Atlántica— y cuyas pujantes derechas y ultradere-chas
+parecen coquetear con las ideas de unión eurasianista propugnadas por
+el teórico belga Jean Thiriart ya en los años ochenta, lo que en su día se
+llegó a denominar el proyecto N ueva Eurosiberia, una idea muy román-tica
+de federación entre el continente europeo y el mayor estado del mun-d
+o, la Unión Soviética. En 1984 llegó a escribir: «Si Moscú quiere hacer u
+na Europa europea, por mi parte predico una total colaboración con la e
+mpresa soviética. Seré el primero en colocarme una estrella roja en mi 25
+«U.S. Military Assistance to Ukraine», por Elias Yusif, St imson, 26 de enero de 2022 [consu-t
+able en red]. Véase, asimismo: «U.S. approves allied weapons shipments to Ukraine as worries mount», por P
+aul McCleary y Betsy Woodruff Swan, en Po lítico, 19 de ener o de 2022.
+
+---
+
+216
+216U CRANIA 22g
+orro. Europa soviética, sí, sin reservas»26 .  Una enorme entidad que abar-caría
+desde Reikiavik hasta Vladivostok. En ese proyecto, Siberia posee-r
+ía un papel relevante, como la gran reserva estratégica y energética. Y el c
+onjunto, la nueva Eurosiberia, que reuniría a 800 millones de ciudada-n
+os, se conformaría como «un hiperestado-nación bajo un hipercomu-n
+ismo desmarxistizado»27 .  Esas propuestas pasaron, posteriormente, a ser manejadas
+por Aleksandr Dugin, el analista, estratega geopolítico y padre del
+actual neofascismo ruso que llegó a tener un ascendiente notable entre el nuev
+o ultranacionalismo europeo en los años que nos ocupan.J
+unto con las presiones directas que se ejercían Rusia y los Estados U
+nidos entre sí por aquellos días, se detectaban jugadas de segunda línea y
+escenarios colaterales en todo el «ámbito 3SI» (en este caso, Países Bálti-c
+os, Polonia, Bielorrusia, Ucrania, Chequia, Eslovaquia, Hungría, Ruma-n
+ía, Moldavia y Bulgaria). Desde luego, algo se movía, se volvía a mencio-n
+ar el proyecto 3SI aquí y allá, se especificaba su financiación (600 mil millones
+de euros, nada menos)28 ,  se enfocaba desde una óptica ucrania-na
+29  o  se hacía en parte realidad a partir de la recuperación de la unidad histórico
+polaco-lituana que incorporaba a Ucrania para garantizar sus f
+ronteras (20 de diciembre de 2021); o para apoyar su integración en Eu-r
+opa (23 de febrero de 2022). A eso se le llamará el T riángulo de Lublin (28
+de julio de 2020) para la lucha contra la agresión rusa y la ampliación d
+e la Unión Europea. Se alude a Lublin porque fue la ciudad donde se llev
+ó a cabo la unión medieval de la República de las Dos Naciones.E
+stos movimientos también estuvieron presentes en las presiones oc-cidentales
+para deponer al dictador bielorruso Alexsandr Lukashenko me-diante
+enormes manifestaciones cívicas en plena pandemia, entre mayo de 2
+020 y marzo de 2021. A lo cual este responderá generando una crisis migratoria
+en la frontera entre Bielorrusia y Polonia, por supuesto con el r
+espaldo de Putin. Contra el nuevo intento de organizar una «revolución de
+color» en una república exsoviética, la aglomeración de miles de inmi-26
+Cit. en Edouard Rix (2011) «Jean Thiriart, el Maquiavelo de la nación europea», en E lemen-tos
+de Metapolítica para una Civilización Europea, n.º 12, monográfico dedicado a «Jean Thiriart y
+el nacional-comunitarismo europeo» (sin fecha), pp. 15-18 [consultable en h ttps://es.calameo.com/r
+ead/000127172d6d70ee38888]. Véase p. 18 en concreto.27
+Ib id.28
+Necșu/uni021Bu (2021). Reportaje actualizado a fecha 20 de junio de 2022.29
+/uni041C/uni0406/uni0416/uni041C/uni041E/uni0420’/uni042F. /uni0423/uni043A/uni0440/uni0430/uni0457/uni043D/uni0441/uni044C/uni043A/uni0438/uni0439 /uni043F/uni043E/uni0433/uni043B/uni044F/uni0434 | INTERMARIUM. Ukrainian view, in YouT ube, Ca-nal P
+ivdeń Artbook, 14 de septiembre de 2020.
+
+---
+
+P
+ELEAS EN CALLES VACÍAS217 g
+rantes y refugiados iraquíes y sirios en la frontera polaca buscaba generar un
+auge de los sentimientos ultranacionalistas en ese país, tensionando más
+el pleito que los regímenes iliberales de Polonia y Hungría mantienen c
+on Bruselas y Berlín, en el corazón de la Unión Europea.S
+on movilizaciones de sinergias y golpes bajos que no siempre se en-tienden
+desde el Occidente europeo, porque son fruto de estrategias his-tóricas
+pergeñadas en los países del Este y que solo ocasionalmente saltan a
+conocimiento del gran público a través de actores internacionalmen-t
+e muy reconocidos, como Zbigniew Brzezinski, el cual en su G ran table-ro
+mundialp roponía un eje Francia-Alemania-Polonia-Ucrania como nú-lcleo
+fundamental de la seguridad europea para más allá del 201030 .  Y entonces,
+el 17 de febrero de 2022, una semana antes del comienzo de la guerra,
+se firma un Pacto trilateral británico-polaco-ucraniano para el mu-t
+uo apoyo en materia de ciberseguridad, seguridad energética y lucha con-tra la desinformación
+31 . Al
+considerar que T rump es un caballo de T roya de Putin pero con un gran
+tirón popular en los Estados Unidos, y que la gran potencia está po-líticamente
+divida en dos, puede entenderse mejor la energía desesperaba d
+e Biden desde su llegada a la Casa Blanca tan solo un año antes de que estalle la guerra en U
+crania.P
+utin está también muy presionado, pero actúa y piensa de una mane-r
+a diferente a la de Biden. Está preocupado por el significado de esa segun-da
+hot warq ue ha sido la guerra del Alto Karabaj hace dos años (la prime-warr
+a, recordemos, fue la de Georgia en 2008) y también por los disturbios p
+or el precio del combustible en Kazajistán que estallaron con gran viru-lencia
+el 2 de enero de 2022 y que llevaron a la intervención de las fuerzas d
+el OTSC —la Organización del T ratado de Seguridad Colectiva, la O
+TAN del espacio exsoviético— para restablecer el orden y asegurar un r
+elevo pacífico del poder. Pero en realidad, Putin juega a la ofensiva, mien-t
+ras que el presidente americano está a la defensiva. Y sobre todo, el ruso t
+iene mucha y muy buena información sobre sus adversarios. Es un e
+xoficial de la inteligencia soviética, muy vocacional, que sabe perfectamen-te
+dónde debe buscar la información que necesita. Conoce los fantasmas 30
+Brzezinski (1998): p. 74, mapa 3.3.31
+«Ukraine,U K, Poland announce security pact amid heightened tensions», por Sebastian S
+prenger, en D efenseNews, 17 de febr ero de 2022 [consultable en red].
+
+---
+
+218
+218U CRANIA 22d
+e Biden: él mismo se los ha  provocado, con ayuda de T rump. Es un pre-sidente
+anciano, al que le queda muy poco para llegar a ser octogenario, lo cual
+le deja un escaso margen de maniobra, contra el tiempo y contra sí m
+ismo. Por si fuera poco, en agosto de 2021, los Estados Unidos protago-n
+izaron una retirada caótica de Afganistán que afectó seriamente a la su-perpotencia,
+con escenas del abandono de Kabul que algunos analistas comparar
+on con las de la salida de Saigón en 1975, con helicópteros de e
+vacuación aterrizando en la terraza de la Embajada estadounidense32 . B
+iden no pudo empezar su mandato con peor pie.P
+or otra parte, Moscú lleva muchos años haciendo negocios con Euro-p
+a, tiene a la vista toda la información que necesita sobre el estado real de la e
+conomía del Viejo Continente y el alcance de las sanciones que se puede p
+ermitir o el daño que pueden hacer las que imponga Rusia. También cuen-t
+a con la colaboración callada de muchos estadistas y políticos europeos que n
+o necesariamente comulgan con los objetivos estadounidenses.P
+ero, sobre todo, Putin cree que ha llegado el momento de enfrentar a
+las potencias occidentales con sus propias contradicciones. Eso va a su-ceder
+tarde o temprano: Brzezisnki dejó muy claras, ya en 1997, cuáles deberían
+ser las prioridades de Estados Unidos como gran potencia unila-t
+eral, y Biden parece seguir creyendo todavía en ese anticuado plantea-m
+iento. A tenor de la información que posee Putin, parece que ha llegado el
+momento de atacar primero y seguir marcando las reglas. Eso sí: deberá jugar
+con astucia, ocultando siempre sus cartas y dejando que los occiden-tales
+enseñen las suyas. Cartas que en realidad no tienen, por lo que debe-rán jugar de far
+ol.32
+«Las estampas paralelas del abandono de Kabul y Saigón que Biden se negaba a admitir», por Carmen R
+engel, en H uffington Post, 16 de agosto de 2021 [consultable en r ed].
+
+---
+
+C
+APÍTULO 12#
+HOTWAR 22P
+RIMERA FASE DE LA GUERRA DE UCRANIA, F
+EBRERO-MARZO DE 2022N
+o hay más que ver a los intelectuales críticos prodigán-dose
+en explicaciones, deshaciéndose en justificaciones, per
+diéndose en matizaciones técnicas (la guerra, poco a poco,
+se está convirtiendo en un manierismo tecnológico) o
+## en la deontología de una guerra pura, electr ónica, sin chapuzas
+quienes hablan son unos estetas que van apla-zando
+el vencimiento hasta lo interminable y la decisión hasta lo indecible.
+J
+ean Baudrillard, L a guerra del Golfon
+o ha tenido lugar, 1991 E
+n la madrugada del 24 de febrero de 2022 comenzó la invasión rusa de U
+crania en un amplio frente que iba desde las inmediaciones de la central nuclear
+de Chernóbil y norte de Kiev hasta el istmo de Perekov que unía C
+rimea con la masa continental, pasando por el Donbas, las inmediacio-nes de J
+árkov y Sumy y la frontera nororiental.Estalló
+así una doble guerra: la que realmente aconteció y la que unos y otr
+os nos quisieron relatar.La
+que se quiso contar en Occidente se basaba en un patrón resucita-d
+o de la Guerra Fría, sin muchas sofisticaciones añadidas. Ya en las prime-ras
+horas, el presidente Biden afirmó, lapidariamente, que «Putin tiene ambiciones
+mucho mayores que Ucrania. Quiere restablecer la antigua U
+nión Soviética»1 .  Y a continuación, el relato empezó a reproducir au-tomáticamente
+las pautas narrativas expuestas por sir John Hackett, en 1
+«Así ha sido el primer día de ofensiva rusa en Ucrania», E l País, 24 de febrero de 2022 [con-sultable en r
+ed].
+
+---
+
+220
+220U CRANIA 22a
+quel su libro sobre una hipotética T ercera Guerra Mundial, publicado más de tr
+einta años atrás. La
+razón del ataque masivo y brutal de los rusos, como el de los sovié-t
+icos del libro de Hackett, apenas se explicaba o consideraba. Era un asal-to
+que el enemigo venía preparando de antiguo y cuyo objetivo era invadir e
+invadir e invadir, asaltar Occidente en oleadas imparables. Durante los primer
+os días de la guerra de Ucrania se especuló mucho con la posibili-dad
+de que el frenesí de Putin no se detuviera en la invasión del país agre-dido,
+sino que fuera más allá y se extendiera por Europa del Este. Los P
+aíses Bálticos parecían casi un objetivo ineludible, máxime si, como afir-m
+aba Biden, se trataba de reconstruir la extinta Unión Soviética, la peor de
+las pesadillas americanas desde que la verbalizara Dick Cheney, ya en 1
+991. Polonia también parecía una víctima de la supuesta estrategia rusa, e
+n especial a la luz de los análisis historicistas apresurados que sacaban a la l
+uz el proverbial enfrentamiento ruso-polaco. Conforme pasaban los días, y
+por la fuerza de la realidad del avance invasor, fueron desapareciendo las a
+lusiones a esa hipótesis, que, por supuesto, habría llevado a la T ercera G
+uerra Mundial. Con todo, en mayo, volvió a resurgir en los noticiarios la
+posibilidad de que Rusia atacara Moldavia, otra antigua república ex-so
+viética. Como movimiento estratégico en el marco real de la guerra de U
+crania no poseía mucha lógica, pero sí que reactivaba el fantasma casi mitológico de la embestida r
+usa contra Europa.O
+tro de los capítulos argumentales característicos del imaginario narra-t
+ivo sobre lo que debería ser un ataque soviético era el ineludible agota-miento
+de la ofensiva, víctima de su propia incapacidad; el final milagroso de
+La guerra de los mundos, de H. G. Wells, que retomaba Hackett en su r
+elato ficticio sobre la T ercera Guerra Mundial. Este enfoque perduró de f
+orma intensa en la prensa y redes sociales occidentales hasta el mes de abril, c
+uando comenzó la segunda fase de la contienda. Es cierto que la propagan-da
+de guerra occidental recurrió a la buena formación y la capacidad de r
+esistencia del nuevo Ejército ucraniano, formado en los años anteriores por
+instructores angloamericanos, y a las nuevas armas que manejaban, d
+esde los misiles anticarro Javelin hasta los «milagrosos» drones turcos B
+ayraktar TB2 que se habían estrenado en la guerra del Alto Karabaj y ta
+n buenos resultados habían dado contra los medios armenios. De he-ch
+o, se popularizó la efigie de una Virgen María que portaba uno de esos m
+isiles y que fue bautizada como «Santa Javelina» y la pegadiza canción
+
+---
+
+#
+HOTWAR 22221 «
+Bayraktar», compuesta por el soldado ucraniano Taras Borovok, que ob-tuv
+o un gran éxito desde YouT ube2 . E
+n la canción se ridiculizaba la invasión rusa, en consonancia con las i
+mágenes de vehículos destruidos por el dron turco, pero también por lo q
+ue se presentaba como una desastrosa ofensiva que se extinguía en su pr
+opia ineficacia. Y ciertamente abundaron y hasta sobreabundaron las fotografías
+de carros de combate y material militar ruso aparentemente abandonado y posteriormente capturado
+. Algunas
+de esas fotografías correspondían a un mismo vehículo; e i
+ncluso a material militar ucraniano mostrado como falsa captura, puesto que
+—y esto aportaba un sesgo muy paradójico a la batalla por la propa-g
+anda de guerra en este conflicto— ese material militar era muchas veces el mismo,
+dado que ucranianos y rusos utilizaban idénticos o muy similares modelos
+de tanques o vehículos blindados. Y eso era así hasta el punto de que
+cuando, desde la OTAN, se empezó a enviar armamento pesado a los ucranianos,
+se puso énfasis en suministrar material de socios de la Alianza que
+habían pertenecido al Pacto de Varsovia y conservaban arsenales de o
+rigen soviético. De esa forma, las tripulaciones y servidores ucranianos no
+tenían que emplear tiempo en adiestrarse en el empleo de equipo occi-dental.
+Ese armamento pesado no solo era el que había integrado las uni-dades
+del Ejército Rojo en la extinta Unión Soviética. Es que incluso había sido
+diseñado por ingenieros ucranianos o fabricado y montado en facto-rías
+de la RSS de Ucrania, que, como ya se ha explicado, había sido la gran fábrica
+de armas de la Unión Soviética. Por ejemplo, la Oficina de Diseño d
+e Maquinarias de Morózov en Járkov (JMDB) fue la responsable del di-seño
+de carro de combate soviético T-64, un diseño muy avanzado por su época
+del que derivó el actual T-80, en servicio en las fuerzas armadas ru-s
+as y ucranianas; y el T-84, una versión autóctona ucraniana. Otro ejemplo q
+ue se hizo célebre fue el del crucero lanzamisiles Mo skvá, buque insignia d
+e la Flota del Mar Negro rusa, hundido frente a las costas ucranianas el 14 de abril, que había sido botado en 1976 en los astiller
+os de Mykolaiv.E
+n definitiva, en las redes sociales menudeaban fotos y más fotos de v
+ehículos destruidos o atascados y abandonados en el barro ucraniano, material
+anticuado o en mal estado de mantenimiento, o supuestos fallos críticos
+en la logística, especialmente en el repostaje de combustible, ade-2
+«Bayraktar» – Oficial song (English). YouT ube, 2 de marzo de 2022.
+
+---
+
+222
+222U CRANIA 22más
+de soldados bisoños y aturdidos. De esa forma se regresaba a los viejos planteamientos
+de Hackett y se iba más allá. El problema no era tan solo que
+el material militar ruso estuviera caduco o fuera defectuoso, sino que la
+misma doctrina militar estaba muy anticuada, según la versión de la t
+orrentosa propaganda militar occidental en 2022. Abundaba la compara-ción
+de la guerra de Ucrania en esa primera fase con la guerra de invierno de
+1940, cuando los valientes finlandeses, en manifiesta inferioridad de condiciones,
+habían detenido y humillado al Ejército Rojo entre bosques nev
+ados3 .  Ese salto gigantesco de más de ochenta años dejaba en la som-bra
+una importante cantidad de campañas y guerras en las que, posterior-m
+ente, los soviéticos habían obtenido brillantes victorias. El StratCom angloamericano
+no solía referirse a la catástrofe rusa en la primera guerra de
+Chechenia (1994-1996), otro posible paralelismo humillante, porque p
+recisamente, en 2022, la República de Chechenia había enviado un con-tingente
+de voluntarios, los kadir ovtsi, a combatir en el bando ruso y Mos-c
+ú lo había pregonado a bombo y platillo. El mensaje venía a ser que, a trav
+és de la derrota militar y el cambio de liderazgo, los rebeldes de antaño se
+podían convertir en aliados del presente, y ese era un argumento que los p
+ropagandistas occidentales querían ningunear a toda costa: la posibilidad d
+e que, mediante la invasión y el cambio de régimen, Rusia terminara paci-f
+icando Ucrania y reconvirtiéndola en un Estado satélite aliado. Un verda-d
+ero tabú que no por improbable dejaba de ser una posibilidad muy pa-v
+orosa4 . A
+fuerza de repetir el cuadro de que la invasión de U crania era un d
+esastre estratégico y operacional, que asumieron incluso analistas profe-sionales,
+como en el juego del teléfono roto, y por no quedarse atrás en el e
+ntusiasmo triunfalista, a las dos semanas de iniciada la guerra ya circula-b
+a a caño libre la visión de Rusia como un gigante con pies de barro. Al cabo
+de un mes, la parr ot pressoc cidental manejaba con suficiencia los al-stisonantes
+datos que le suministraban «fuentes de inteligencia estadouni-denses»
+(o británicas), «analistas militares», «oficiales de Estados Unidos» (
+muchas veces mera propaganda de guerra ucraniana) y toda la paraferna-3
+«¿Por qué a Moscú la aterra la entrada de Finlandia en la OTAN?, Canal VisualPolitik (You-T
+ube), 26 de mayo de 2022.4
+«Sergei Karaganov, ex consejero de Putin: “Venceremos a Ucrania y se harán prorrusos, como pasó
+en la RDA”», entrevista por Xavier Colás, en E l Mundo, 15 de abril de 2022 [consultable en r
+ed].
+
+---
+
+#
+HOTWAR 22223 lia
+de afirmaciones de autoridad no comprobadas y según las cuales «algu-n
+os misiles rusos» tenían una tasa de fallos del 60% o, incluso, que se es-ta
+ban agotando los s tocksd e esas armas, debido a la incapacidad de la si
+ndustria militar rusa para poner en línea las unidades suficientes con las que
+sacar adelante la guerra contra Ucrania5 .  A partir de ahí, se desarrolla-b
+an incluso sesudas disquisiciones sobre las causas de una incapacidad que s
+e daba por absolutamente comprobada: Rusia no podría aguantar mucho m
+ás su esfuerzo ofensivo. Una vez más, el «argumento Hackett», esto es, el d
+iscurso premonitorio de la OTAN en los años ochenta del siglo pasado.Este
+segundo capítulo conducía a un tercero: un desastre de tal calibre llev
+aba (casi forzosamente) a la insurrección y al golpe de Estado interno. Con
+un colofón terrorífico que también provenía del guion de Hackett: e
+n Moscú podrían intentar enmendar los errores saliendo por la tangente y
+tirando de estrategia nuclear6 .  Pero seguramente las cosas no llegarían tan
+lejos puesto que «Putin estaba aislado», enfermo o incluso manifestaba síntomas
+de demencia7 .  O bien, «fuentes bien informadas», invariable-mente
+de la omnipresente inteligencia angloamericana, filtraban que los descontentos de su entorno pr
+eparaban un golpe8 . S
+in embargo, a la hora de la verdad, con las cifras en la mano, resulta-b
+a que Putin tenía un apoyo social y político al alza que rondaba el 75% al
+cabo de un mes de iniciada la guerra9 ,  mientras que el de Biden se des-plomaba
+rápidamente10 .  Y aunque se le quisiera quitar importancia a la c
+ifra de apoyo popular de un autócrata, de lo que no cabía duda era de que las
+semanas pasaban y el esquema Hackett no se materializaba, mientras q
+ue la ofensiva rusa seguía su curso y los soldados que la alimentaban, día a día, par
+ecían salir de la nada.5
+«¿Por qué falla tanto el armamento ruso?», Canal VisualPolitik (YouT ube), 15 de abril de 2022.
+6
+«Apretar el botón nuclear podría volverse contra Putin, en forma de golpe de Estado o inclu-so
+de su propia muerte, advierte un experto», por Matthew Loh, B usiness Insider, 23 de mayo de 2022 [consultable en r
+ed].7
+«Ahora sabemos que Putin está aislado y comete errores pero no es está demente», The Wash-ington P
+ost, publicado en español en La N ación, 10 de may o de 2022 [consultable en red].8
+«Los servicios secretos rusos podrían estar preparando un golpe de estado contra Putin», en ondacer
+o.es, 26 de mar zo de 2022 [consultable en red].9
+«El apoyo a Putin y a su campaña en Ucrania se acerca al 75 % en Rusia», por Gonzalo Ara-gonés,
+La Vanguardia, 30 de mar zo de 2022 [consultable en red].10
+«Biden pierde cada vez más apoyos: su aprobación popular cae a los niveles de T rump», por J
+avier Collado, en E l Economista.es, 30 de abril de 2022 [consultable en r ed].
+
+---
+
+224
+224U CRANIA 22S
+e puede entender mejor lo que estaba sucediendo si se contrasta la v
+ersión que la StratCom11  anglobritánica puso en circulación, con los ob-jetiv
+os de guerra del alto mando ruso. Porque la realidad era que, en las primeras
+semanas, los análisis que hacían los expertos occidentales eran t
+an propagandísticos y triunfalistas que, de hecho, anunciaban el hipoté-t
+ico fracaso ruso en base a unos objetivos y baremos que ellos mismos habían
+marcado, y no a un conocimiento real de lo que, en realidad, bus-caban los inv
+asores.U
+n ejemplo muy evidente fue la insistencia en que los rusos habían fracasado
+en su «invasión relámpago» de Ucrania, sobre lato talidadade ldp
+aís. Y eso tenían que haberlo hecho en tan solo una semana. Es decir, que para
+los periodistas, analistas o propagandistas de la OTAN, «Putin había fracasado
+al no poder invadir toda Ucrania en una semana», cuando lo cier
+to era que la superficie de Ucrania es de 603.548 kilómetros cuadra-dos,
+más grande que toda la Península Ibérica (583.254 km2 ) o Francia (543.940
+km2 ) . Era literalmente imposible completar una campaña de inv
+asión de esa envergadura en unos pocos días y con poco más de cien mil
+soldados, cifra notablemente consensuada sobre los efectivos rusos que
+intervinieron en los primeros momentos de la invasión. Sin embargo, datos
+fiables de primera mano sobre las intenciones y el timing d e los in-timingv
+asores se habían conseguido en la primera semana de la guerra y se hicie-r
+on públicos a comienzos de marzo12 .  Se trataba de los documentos ope-rativ
+os de la 810.ª Brigada Independiente de Infantería de Marina rusa. El calendario
+estipulaba la duración de esa primera fase de las operaciones en dos
+semanas y suponía tomar la ciudad de Melitopol, un objetivo situado a
+230 kilómetros del itsmo de Perekop en Crimea y prácticamente en la costa
+del mar de Azov. Por lo tanto, era un objetivo más que modesto para las
+fantasiosas intenciones y capacidades estratégicas que les atribuían a las t
+ropas rusas los comentaristas occidentales y la parr ot press.E
+l 11 de marzo, un medio electrónico español publicaba una entrevis-ta
+al teniente general retirado del Ejército español Pedro Pitarch13 ,  el cual 11
+Apócope de Strategic Communication. Véase Santos Rodríguez (2013) para un estudio ex-plicativ
+o.12
+«Ucrania captura y publica documentos rusos secretos con sus planes para la invasión», De -fensa y A
+viación, 2 de mar zo de 2022 [consultable en red].13
+«Putin no ataca Kiev porque es la Covadonga de los rusos», entrevista a Pedro Pitarch, por F
+rancisco Carrión, en E l Independiente, 11 de mar zo de 2022 [consultable en red].
+
+---
+
+#
+HOTWAR 22225 difícilmente
+podía ser tachado de simpatizante de los rusos, habiendo des-empeñado
+la jefatura de la División de Logística del Estado Mayor del M
+ando Supremo de la OTAN en Mons (Bélgica). Así respondía a la pre-gunta sobr
+e la marcha de la supuesta «guerra relámpago rusa»: Lo
+de la guerra relámpago es un invento periodístico. Lo de la rapidez en la ejecución
+de las operaciones militares no es de esta guerra. Es la lógica de las operaciones
+militares porque se fundamentan en el principio de la eficacia, e
+s decir, lograr los objetivos lo más rápidamente y lo más rotundamente p
+osible. Era un desiderátum, pero las operaciones necesitan su tiempo y su desarr
+ollo, pero realmente van a su tiempo. Además tienen que ser alimen-tadas,
+lo cual es muy pesado y muy costoso cuando hablamos de unas colas logísticas larguísimas.
+A
+un así, explicaba Pitarch, en dos semanas el Ejército ruso había consegui-do
+controlar 70.000 kilómetros cuadrados, esto es, g rosso modo, el 11% del
+territorio ucraniano. Esa extensión, por otra parte, equivalía, más o menos, a la de Bosnia y K
+osovo, sumadas. E
+ntonces ¿cuáles eran los objetivos de guerra rusos? Es cierto que con los
+datos de que se disponía en aquellos días de la primera fase de la inva-s
+ión, resultaba complicado establecerlos y era más sencillo suponerlos o incluso
+inventarlos. Máxime teniendo en cuenta que el mismo Putin asu-mió
+la estrategia de callárselos o divulgarlos con cuentagotas, diferencian-do
+lo que ofrecía a la población rusa de lo que comunicaba al enemigo. J
+unto con esa fuente de información, resulta útil contar con las declaracio-n
+es de Sergei Karaganov, un influyente asesor en cuestiones de geoestrate-g
+ia y política de los presidentes Boris Yeltsin y Vladimir Putin. En cierta manera,
+sería el equivalente en ruso de Zbigniew Brzezinski, como direc-tor
+del Consejo de Política Exterior y Defensa, institución fundada por V
+itali Shyikov, un «maestro de espías» del GRU soviético, el servicio de inteligencia
+militar. Según él, Kissinger le llamaba «profesor Karaganov» y él
+correspondía con un «Henry». Con aspecto de dandi septuagenario m
+undano y, por lo tanto, de experto accesible, Karaganov asumió el papel de
+portavoz no oficial de la política exterior rusa, especialmente durante la crisis
+ucraniana. En abril de 2022 concedió varias entrevistas sobre la mar-cha
+de la guerra que tuvieron una lógica repercusión internacional. La ter
+cera fuente de información la aporta el análisis contextual del conflicto, su trasfondo histórico r
+eciente y el sentido común.
+
+---
+
+226
+226U CRANIA 22E
+l mismo Putin enunció los objetivos de la invasión, que él definió como
+«operación militar especial», en el discurso que pronunció el día 24 d
+e febrero, a la par que el inicio de las hostilidades14 .  Es interesante leer la transcripción
+del mismo, porque disipa algunas confusiones sobre el al-cance
+de la intervención. Básicamente, establecía que el objetivo militar consistía
+en ofrecer protección a las poblaciones amenazadas del Donbas y
+Crimea y, a través de ello, salvaguardar a Rusia del expansionismo de «los principales
+países de la OTAN», los cuales «declaran abiertamente que r
+eclaman otros territorios rusos». Putin achacaba a «las fuerzas que perpe-trar
+on un golpe de Estado en Ucrania en 2014» la renuncia a intentar la solución
+pacífica del conflicto del Donbas a lo largo de los últimos ocho a
+ños. Invocaba el Artículo 51 del Capítulo VII de la Carta de las Naciones U
+nidas: «Acción en caso de amenazas a la paz, quebrantamientos de la paz o casos de agr
+esión». El mencionado artículo recoge queN
+inguna disposición de esta Carta menoscabará el derecho inmanente de legítima
+defensa, individual o colectiva, en caso de ataque armado contra un M
+iembro de las Naciones Unidas, hasta tanto que el Consejo de Seguridad haya
+tomado las medidas necesarias para mantener la paz y la seguridad in-ternacionales
+15 . E
+l discurso estaba dirigido en parte a la comunidad internacional, pero t
+ambién a los rusos y ucranianos. Había reproches claros a las potencias occidentales
+por rechazar la contribución soviética a la derrota del nazis-m
+o y a la construcción de una nueva Europa en la cual esa ideología, ge-neradora
+de la Segunda Guerra Mundial, tenía que haber sido erradicada. E
+ntonces Putin tiraba de una serie de argumentos que eran fruto de su e
+ducación soviética y que poseían todavía mucho tirón entre el común de la
+población16 .  A sus ojos, Rusia no podía ser una potencia respetada in-ternacionalmente
+si no garantizaba que jamás volvería a resurgir el nazis-m
+o en Europa, de la misma forma que para muchos americanos los Estados U
+nidos dejarían de ser una potencia honorable si permitieran un nuevo 14
+V éase, por ejemplo, la transcripción de la Agencia EFE que fue publicada en diversos me-d
+ios: «Discurso íntegro del anuncio de Putin de la operación militar en Ucrania», en SWI – swissinfo
+.ch, 24 de febr ero de 2022 [consultable en red].15
+Naciones Unidas. Carta de las Naciones Unidas, Capítulo VII [consultable en red].16
+Pozner (2018): minutos 1:27 y ss. para esa cuestión.
+
+---
+
+#
+HOTWAR 22227 exterminio
+de los judíos, y de ahí su compromiso irrompible con Israel. E
+ra la herencia de la Segunda Guerra Mundial, pero también de los mal-entendidos
+que dieron origen a la Guerra Fría, con toda su carga de dobles raser
+os. Desde que los Aliados apoyaron el resurgimiento de la República F
+ederal de Alemania, Moscú les echó en cara que su intención real era r
+eactivar el nazismo y utilizar un IV Reich contra la Unión Sociética. Aho-r
+a Putin reprochaba a las potencias de la OTAN que intentaran hacer eso m
+ismo con Ucrania. Ese planteamiento fue gasolina patriótica e ideológi-ca
+para la máquina de guerra rusa. En tal sentido, el 24 de febrero de 2022 P
+utin no relanzó la Guerra Fría, sino la Gran Guerra Patriótica, como si se hubiera
+regresado a 1945. Como si hubiera descubierto que Churchill tenía
+lista la Operación Unthinkable para lanzarse contra la Unión Sovié-tica sobr
+e las ruinas humeantes de la Alemania nazi17 . M
+ás allá del discurso, podemos encontrar un dato muy evidente pero que
+parece no ha llamado la atención a ningún analista. La fecha de inicio de
+la «operación militar especial» contra Ucrania había sido cuidadosa-mente
+escogida y poseía una alta carga simbólica. El plan original, según sabemos
+por los documentos capturados a los marines rusos, era lanzar el ataque
+el 20 de febrero, aniversario exacto del triunfo del Euromaidan g
+racias a las fuerzas de choque de la ultraderecha ucraniana. Pero a pesar de
+los contratiempos, Putin conjugó la simetría y el equilibrio de simbo-l
+ogías y logística militares en el abanico de fechas fatídicas situadas entre el
+asalto al poder de las fuerzas ultras del Euromaidan, entre el 20 y 21 de f
+ebrero —fecha en la cual Moscú reconoció diplomáticamente a las Repú-b
+licas Populares de Lugansk y Donetsk—, y el 25 de febrero, aprobación de
+la Ley contra la cooficialidad del ruso en la Duma de Kiev que dio origen a la insurr
+ección anti-Maidan. El Día D será, como se sabe, el 24.Y
+a en abril, cuando la guerra da un giro con el final de la primera fase, las
+entrevistas que concede Karaganov ayudan a definir y centrar el cuadro del
+conflicto y sus objetivos. Putin había negado que se buscara una parti-ción de U
+crania, pero Karaganov corrige ese extremo: C
+reo que una parte de Ucrania tendrá una orientación rusa, otra parte ten-drá
+una orientación polaca, también una parte eventualmente tendrá una o
+rientación rumana o húngara. Tal vez, espero, quede algo como núcleo de 17
+Hines (2016).
+
+---
+
+228
+228U CRANIA 22U
+crania. Pero he estado argumentando durante muchos años que tomar t
+oda Ucrania o la reunificación [de Rusia] con Ucrania es un escenario im-p
+rudente, ya que Ucrania es demasiado costosa de controlar, es una carga enorme.
+Es un «Estado tapón» útil, pero también fue una carga durante la U
+nión Soviética, cuando estaba fuertemente subvencionada por Moscú18 . E
+n definitiva, el objetivo de la operación es el despiece de Ucrania, a partir de
+la configuración progresiva de la Confederación de Nueva Rusia o No -v
+orrósiya.  Inicialmente, esa denominación era utilizada, en tiempos del I
+mperio zarista, para designar a los territorios de la costa septentrional del mar N
+egro que en el siglo /x.sc /v.sc/i.sc/i.sc/i.sc habían sido tomados a los tártaros y otomanos p
+or las tropas rusas. Posteriormente, los círculos neoeurasianistas, espe-cialmente
+en los meses de la insurrección anti-Euromaidan, recuperaron esa
+denominación para reivindicar la creación de un Estado panruso a par
+tir de la insurgencia surgida en el Donbas, y que se extendería por las riberas
+del mar de Azov, desde Odesa y la frontera con Moldavia hasta J
+árkov, y que incluiría los óblast de Zaporiyia e incluso el de Dnipropetrovsk. E
+n definitiva, todo el este y sur rusófono de Ucrania. Una dinámica en la q
+ue Rusia tenía experiencia histórica propia al ser la impulsora del reparto de P
+olonia entre 1772 y 1795.P
+ero Putin no menciona ese objetivo en febrero, porque la ocultación forma
+parte de la «niebla de guerra», la reserva que desorientará a los ucra-n
+ianos y a la OTAN. Así, los falsos asedios de Kiev y Járkov buscaban destinar
+a lo mejor de las unidades de combate enemigas y la mayor parte d
+e las reservas a sendas batallas de desgaste a fin de progresar con la menor oposición
+posible en el frente sur, que es el que de verdad interesaba am-p
+liar. La supuesta ofensiva sobre Kiev parece impresionante a primera vis-t
+a, pero no lo es tanto sobre el terreno. Las tropas rusas que convergen s
+obre la capital desde Bielorrusia progresan lentamente y no terminan de cer
+car la ciudad por el sur. Tardan bastante en hacerse con algunas locali-dades
+del extrarradio, como Bucha, Hostómel e Irpín, que solo caen en sus
+manos hacia mediados de marzo. Los desembarcos aerotransportados en
+los aeródromos Antónov (al norte de Hostómel) y Vasylkiv encuentran f
+uerte resistencia, debido en parte a que Estados Unidos suministra infor-18
+«Sergei Karaganov, ex consejero de Putin: “Venceremos a Ucrania y se harán prorrusos, como
+pasó en la RDA”», entrevista con Xavier Colás, E l Mundo, 15 de abril de 2022 [consul-table en r
+ed].
+
+---
+
+#
+HOTWAR 22229 mación
+de inteligencia avanzada al alto mando ucraniano, fruto de sus capacidades
+SIGINT de intercepción de las comunicaciones rusas y de sus satélites espía.
+E
+n conjunto, hay algo que no encaja en la batalla de Kiev. Primero, el apar
+ente despiste de los rusos, en el que se regodean los medios occiden-t
+ales y que a veces se trata incluso con una ingenuidad infantil. Durante a
+ños, los rusos han sido los temibles maestros de la ciberguerra, de la gue-rra
+híbrida, de la maskir ovka; y ahora resultan ser unos patanes, que siguen enfrascados
+en estrategias de la Segunda Guerra Mundial y van al comba-t
+e con armamento obsoleto. Ucrania parece ser para ellos tan descon-cer
+tante, por desconocida, como Afganistán. Y sin embargo, la realidad es que
+conocen la antigua provincia —desde el siglo /x.sc/v.sc /i.sc/i.sc—  como la palma d
+e su mano. Ucrania era fundamental para la Unión Soviética, y Moscú lo sabe
+todo sobre infraestructuras, administración, economía, defensa. Es como
+si desde Washington se olvidaran de una T exas que ha devenido independiente
+hace solo treinta años. Más aún, los rusos han librado dos guerras
+mundiales en suelo ucraniano; saben lo que es luchar en cada montículo,
+en cada pueblo. Además, también poseen satélites espía, capa-cidades
+SIGINT y un despliegue más que extenso y profundo de informa-dor
+es HUMINT19 .  Cierto es que los estadounidenses han reorganizado el S
+BU —aunque les ha costado—, pero no pueden ignorar lo que significa tomar
+al asalto una ciudad como Kiev, una urbe de casi tres millones de h
+abitantes. Cualquier militar profesional conoce la sangría que supone el combate
+urbano, el imperativo de asumir fuertes pérdidas y de utilizar para ello unidades especializadas.
+Los
+informativos han hablado extensamente de las unidades de sabo-teador
+es rusos, de los S petsnazd ispuestos a infiltrarse en Kiev. La televi-zs
+ión y las redes sociales han mostrado fotografías de supuestos grupos ru-sos
+de operaciones especiales con sus furgonetas y vehículos camuflados como
+civiles, preparados para actuar. Lo cual no forma parte del proceder habitual
+de los militares rusos, que no suelen hacer concesiones propagan-dísticas de ese tipo
+.E
+l resultado de los rumores inducidos es un fuerte nerviosismo entre la
+población de la capital. El temor a los saboteadores y la iniciativa guber-namental
+de distribuir armas a los civiles, muchas veces sin estar encua-19
+Poch de Feliu (2022). Véase a partir del minuto 44 y ss.
+
+---
+
+230
+230U CRANIA 22drados
+ni siquiera en unidades paramilitares, dieron lugar a detenciones ar
+bitrarias protagonizadas por patrullas ciudadanas, descontroladas, que c
+astigan a supuestos saqueadores atándolos a postes en la vía pública —en pleno
+invierno— y azotándolos en ocasiones o pintándoles la cara con un antiséptico
+de color verde intenso ( zelyonka) difícil de borrar20 .  Se produ-cen
+también incidentes de pánico ocasionados por la desinformación rela-cionada
+con movimientos de las mismas tropas ucranianas que son toma-das por r
+usas.P
+or entonces se menciona también que los rusos proyectaban tomar la
+capital y forzar un cambio de régimen, un plan que a primera vista ca-r
+ecía de fundamento, puesto que Yanukovich no parecía tener ninguna i
+ntención de prestarse a ese juego: no hizo ninguna declaración al respecto d
+esde Rusia. Quizá el rumor vino abonado por la rocambolesca detención d
+e Víktor Medvedchuk, oligarca y jefe del partido Plataforma de Oposi-c
+ión – Por la Vida, que ya había sufrido arresto domiciliario en mayo d
+e 2021. De abiertas tendencias prorrusas —los medios de comunicación occidentales
+airearon que era amigo personal de Putin—, Medvedchuk se mostraba,
+ciertamente, como un activista del anti-Euromaidan desde el m
+ismo centro de Ucrania, lo cual era una temeridad. Además, su partido había
+demostrado ser un adversario de Zelenski a tener en cuenta, al que-dar
+como segundo partido más votado en las elecciones de 2019, tras S
+ervidor del Pueblo. El punto central de su programa giraba en torno a la idea
+de buscar la neutralidad de Ucrania en la esfera político-militar, apar-tando al país de alianzas y bloques.
+E
+l arresto de Medvedchuk, diez meses antes del comienzo de la guerra, i
+rritó claramente a Putin, que lo denunció como una provocación al presen-t
+arlo como parte de una purga de aquellos políticos dispuestos a buscar una s
+alida negociada al aumento de la tensión en la zona. Al fin y al cabo, casi d
+os millones de ucranianos habían votado por su partido. Posteriormente, e
+l político fue acusado de traición y de cargos diversos. Después, a los dos d
+ías de iniciada la guerra, logró escapar, pero fue detenido de nuevo en abril.Así
+que, en torno a la batalla militar por Kiev se produjo una batalla política,
+en virtud de la cual Volodímir Zelenski salió claramente victorio-20
+«Personas atadas a postes en Ucrania: episodios ciertos pero rodeados de desinformación», p
+or Paula Peña, Blanca Bayo y Myriam Redondo, en V erificaRTVE, 4 de abril de 2022 [consul-table en r
+ed]. Véase, asimismo, sobre esta noticia: Serrano (2022): pp. 137-138.
+
+---
+
+#
+HOTWAR 22231 so
+al negarse a evacuar la capital y forjar su imagen de líder capaz de gal-v
+anizar la resistencia nacional ucraniana. Había regresado el Zelenski in- fluencer
+q ue posteaba vídeos en las redes sociales y se mostraba fluencerteatralmente
+rodeado de «sus hombres», en plena noche, vestidos todos de v
+erde oliva, ante el edificio de la Presidencia, prometiendo resistir hasta el final en Kiev
+. Y
+ese fue, posiblemente, un error neto de los rusos: el asedio instru-mental
+de Kiev alumbró a un «Churchill en camiseta», como pasó a ser c
+onocido Zelenski, medio en broma medio en serio, por su afición a com-par
+ecer invariablemente vistiendo una camiseta caqui. Pero el ataque a K
+iev no se produjo; en ningún momento unidades rusas intentaron entrar en
+la capital. ¿Lo sabía el presidente, como en su momento Yeltsin supo que
+podía detener el golpe en Moscú, en 1991, compareciendo ante la C
+asa Blanca? Lo que sí es cierto es que el 25 de marzo, un mes justo des-pués
+de comenzada la invasión, el alto mando ruso anunció que, tras ha-ber
+cumplido sus planes iniciales, pasaba a centrarse en el objetivo princi-pal de la «operación militar especial»: obtener el contr
+ol del Donbas.P
+or supuesto, los medios occidentales proclamaron que los planes de P
+utin habían fracasado, que los rusos no habían logrado tomar Kiev y que, como
+en la fábula del zorro y las uvas, este renunciaba a ellas porque esta-b
+an verdes. Pero lo cierto es que fue como un truco de magia. Tras retirar-s
+e las tropas rusas del frente norte, de Chernóbil, de los alrededores de K
+iev, del frente del noreste, de Sumy, de Chernígov, quedó patente que durante
+ese mes, sin apenas llamar la atención, los invasores habían ido tomando
+parte de los óblast de Zaporiyia y Jerson, lo cual creaba un puen-te
+de conexión suficientemente ancho y consistente entre el Donbas insur-g
+ente y Crimea, que representaba g rosso modo el 20% del territorio total d
+e Ucrania. Ello cerraba prácticamente la salida al mar de Ucrania. Que-daban
+en manos del gobierno de Kiev los puertos de Odesa y Mykolaiv, p
+ero al alcance de los misiles rusos y minadas sus aguas para impedir des-embar
+cos y raids. La ciudad portuaria de Mariúpol resistiría el asedio has-ta
+el 16 de mayo. Como remate, y no menor, de la ofensiva rusa en el f
+rente sur, a comienzos de marzo tomaron la central nuclear de Zaporiyia, c
+on seis reactores, lo que hacía de ella la mayor de Europa y generadora de la mitad de la energía eléctrica nuclear de U
+crania.P
+or lo tanto, al mes de haberse iniciado la invasión, los rusos estaban ya
+en condiciones de ir a la mesa de negociaciones para conseguir un par
+
+---
+
+232
+232U CRANIA 22de
+objetivos: el reconocimiento, por parte de Kiev, de que había perdido definitiv
+amente el Donbas y Crimea, con el control de la costa del mar de A
+zov por parte rusa como baza negociadora, y el pacto de una política d
+e neutralidad exterior para Ucrania que la alejara definitivamente de la O
+TAN. Precisamente por entonces, estaban en marcha unas rondas nego-ciadoras
+entre delegaciones rusas y ucranianas auspiciadas por el presiden-t
+e turco Recep Tayyip Erdoğan. La primera había tenido lugar en Antalya, e
+l 10 de marzo, y se saldó sin haberse alcanzado ningún resultado. Pero para la
+que se debería celebrar en Estambul el 28 de ese mismo mes, Zelenski había
+ofrecido tratar de la neutralidad ucraniana a cambio de la retirada de l
+as tropas rusas. La esperanza de alguna forma de acuerdo diplomático dur
+ó bien poco. Como argumentaría Karaganov, semanas más tarde, La
+negociación debe producirse. Pero los estadounidenses no están interesa-dos.
+Al igual que los británicos, quieren luchar «hasta el último ucraniano». Los
+europeos ahora están histéricos, pero son relativamente impotentes. Los estadounidenses quier
+en que los europeos luchen entre sí21 . Esta
+constatación se podía seguir, semana a semana, por ejemplo, en los editoriales
+de una revista con la capacidad de influencia de The Economist. E
+n la del 19 al 25 de marzo, dedicó su portada a un muy inquietante «Or-den
+mundial alternativo» superponiendo los retratos de Xi Jimping y Pu-tin.
+## Este era un asunto que preocupaba enormemente en los Estados Uni-dos
+la posibilidad de que China hiciera frente común con Rusia en la g
+uerra. Por lo tanto, había ahí una llamada de atención: el conflicto ucra-niano
+no era un asunto local, sino que podía traer consecuencias. «La guerra
+en Ucrania determinará cómo ve China el mundo. Y lo amenazan-te
+que se vuelve», resumía este otro subtítulo. T ras haber cargado sobre las espaldas
+de los ucranianos, y su voluntad de seguir luchando, la responsa-bilidad
+de evitar la consolidación de «un eje de la autocracia» capaz de establecer
+una alternativa al orden liberal occidental, el número de la si-guiente
+semana (26 de marzo-15 de abril) llamaba a los lectores a entender e
+l «Juego de poder. La nueva era de energía y seguridad» en el interior de sus
+páginas. «La energía y las materias primas se encuentran en el corazón o
+scuro del régimen de Vladimir Putin y la amenaza que representa para el 21
+«Sergei Karaganov, ex consejero de Putin», entrevista cit., con Xavier Colás.
+
+---
+
+#
+HOTWAR 22233 mundo»,
+se podía leer. Los billonarios beneficios de las exportaciones de g
+as y petróleo habían pagado las armas con las cuales los rusos mataban a los
+ucranianos. Y, de paso, «afianzó a una élite buscadora de rentas que ha cr
+eado un archipiélago en alta mar de yates, clubes nocturnos y empresas fachada
+del Caribe, reprimió la política representativa y complació las fan-tasías
+megalómanas de Putin»22 .  Por lo tanto, la guerra de Ucrania era el primer
+paso para edificar una nueva era de energía y seguridad a escala global.
+A
+la semana siguiente (2 a 8 de abril), The Economistab ría con una tpor
+tada en la cual figuraba el rostro cansado e hirsuto de Zelenski junto al t
+itular: «Por qué Ucrania debe ganar». El 2 de abril, un periodista de un m
+edio alternativo estadounidense comentaba: «Este es realmente el beli-cismo
+más loco y rabioso que he visto en T he Economisten  días»t23 .  Cier-tamente,
+llamaba la atención por su virulencia. Recogía una entrevista al p
+residente Zelenski en su búnker (sic)  y las conclusiones se explicaban en el
+editorial. «Una victoria decisiva podría transformar la seguridad de Eu-r
+opa», resumía el triunfalista contenido de la pieza24 .  En conjunto, presen-t
+aba a un Zelenski que había asumido la tarea sobrehumana de derrotar a P
+utin. Como si fuera un personaje de cómic o de una serie televisiva, el j
+oven e inofensivo actor se había convertido en presidente y de ahí había transmutado
+en superhéroe encargado de derrotar al supervillano y mal-v
+ado Putin. Este planteamiento entró con enorme facilidad en las mentes de
+millones de personas porque lo habían conocido durante años en la f
+icción narrativa y ahora se sustentaba en un desafiante eslogan de márke-ting
+político tan sencillo como eficaz: «¿Por qué los ucranianos deben ren-dirse?».
+La
+campaña por la continuidad de la guerra se basaba en dos afirma-ciones
+de autoridad procedentes del StratCom o maquinaria propagandís-tica
+angloamericana: que la invasión rusa había fracasado en sus objetivos por
+que su obsoleta máquina de guerra había sufrido pérdidas inasumibles y
+que esa situación se podía revertir mediante el envío masivo de armas 22
+«Power Play. The world’s energy industry is about to be transformed. But energy insecurity ish er
+e to stay», en The E conomist, v ol. 442, n.º 9289, 26 de marzo-1 de abril de 2022, p. 7.23
+@AlanRMacLeod, 2 de abril.24
+«Why Ukraine must win», en The Economist, vol. 443, n.º 9290, 2-8 de abril de 2022, p. 7. La
+entrevista: «Confidence from the bunker. Ukraine’s president tells The Economist why Vla-dimir P
+utin must be defeated», pp. 17-19.
+
+---
+
+234
+234U CRANIA 22occidentales
+a los ucranianos. Como contribución argumental de última h
+ora, la retirada de las fuerzas rusas de los alrededores de Kiev y del nores-t
+e de Ucrania —a partir del 1.º de abril— que la propaganda de guerra u
+craniana pronto fabuló como fruto de la incapacidad rusa y, en parte, de la pr
+esión de sus fuerzas al ataque. D
+e esa forma, rápidamente se dejó de lado la «finlandización» de U
+crania en pro de su «zombificación», puesto que, más allá de los juegos malabar
+es con las cifras de armamento propio o ajeno perdidos en los combates,
+apenas se mencionaba la destrucción que estaba encajando U
+crania en su conjunto. La devastación de las infraestructuras del país m
+archaba a un ritmo espeluznante, sin que los ucranianos pudieran hacer gran
+cosa por impedirlo. Hacia finales de junio, el mismo gobierno ucra-niano
+asumía que entre el 20 y el 30% de ellas habían sido destruidas por los
+combates —en ciudades como Mariúpol, Járkov, Chernígov, Severo-donetsk
+y Lisichansk— o los bombardeos25 .  Eso quería decir carreteras, puentes,
+aeropuertos, ferrocarriles. El bloqueo de los puertos, minados o e
+n manos de los rusos, había hecho caer las exportaciones en un 30-4
+0%. Los rusos se dedicaron a destruir refinerías con entusiasmo. A prin-cipios
+de abril, en menos de 24 horas reventaron dos: la de Kremenchuk, e
+n el centro de Ucrania, que era el mayor complejo de hidrocarburos del p
+aís, y la de Odesa. Y continuaron, hasta dejar al país sin capacidad de r
+efinado de crudo. En consecuencia, pronto se produjo un masivo desa-bastecimiento
+por toda Ucrania, con colas kilométricas en las gasolineras y
+el carburante a precios prohibitivos. A finales de abril, las autoridades de K
+iev pedían a los conductores que restringieran sus desplazamientos, a efecto de que los v
+ehículos militares tuvieran combustible para operar26 . E
+n el capítulo de la energía, la toma de la central nuclear de Zaporiyia p
+or tropas rusas, ya el 4 de marzo —según fuentes rusas, ya el 28 de febre-r
+o—, supuso dejar sin energía a una quinta parte de Ucrania, y sin electri-c
+idad a la mitad. En un rasgo de cinismo inaudito, el viceprimer ministro d
+e Rusia, Marat Jusnulin, afirmó en mayo que Rusia estaría dispuesta a v
+ender a Ucrania energía nuclear de la planta de Zaporiyia siempre que 25
+«Guerre en Ukraine: “Près de 30% des routes, ponts, ports, chemins de fer, aéroports ont été détr
+uits”», entrevista con el ministro de Infraestructuras Oleksandr Kubrakov», en L e Monde,21 de junio de 2022 [consultable en r
+ed].26
+«Kyiv urges residents to stop driving, so military can have the fuel», por Andrew Jeong, The W
+ashington Post, 30 de abril de 2022 [consultable en r ed].
+
+---
+
+#
+HOTWAR 22235 pagaran
+por ella27 .  Por si faltara algo, Ucrania compartía red eléctrica con R
+usia y Bielorrusia, lo que suponía que los rusos controlaban el voltaje y la fr
+ecuencia de la red.Al
+país devastado y semiparalizado económicamente, se añadía ese desgarr
+ón en el tejido social que supusieron los refugiados. Al margen de los
+terribles dramas humanos que vivieron las personas que abandonaron su
+país como pudieron, su sola emigración dejó a Ucrania sin miles de p
+rofesionales de todo tipo, destruyó familias, desertizó núcleos urbanos, desco
+yuntó la economía. La generación de refugiados es una forma más de actividad
+bélica, y en ese sentido, ya el 15 de marzo habían salido de Ucra-n
+ia tres millones de personas, que se convirtieron en cinco el 21 de abril, seis millones al mes siguiente y ocho millones el 21 de junio
+28 . E
+n la primavera de 2022, Ucrania era un país roto, lanzado a enfren-tarse
+al Estado más grande del mundo, que además era una potencia mili-tar
+de consideración, por mucho que la propaganda occidental no perdie-ra
+ocasión de ridiculizarla. Pero ¿por qué Estados Unidos insistió tanto en la continuidad de una guerra tan a la desesperada?
+27
+«Rusia propone vender energía a Ucrania desde la central nuclear de Zaporiyia», E uropaPress,19 de may
+o de 2022 [consultable en red].28
+«La crisis de refugiados tras la invasión de Rusia a Ucrania, en gráficos», datos actualizados r
+egulamente,e pdata[ consultable en ahttps://www .epdata.es/datos/crisis-refugiados-invasion-r
+usia-ucrania-datos-graficos/647].
+
+---
+
+
+
+---
+
+C
+APÍTULO 13C
+INTA AMERICANAS
+EGUNDA FASE DE LA GUERRA DE UCRANIA, A
+BRIL-JULIO DE 2022U
+no es dueño de lo que calla y esclavo de lo que dice.S
+igmund FreudE
+n las entrevistas que concedió Sergei Karaganov durante el mes de abril, insistía
+en un extremo que sabía era como meter el dedo en la llaga de las potencias de la O
+TAN. L
+es digo a los países bálticos: si no estuvieran en la OTAN estarían absolu-t
+amente a salvo, en lugar de no poder conciliar el sueño por las noches, que es
+lo que les pasa ahora. El Artículo 5 de la OTAN es un farol. Si los marcia-nos
+atacan un país de la OTAN, nadie los defenderá. Bajo ninguna circuns-tancia Estados U
+nidos peleará contra Rusia en Europa1 . E
+n otra entrevista, que Karaganov dio a Bruno Maçães para The New Sta-tesman
+2 , amplió más la r espuesta: H
+ay una probabilidad creciente de un choque directo. Y no sabemos cuál s
+ería el resultado de esto. Tal vez los polacos lucharían; siempre están dis-p
+uestos. Sé, como historiador, que el Artículo 5 del tratado de la OTAN no 1
+«Sergei Karaganov, ex consejero de Putin», entrevista cit., con Xavier Colás.2
+«“Russia cannot afford to lose, so we need a kind of a victory”: Sergey Karaganov on what P
+utin wants. A former adviser to the Kremlin explains how Russia views the war in Ukraine, f
+ears over Nato and China, and the fate of liberalism», por Bruno Maçães, The New Statesman, 2 de abril de 2022 [consultable en r
+ed].
+
+---
+
+238
+238U CRANIA 22t
+iene valor. Según el Artículo 5, que permite que un Estado solicite el apoyo de
+otros miembros de la alianza, nadie está obligado a luchar en nombre de los
+demás, pero nadie puede estar absolutamente seguro de que no habrá tal e
+scalada. También sé por la historia de la estrategia nuclear estadounidense que
+es poco probable que Estados Unidos defienda a Europa con armas nuclear
+es[...]
+P
+uede ser que el Artículo 5 funcione y los países se unan en defensa de otr
+o. ¿Pero contra una potencia nuclear como Rusia  me pregunto? Pongámoslo d
+e esta manera: si Estados Unidos interviene contra un país nuclear, entonces el
+presidente estadounidense que toma esa decisión está loco, porque no sería 1
+914 o 1939; esto es algo mas grande. Entonces, no creo que Estados Unidos p
+ueda intervenir, pero ya estamos en una situación mucho más peligrosa que h
+ace varias semanas. Y el Artículo 5 no supone obligaciones automáticas.E
+l Artículo 5 del T ratado de la Alianza Atlántica establece que «las Partes acuer
+dan que un ataque armado contra una o más de ellas, que tenga lugar e
+n Europa o en América del Norte, será considerado como un ataque di-rigido
+contra todas ellas». El desdén de Karaganov hacia el Artículo 5 ex-p
+resaba cuál era otro de los objetivos fundamentales de la invasión rusa: r
+etar a la OTAN para que interviniera a fin de sacarle a Ucrania las casta-ñ
+as del fuego. Si no lo hacía, quedaría en evidencia que la OTAN era un b
+luf, una organización militar que movía miles de millones de dólares de p
+resupuesto pero que nunca había funcionado para lo que había sido crea-d
+a: la defensa de Europa. Por el contrario, la Alianza había actuado ofen-siv
+amente en contra de Yugoslavia, Afganistán y Libia.S
+i Rusia invadía Ucrania y no se producía una intervención defensiva dir
+ecta de parte de la OTAN, quedaría patente que no valía la pena dejar-se
+la piel por pertenecer a la Alianza Atlántica. El argumento de que Ucra-nia
+todavía no era miembro de pleno derecho de la organización perdía mucha
+fuerza cuando se recordaba que esta había intervenido contra Yu-goslavia
+sin que se hubiera producido ninguna agresión contra ningún p
+aís miembro. En cuanto a la presencia de fuerzas OTAN en Afganistán, s
+e debía a que los Estados Unidos habían invocado el Artículo 5 tras los atentados
+del 11 de septiembre de 2001. En más de setenta años, nadie más lo había hecho
+. K
+araganov —y, desde luego, Putin— sabía que los Estados Unidos tenían
+muy mal perder y que nunca habían asumido una derrota o un mal
+
+---
+
+C
+INTA AMERICANAA 239 paso
+en una guerra en la que hubieran intervenido ellos directamente, con s
+us propias tropas: Hiroshima y Nagasaki, Corea, Vietnam, Líbano en 1984 S
+omalia en 1993 eran buena muestra de ello. Por lo tanto, cabía esperar q
+ue no se fueran a personar con sus soldados o su aviación de combate en U
+crania. Ello habría supuesto dos riesgos que no pensaban asumir: pérdi-d
+as cuantiosas en hombres o material militar y escalada hacia la T ercera G
+uerra Mundial, con un posible conflicto nuclear. E
+llo sería políticamente inaceptable en los mismos Estados Unidos, y más
+teniendo en cuenta que por entonces el país estaba dividido entre los furiosos
+partidarios de T rump y los resentidos votantes de Biden, con un índice
+de respaldo al presidente a la baja. Pero, además, Washington tenía un
+adversario más temible que Rusia, y este era China. Entrar en una guerra
+directa contra la primera potencia implicaba, a su vez, dos riesgos: q
+ue China y Rusia unieran fuerzas en una confrontación común contra los
+Estados Unidos, lo que significaría que los americanos habrían perdido el
+escaso control de la situación que tenían. Y que, en el mejor de los casos, quemarían
+contra los rusos en Ucrania opciones, estrategias y armas de última
+generación que conservaban para caso de una confrontación direc-ta contra los chinos.
+W
+ashington, que era quien llevaba la batuta en la respuesta occidental a
+la invasión rusa, optó por plantear una p roxy war, esto es, una guerra subsidiaria
+en la que, como decía Karaganov, los americanos estarían dis-p
+uestos a combatir «hasta el último ucraniano». En consecuencia, sumi-nistrar
+on gran cantidad de armas modernas, aunque no necesariamente de última
+generación; pero los ucranianos no siempre tenían el necesario en-t
+renamiento para usarlas con total provecho. Y además, estaba muy pre-sente
+el riesgo de que cayeran en manos del enemigo. Precisamente por esa misma
+razón, los rusos no pusieron en liza su armament o más moderno en el primer mes de la inv
+asión.D
+icho de otra forma, los rusos habían acertado de pleno: no, la O
+TAN no iba a defender en primera línea y con «botas» sobre el terreno al
+casi aliado ucraniano por el que había sacado tanto pecho. La Alianza se i
+ba a limitar a una guerra defensiva y por poderes, lo que explica el nervio-s
+ismo que reinaba en Bruselas poco antes de que se produjera la invasión r
+usa. Militarmente, la OTAN no podía hacer otra cosa. Para terminar de mar
+car claramente el terreno, Putin compareció a los cuatro días de co-menzada
+la invasión para anunciar que ponía en estado de alerta a las
+
+---
+
+240
+240U CRANIA 22f
+uerzas de disuasión rusas, esto es, las fuerzas nucleares estratégicas. Eso eran
+palabras mayores, y, en consecuencia, otros cuatro días más tarde la O
+TAN anunció que renunciaba a aplicar una zona de exclusión aérea so-b
+re Ucrania, como pedía el presidente Zelenski. Las reglas del juego ha-bían
+quedado marcadas. Cuando a comienzos de junio los estadouniden-s
+es ofrecieron a los ucranianos sistemas de cohetes móviles de largo alcance,
+los HIMARS (High Mobility Artillery Rocket Systems), fue a cambio
+de que los usuarios se comprometieran a no atacar objetivos en territorio nacional r
+uso para evitar la temida escalada. E
+sa situación incomodaba extraordinariamente a los estadounidenses p
+orque estaban gestionando con una mano a la espalda una guerra que ellos m
+ismos presentaban como trascendental para el mundo. Ello explica las ex-t
+raordinarias rigidez y agresividad con las que se impuso la política de comu-ni
+cación entre sus aliados. La StratCom se reconvirtió pronto en burda pro-p
+aganda de guerra con recursos tan primitivos y vetustos que en ocasiones l
+legaban a provocar reacciones pasionales propias de los primeros momentos d
+e la Gran Guerra de 1914. Los medios de comunicación, incluso los más a
+famados, se convirtieron en pa rrot pressq ue reproducían las informaciones sm
+ás inverosímiles o extremas, sin filtro ni verificación. Para difundir esos con-t
+enidos se recurría muchas veces a un lenguaje jingoísta y decimonónico. Es-t
+as prácticas podían resultar en ocasiones un tanto hilarantes y tampoco eran t
+an nuevas, pues partían del estilo histérico que tanto había abundado duran-t
+e la Guerra Fría, y en conflictos posteriores, contra otros malvados como S
+adam Husein, Milošević, Gadafi, Báshar al-Asad o, por supuesto, Osama b
+in Laden. La individualización del enemigo en su líder permitía desencade-na
+r intensos odios personales, como describió con gran fuerza literaria George O
+rwell en su novela 19 84.  Por otra parte, las reacciones y códigos de la prensa 44c
+omercial de masas en la guerra de 2022 reproducían mecanismos ya ensaya-d
+os durante la guerra del Donbas en su periodo intenso, entre 2014 y 20153 . L
+o que resultó mucho más preocupante en 2022 fue, como explica el p
+eriodista Pascual Lozano en un libro escrito y publicado en los primeros meses
+del conflicto4 ,  la irrupción de la censura, abierta y abusiva, y acom-pañada
+de un neomacartismo que poco tenía que envidiar al original, p
+ersonalizado en el senador Joe MacCarthy en los Estados Unidos de co-3
+Boyd-Barrett (2017).4
+Lozano (2022).
+
+---
+
+C
+INTA AMERICANAA 241 m
+ienzos de la Guerra Fría. El impacto de esas políticas recayó, sobre todo, en l
+as redes sociales, donde se aplicó una censura mayor que la ejercida por c
+ualquier gobierno, haciendo realidad las peores previsiones de Evgeny Mo-r
+ozov allá por 2011, cuando en su libro E l desengaño de internetp revenía de tque
+la red de redes no era por sí misma un instrumento de democratización, s
+ino que también podía fomentar la represión y el conformismo5 . En 2022, a
+poco de comenzada la ofensiva rusa, Twitter, Facebook o YouTube bloquea-r
+on por su cuenta el acceso a medios rusos, dificultaron adrede la búsqueda d
+e contenido o determinados perfiles de usuarios y, lo que resultaba más o
+rwelliano todavía, borraron contenidos históricos o determinadas noticias a
+ntiguas poco favorables al bando ucraniano. Así, Googleh
+izo desaparecer de su buscador cualquier contenido de R ussia T odayy  de ySp
+utnik.  Al parecer, todo ello fue por un requerimiento de la Comisión Eu-r
+opea a Google el 4 de marzo, para que eliminase de su buscador las infor-m
+aciones y portales de estos dos medios. Pero no existe ninguna norma ni ninguna
+ley que amparen y otorguen valor jurídico ni vinculante a un reque-rimiento de la Comisión E
+uropea,explicaba
+el periodista Pascual Serrano6 .  En efecto, en nombre de la lucha contra
+el autoritarismo, en internet y otros ámbitos se censuró y prohibió sin
+cambiar leyes ni disposiciones, sin la intervención de jueces, sin votos en
+parlamentos u órganos de dirección y, desde luego, sin consultar con la ciudadanía o el usuario
+. A
+parte de ello, en las redes se produjeron señalamientos arbitrarios por p
+arte de usuarios que se creyeron con la obligación de «colaborar», incitacio-n
+es al odio y la violencia contra el adversario que se consideraba «legítimo», l
+inchamientos o identificaciones abusivas de «negacionistas» dirigidas contra d
+isidentes sin ninguna orientación política determinada o que opinaban por e
+jercicio de su profesión informativa, como si disentir o pedir explicaciones s
+obre la información oficial suministrada por las autoridades o los grandes m
+edios fuera equiparable a negar que la Tierra fuera redonda o a no aceptar l
+a teoría de la evolución o la validez de las vacunas contra el COVID7 . 5
+Morozov (2012).6
+Serrano (2022): p. 109. Para la información que se comenta sobre la censura en redes sociales y eliminación de contenidos, v
+éanse pp. 103-111.7
+I bid., p . 7.
+
+---
+
+242
+242U CRANIA 22P
+recisamente, este tipo de reacciones parecían estar relacionadas con la
+pandemia. Se había pasado por un estado general de nerviosismo y ago-tamiento
+tras dos años de lucha contra el coronavirus, con confinamientos domiciliarios
+y medidas preventivas a veces arbitrarias, basadas en eviden-cias
+científicas no siempre comprobadas, o decisiones sanitarias quizá no bien
+explicadas. Se impuso un sistema necesariamente arbitrario de con-t
+rol masivo de la población, con el cual esta llegó a colaborar, a veces in-cluso
+con entusiasmo un tanto irrazonable —recordemos el fenómeno de los
+«balconazis»—, y al final quedó un poso de disposición a la obediencia colectiv
+a, con tendencia a seguir acatando a las autoridades sin cuestionar-las
+demasiado, asumiendo incluso opciones populistas un tanto erráticas s
+in mucha relación con las recomendaciones de los expertos sanitarios. Por ejemplo,
+las polémicas decisiones que en algún momento de la pandemia tomar
+on mandatarios como Donald T rump, Boris Johnson o Jair Bolso-n
+aro y que, por entonces, no supusieron desgastes políticos apreciables. O las
+estrategias nacionales ante la pandemia, que variaban considerable-m
+ente entre los diferentes países, echando mano, para justificarlas, de su-puestas mentalidades culturales.
+La
+población sentía que había pasado por una prueba muy dura, con pér
+didas masivas de población, varios millones de muertos cercanos: pa-d
+res, abuelos, hermanos, parejas. Y aunque hubo personas que sufrieron mucho,
+las pérdidas fueron enjugadas finalmente con el alivio de haber sobr
+evivido a la larga y tortuosa prueba. La pandemia colocó a la gente en un
+estado mental que le hizo perder el miedo a nuevas catástrofes sanitarias o
+medioambientales, o incluso a conflictos político-militares serios, como s
+ería el de Ucrania. ¿Guerra nuclear, incluso? En general se había perdido el
+temor social a lo peor, a la Destrucción Mutua Asegurada de los años s
+etenta y ochenta del siglo pasado. Al fin y al cabo, Hiroshima y Nagasaki quedaban
+muy lejos en la historia. Por su parte, los gobiernos también calculaban
+más a la ligera las posibles consecuencias de una escalada mili-t
+ar. Digamos que la última fase de una hipotética Tercera Guerra Mundial tal
+como fue planteada por Hackett en su libro no se veía como probable, p
+ero tampoco generaba un indignado rechazo, cuando se consideraba. ¿
+Birmingham por Minsk? Llegado el caso, quién sabe. Así que a la estra-tegia
+del equilibrio del terror, que hizo posible una Guerra Fría sin pasar al
+actual estado de «guerras calientes», se le perdió el respeto. Lo proclama-ba
+The Economistd esde su portada, edición del 4 al 10 de junio: «U na t
+
+---
+
+C
+INTA AMERICANAA 243 n
+ueva era. Por qué la guerra en Ucrania hace más probable un conflicto nuclear».
+La culpa era, una vez más, de Vladimir Putin. El subtítulo en el e
+ditorial rezaba: «Con sus amenazas para usar la bomba, el presidente ruso anuló
+el orden nuclear»8 .  Ciertamente, los gurúes del espectáculo también habían
+contribuido a ello. En los Estados Unidos, el actor Sean Penn, que e
+ncontró buena acogida a sus propuestas estrafalarias, llegó a sugerir con la
+suficiente claridad que su país era demasiado circunspecto a la hora de usar armas nuclear
+es contra Rusia9 . A
+nivel popular se apreciaba una clara desinhibición hacia ese riesgo, y
+de hecho en las redes sociales se podían encontrar divagaciones jocosas s
+obre una guerra nuclear o hasta propuestas serias basadas en el supuesto d
+esastre tecnológico que, aseguraban especialistas sin identificar, era el ar-mamento
+del enemigo: «Los expertos de la OTAN aseguran que la mitad d
+e los misiles balísticos rusos están tan obsoletos, que explotarían den-t
+ro del territorio ruso en caso de una guerra nuclear. Es una potencia con pies
+de barro», escribía en T witter un tal @UcranianoArtem el 4 de febre-r
+o, cuando ni siquiera había comenzado la guerra. L
+legados a este punto, la cuestión era: ¿cómo se había llegado a esa situación?
+La sobrerreacción de las potencias de la OTAN, con los Estados U
+nidos al frente, parecía denotar que el ataque ruso de febrero les había pillado
+por sorpresa. O que, al menos, no se había articulado una respues-ta
+militar demasiado eficaz. Poner el énfasis en una estrategia comunicati-v
+a tan basada en el triunfalismo y el control reflejaba problemas de fondo en
+el campo de batalla que se intentaban tapar con puñetazos en el pecho; incluy
+endo la bravuconada de aceptar el envite a una escalada nuclear, siempr
+e dejando claro, eso sí, que la culpa era del otro. L
+a clave estaba en el juego del engaño y en la desproporción con la q
+ue se asumió. A lo largo de la primavera de 2022 se fue constatando que l
+a invasión rusa se había puesto en marcha camuflada tras una verdadera estrategia
+de maskir ovka, que los angloamericanos denominan deception, esto
+es, el engaño militar. El planteamiento ruso en este caso consistió en r
+eforzar por pasiva el pensamiento enemigo para actuar más tarde de una m
+anera diferente a lo que esperaba y anticipaba, golpeándolo por sorpresa 8
+«A new nuclear era», en The E conomist, p . 9, vol. 443, n.º 9299, 4-10 de junio de 2022.9
+«Actor Sean Penn abierto a usar armas nucleares contra Rusia», en P eriodismo Alternativo, 10 de abril de 2022 [consultable en r
+ed].
+
+---
+
+244
+244U CRANIA 22y
+dejándolo desconcertado y desmoralizado. Dicho de otra manera, los r
+usos fomentaron el sesgo cognitivo de confirmación de sus adversarios en U
+crania. Primero, desplegando un número significativo de tropas en la f
+rontera de Ucrania —en torno a los cien mil hombres con armas pesa-das—
+ya desde abril de 2021. La situación mejoró en junio con la retirada p
+arcial de esas tropas, pero pasado el verano volvieron a detectarse concen-traciones a par
+tir de octubre y, sobre todo, noviembre. E
+l origen de estos amenazadores movimientos de tropas parecía estar r
+elacionado con el relanzamiento de la tensión entre Rusia y los Estados U
+nidos a raíz de la salida de T rump de la Casa Blanca, a finales de enero, y
+la decisión de Biden de borrar las trazas de la política de acercamiento a M
+oscú por parte del presidente saliente. Ese primer gesto ruso retroali-mentó
+las presiones del ejecutivo ucraniano. También en abril, el siempre polémico
+diplomático ucraniano Andrej Melnyk, enviado especial a Ale-mania,
+declaró que si su país no era admitido en la Alianza Atlántica, buscaría
+equiparse con armas nucleares. «O somos parte de una alianza como
+la OTAN y también contribuimos a hacer esta Europa más fuerte... O
+solo tenemos una opción, que es armarnos», dijo Melnyk a la radio D
+eutschlandfunk el juev es 15 de abrilk10 . Estas
+declaraciones, por el hecho de haberse dado en Alemania por esas
+fechas, podrían haber estado relacionadas con la inminente finaliza-c
+ión, en junio, de la primera línea del gasoducto Nord Stream 2. Ese p
+royecto suscitaba la animadversión de Ucrania, Polonia, los Países Bálti-c
+os y los Estados Unidos, porque suponía un incremento significativo del v
+olumen de gas ruso a Alemania, y un abaratamiento del mismo, dado que
+no circulaba a través de ningún intermediario terrestre de entre los países del Este, y por ello no se grav
+aba con tarifas de tránsito. E
+n junio pareció que se relajaba la tensión quizá como consecuencia d
+e que en mayo la administración Biden retiraba las sanciones a la empre-sa
+constructora del Nord Stream. Pero para entonces Kiev desplegaba ya una
+política abiertamente nacionalista y dura. El 19 de mayo Zelenski firmó
+un decreto que prohibía la utilización del ruso en todas las esferas de
+la vida pública, imponiéndose como única lengua oficial el ucraniano. M
+uy pocos días antes se había aplicado el arresto domiciliario al oligarca y 10
+«Ucrania está considerando equiparse con armas nucleares para “garantizar” su defensa», por O
+liver T owfigh Nia, en AA —A nadolu Agency, 15 de abril de 2021 [consultable en r ed].
+
+---
+
+C
+INTA AMERICANAA 245 líder
+de la oposición Víktor Medvedchuk. Y en noviembre, a la par que c
+recía la tensión con Rusia, salía a la luz el nombre de Zelenski en los Pa-p
+eles de Pandora y caían las estimaciones de apoyo social al presidente (
+que en enero de 2022 solo eran de un 23%). Como por reacción, acusó al
+oligarca Rinat Ajmetov de estar implicado en un golpe de Estado contra el
+gobierno, organizado desde Rusia11 .  Ese mismo mes dio un giro favora-ble
+hacia el ultranacionalismo al nombrar a Dimitró Yarosh como conse-j
+ero especial del jefe del Ejército ucraniano (2 de noviembre); Yarosh había sido
+líder de P ravy Sektory  uno de los protagonistas en el Euromaidan,rcomo
+punta de lanza de los ultranacionalistas que rechazaron todo com-p
+romiso con Yanukovich y fueron decisivos en la toma violenta del poder e
+n febrero de 2014. Zelenski estaba lanzado: en diciembre pidió una ac-c
+ión preventiva contra Rusia y en febrero ascendió de nuevo al ultra Ya-r
+osh a comandante del Ejército de Voluntarios. P
+ero si bien Zelenski contribuyó a que se tensara la cuerda en aquellos momentos
+tan graves, parece evidente que Putin ya tenía decidido que iba a
+lanzar su «operación militar especial» desde hacía tiempo. La logística y l
+os preparativos de una operación de tal magnitud no se improvisan de una
+semana para otra, y menos si se escoge para el inicio del ataque una fecha
+simbólica de tanto fuste como el aniversario de la victoria del Euro-maidan.
+O sea, que la maskir ovkar usa ya comenzó con la guerra de ner-av
+ios a que fueron sometidos europeos y estadounidenses —los ucranianos no
+parecían estar tan nerviosos12 —  al menos desde otoño de 2021. El 15 d
+e febrero se anunció desde el Ministerio de Defensa ruso que se retiraban a
+lgunas tropas de las fronteras con Ucrania, lo cual se quiso ver desde Oc-cidente,
+por parte de los más optimistas, como una señal de desescalada. N
+adie quería creer que los rusos se lanzarían a la invasión, y cuando al fi-nal tuv
+o lugar, todos estaban desconcertados y con los nervios rotos.P
+recisamente por ello tuvo tanto éxito la continuación de la maskir ov-ka
+h aciendo creer a los expertos occidentales que se intentaba tomar Kiev ao
+Járkov, las grandes ciudades ucranianas, cuando se estaba utilizando la p
+resión allí para concentrar fuerzas que los ucranianos tuvieron que sacar d
+e los frentes este y sur, donde los rusos avanzaron sin tanto problema. 11
+«El presidente de Ucrania asegura que se planea un golpe de estado respaldado Rusia en di-ciembr
+e», por María R. Sahuquillo, en E l País, 26 de no viembre de 2021 [consultable en red].12
+«Keep calm and carry on», The E conomist, 8-14 de ener o de 2022, pp. 17-18.
+
+---
+
+246
+246U CRANIA 22T
+ras la amarga experiencia de la invasión rusa, el 24 de febrero había una muy
+fundada tendencia en Europa y los Estados Unidos a creer que la operación
+le había salido mal a Putin y que la amenazante potencia rusa no
+era sino un gigante con los pies de barro. Por eso el anuncio oficial ruso d
+e su retirada, el 29 de marzo, fue recibido con escepticismo y, cuando se l
+levó a cabo, se explicó como una muestra más de la incapacidad rusa para ganar
+la guerra. El invasor estaba exhausto, la segunda parte de la matriz H
+ackett parecía a un paso de cumplirse: los rusos se derrumbaban en su pr
+opia incapacidad. La recuperación del territorio se presentó como una victoria
+de ofensiva de las fuerzas ucranianas y la maskir ovkac ontinuó por as
+u propia inercia, a pesar de que los rusos empezaban a desvelar cuál había sido su plan.
+La
+siguiente fase de la guerra, anunciada por Moscú, se centró en el D
+## onbas y comenzó más o menos en torno al 1.º de abril. El objetivo era triple
+de un lado, recuperar al completo el territorio de los antiguos óblast d
+e Lugansk y Donetsk, reconvertidos desde 2014 en repúblicas populares. Los
+medios de comunicación occidentales y buena parte de los analistas se quedar
+on en este objetivo, la conquista territorial; pero el esfuerzo ruso iba más allá.
+E
+n segundo lugar, muy importante, se trataba ahora de destruir el máximo
+número posible de unidades de combate ucranianas, incluido su a
+rmamento. Destrucción completa de la maquinaria militar ucrania-n
+a, como había explicado también Karaganov, hacerla picadillo. De forma que
+quedara aún más en evidencia la incapacidad de la OTAN para defen-d
+er a su aliado y los ucranianos optaran por la neutralidad. Para ello los r
+usos recurrieron a las tácticas que ya habían utilizado durante su inter-v
+ención en el Donbas, en 2014 y 2015: los BTG o GTIA, grupos de combate
+autónomos de entidad batallón configurados en base a diversos tipos
+de armas para cada misión concreta. Los BTG rusos integraban una gran
+potencia de fuego artillero automotriz. Con ella podía batir al enemi-g
+o en profundidad gracias a los modernos sistemas de puntería y control de
+tiro, que incluían un amplio uso de drones, tal como habían hecho un par
+de años antes los azeríes en la guerra del Alto Karabaj. Los estadouni-denses,
+muy pagados de su querencia por buscar la victoria desde el aire —como
+habían hecho en Kosovo, Irak y Libia—, no terminaban de en-tender
+que en aquella guerra los rusos prescindieran tanto de la aviación y sacar
+on la conclusión errónea de que los restos de la aviación ucraniana o
+
+---
+
+C
+INTA AMERICANAA 247 sus
+defensas antiaéreas habían desempeñado un papel destacado en ello. T
+ambién habían sido testigos de cómo los rusos habían utilizado su avia-ción
+táctica en Siria y pensaban que, sencillamente, en Ucrania no podían desplegarla.
+En realidad, como los azeríes, no la necesitaban asiduamente y
+preferían mantener en la reserva un arma tan costosa cuando la artillería d
+e largo alcance, los lanzacohetes múltiples (LRM) o los misiles balísticos de cor
+to alcance (SRBM) podían hacer su trabajo. A ello añadían ahora ar-mas
+de nueva generación, como el BMP-T R amka, q ue en la prensa occi-dental
+fue bautizado como T erminator: un vehículo de combate pensado para
+el combate urbano. Las «guerras calientes» en el Este, desde Georgia e
+n 2008 hasta Ucrania en 2022, pasando por Alto Karabaj en 2020, estaban cambiando —y a v
+eces recuperando— unos cuantos conceptos tácticos.E
+l tercer objetivo en esa segunda fase de la guerra de Ucrania era con-tinuar
+con la destrucción de las infraestructuras ucranianas, de forma sis-t
+emática e implacable: las fábricas, lo que quedaba de la industria militar —por
+ejemplo, en Járkov y Dnipro—, las comunicaciones, subestaciones eléctricas,
+puentes, los edificios administrativos. Incluso la maquinaria agrícola,
+capturada y llevada a Rusia, o las reservas minerales, entre ellas el litio,
+de la mayor importancia en la industria del automóvil eléctrico13 . Kiev
+incluso acusó a Rusia de exportar por su cuenta, desde Crimea, el trigo
+ucraniano recolectado en sus zonas de control14 .  Y por cierto que U
+crania, tercer exportador mundial de trigo y país productor de la mitad del
+comercio mundial de semillas de girasol y aceite, vio su producción seriamente
+comprometida por la guerra, y, por si fuera poco, sus cuantio-sas
+exportaciones, bloqueadas por la imposibilidad de embarcar el trigo en l
+os puertos. A comienzos de junio se calculaba que las exportaciones ucra-nianas
+de trigo se habían reducido en un 40%, con riesgo de generar una crisis
+alimentaria entre sus clientes habituales, muchos de ellos países po-b
+res del Magreb15 .  A mediados de ese mismo mes se calculaba que desde e
+l inicio de la invasión, el mercado mundial había dejado de recibir 7 millo-nes
+de toneladas de trigo, 14 millones de toneladas de maíz y 3 millones 13
+«La riqueza en litio de Ucrania: un incentivo para la invasión rusa», por Gina T osas, La V
+anguardia, 22 de febr ero de 2022 [consultable en red].14
+«Embajador ucraniano en T urquía dice que Rusia exporta trigo robado», en D W — Deutsche W
+elle, 3 de junio de 2022 [consultable en r ed].15
+«Las exportaciones de trigo se reducen un 40% y disparan el proteccionismo», por Xavier M
+ás de Xaxás, en L a Vanguardia, 3 de junio de 2022 [consultable en r ed].
+
+---
+
+248
+248U CRANIA 22de
+toneladas de aceite de girasol, mientras de 25 a 30 millones de tonela-das continuaban almacenados en U
+crania, sin salida16 . E
+n el campo de batalla del Donbas, las operaciones militares arranca-r
+on al ralentí porque los rusos perdieron todavía un mes y medio en do-blegar
+la resistencia de las tropas ucranianas de élite —básicamente, Infan-t
+ería de Marina y combatientes del Regimiento Azov— parapetadas en los túneles
+de la acería Azovstal en Mariúpol. Como habían hecho sus enemi-gos,
+en esta ocasión los ucranianos crearon aquí un polo de resistencia que f
+ijó sobre el terreno a unidades experimentadas rusas que no se podían utilizar
+más al norte, donde se llevaba a cabo el esfuerzo principal de la o
+fensiva. Pero Azovstal cayó el 17 de mayo y a partir de ese momento los ucranianos
+empezaron a notar la presión de la «picadora de carne» rusa, a pesar
+de la riada de armas europeas y americanas que recibieron, así como de v
+oluntarios internacionales, mejor o peor entrenados. E
+n consecuencia, las unidades ucranianas empezaron a encajar fuertes p
+érdidas. El 28 de mayo, un reportero australiano mostraba en Twitter un inter
+## cambio de mensajes con un combatiente ucraniano en el área de Ly-man
+de los 60 componentes de la unidad, solo quedaban cuatro17 .  A primer
+os de junio, el mismo presidente Zelenski admitió que cada día se p
+erdían entre diez y sesenta soldados en el frente del Donbas18 ,  mientras desde
+allí llegaban testimonios alarmantes: hacia finales de ese mismo mes,
+el capitán al mando de una compañía del 503 Batallón de Infantería d
+e Marina explicaba que el 80% de sus hombres —todos ellos soldados p
+rofesionales— eran bajas, entre muertos y heridos19 .  T odos derrochaban v
+alor, pero la potencia de fuego que exhibían los rusos era imbatible. T
+anto era así que los europeos empezaron a considerar la reducción del
+flujo de armas pesadas en dirección a Ucrania. En los almacenes de los países
+del Este, antiguos miembros del Pacto de Varsovia, ya no quedaba material
+pesado de origen soviético. Los países que poseían armas de dise-ñ
+o propio creían que no tenía utilidad cederlas a los ucranianos, dado que no
+estaban entrenados para manejarlas adecuadamente y podían caer con 16
+«Polonia y Rumanía, los otros obstáculos para exportar grano desde Ucrania», por Cristina G
+ironés, en A ra, 19 de junio de 2022 [consultable en r ed].17
+@NeilHauer, 1 de junio de 2022, 3:49 pm.18
+«Zelenski admite que Ucrania pierde entre 60 y 100 soldados al día», D W — Deutsche Welle, 1 de junio de 2022 [consultable en r
+ed].19
+«Ukraine war: 80% of troops killed or injured in elite military unit, says commander», en S
+ky News, 25 de junio de 2022 [consultable en YouT ube].
+
+---
+
+C
+INTA AMERICANAA 249 facilidad
+en manos rusas, donde serían estudiadas y copiadas. Eso fue lo que
+sucedió, por ejemplo, con los obuses franceses CAESAR, algunos de los
+cuales fueron capturados y enviados a las factorías rusas Uralvagonza-v
+od para su estudio20 .  En cuanto al armamento más veterano, ponerlo en c
+ondiciones de combatir podía llevar meses, como habría sido el caso de a
+lgunos viejos carros de combate Leopard-2, de origen alemán, que el go-b
+ierno español especuló con enviar a Ucrania21 aa.  De otra parte, los rusos h
+abían logrado destruir envíos de ese material militar internacional incluso a
+ntes de que llegara al frente mediante el uso de misiles de crucero22 . E
+l 4 de julio, las tropas rusas y de las Repúblicas Populares del Donbas tomar
+on la localidad de Lisichansk, cerraron la bolsa de resistencia ucra-n
+iana en Severodonestk y completaron la captura del óblast de Lugansk. Con
+ello terminaba un episodio de la segunda fase de la invasión y las t
+ropas rusas se encararon hacia las localidades de Sloviansk y Kramatorsk, ya en el D
+onetsk.E
+n plena tormenta política por la dimisión forzada de Boris Johnson, y
+mientras Joe Biden mostraba su enésimo deterioro cognitivo ante las cámaras,
+The Economist dedicaba su portada del 2 de julio a «Cómo ganar una
+guerra larga», dando por sentado que «Ucrania y quienes la respaldan tienen
+los hombres, dinero y material para superar a Mr. Putin» y su vani-dad
+(sic),  pasando de puntillas sobre el hecho de que esos «patrocinadores» intentaban
+afrontar la crisis económica que se les venía encima. Porque, mientras
+la situación en el frente iba a peor, la guerra de las sanciones tampoco par
+ecía estar teniendo efecto en el esfuerzo de guerra ruso. Este
+era un capítulo que en los primeros momentos pareció ligado dir
+ectamente a la guerra de Ucrania pero que pronto cobró vida propia, tanto
+por la forma en que afectó a los países sancionadores como por sus efectos
+en la economía global. De hecho, como ya se explicó, incluso antes de
+la guerra, los Estados Unidos y el mismo gobierno ucraniano agitaban a
+nte Moscú la amenaza de sanciones. Una muy específica era la de detener la
+puesta en marcha del gasoducto Nord Stream 2. A comienzos de febre-20
+«“It’s Not Afghanistan”: Ukrainian Pilots Push Back on U.S.-Provided Drones», por Jack De
+tsch, F oreign Policy, 21 de junio de 2022 [consultable en r ed].21
+«Was wurde aus den spanischen Panzerlieferungen?», por Melanie Amman, S piegel, 1 0 de junio de 22 [consultable en r
+ed].22
+«Russian military says it destroyed Western arms consignment in Ukraine», A rabNews, vía R
+euters, 21 de mayo de 2022 [consultable en red].
+
+---
+
+250
+250U CRANIA 22r
+o, cuando faltaban tres semanas para el comienzo de la guerra, el presi-d
+ente Biden se comprometió muy en firme a cerrar esa vía si Rusia atacaba a
+Ucrania. «Les prometo que somos capaces de hacerlo», concluyó de ma-nera
+tajante23 .  Esa afirmación incluía la confiada interiorización de que Alemania,
+el mayor cliente del gas ruso en Europa, y que había puesto grandes
+esperanzas en el proyecto Nord Stream 2, con capacidad de sumi-n
+istro para 26 millones de hogares europeos, iba a plegarse sin más a los planes
+de Washington. Y, por supuesto, Berlín lo hizo. T ras iniciarse la i
+nvasión rusa, el canciller alemán Olaf Scholz suspendió la aprobación del gasoducto, que se había terminado de tender en septiembr
+e de 2021.La
+primera ronda de sanciones contra Rusia en febrero de 2022 fue dura,
+aunque esa potencia ya llevaba encajándolas desde la anexión de C
+rimea y la guerra del Donbas en 2014, y cada vez estaba mejor preparada para
+afrontarlas. La medida estrella de todo el paquete consistió en impe-d
+ir que el Banco Central de Rusia pudiera recurrir a sus reservas de divisas en
+el extranjero. Fue una decisión conjunta de las grandes jurisdicciones mundiales,
+de la UE, Estados Unidos, el Reino Unido, Canadá, Japón, A
+ustralia y Suiza. Supuso la inmovilización de 640.000 millones de dóla-r
+es que, se consideraba, eran el escudo ruso contra las sanciones económi-c
+as. El ministro de Finanzas de Francia, Bruno Le Maire, exclamó ufano: «
+Vamos a provocar el colapso de la economía rusa»24 . E
+n los primeros momentos pareció que, en efecto, iba a ser así. El í
+ndice bursátil ruso se desplomó en un 33,28% ya el primer día de la in-v
+asión. Las bolsas de valores de Moscú y San Petersburgo suspendieron sus a
+ctividades y la cotización del rublo se desplomó. Los cajeros automáticos s
+e vaciaron y la población hizo largas colas para retirar efectivo. P arecía que
+el fondo soberano ruso estaba en riesgo de desaparición mientras la hiperinflación estaba al acecho
+. A
+la primera ronda de sanciones siguieron una segunda (25 de fe-b
+rero) y una tercera (2 de marzo), en la cual se restringió el acceso al si
+stema SWIFT a siete bancos rusos. Esas siglas, acrónimo de Society for W
+orld Interbank Financial T elecommunication, esto es, Sociedad para 23
+«Rusia y Ucrania. Alemania suspende la aprobación de Nord Stream 2: ¿Qué papel juega el polémico gasoducto en la crisis?»,
+BBC N ews, 22 de febr ero de 2022 [consultable en red].24
+«T odas las sanciones a Rusia de un vistazo. Así actúa la UE para estrangular la economía de P
+utin», por Borja Andrino, Kiko Llaneras, Montse Hidalgo, Daniele Grasso y Yolanda Clemen-te, en
+E l País, 25 de mar zo de 2022 [consultable en red].
+
+---
+
+C
+INTA AMERICANAA 251 la
+s Comunicaciones Financieras Interbancarias Internacionales, aludía a un
+grupo cooperativo, fundado en Bruselas en 1973, que había estable-c
+ido un lenguaje en común para las transacciones financieras, un siste-m
+a de proceso de datos compartidos y una red de telecomunicaciones mu
+ndial25 .  Este se consideraba un golpe particularmente duro, así como l
+a prohibición de invertir en proyectos del Fondo Ruso de Inversión d
+irecta. A ello siguieron una cuarta (15 de marzo), una quinta (8 de a
+bril) y una sexta rondas (31 de mayo), coincidiendo con los 100 días d
+esde el comienzo de la invasión. En este proceso se entrelazaban los t
+orpedos contra el entramando de intercambios comerciales entre Rusia y
+los países occidentales y las vías de inversión en Rusia con sanciones su
+puestamente aleccionadoras, de cara a la galería, que no solo se exten-d
+ieron al mismo Vladimir Putin sino también a un total de 1.158 polí-t
+icos, oligarcas, militares, propagandistas y familiares de todos ellos, in-cluy
+endo la novia del presidente; o la hija, hijo y mujer de su secretario d
+e prensa.C
+on el tiempo, las políticas de sanciones, ya lideradas por los Esta-d
+os Unidos en otros conflictos de la Posguerra Fría, se habían terminado p
+or convertir en un negocio en sí mismo, que alimentaba a un ejército d
+e asesores, cabilderos, financieros o abogados dispuestos a sacar tajada, p
+ara sí o sus clientes, dentro o fuera del país. En el caso de las sanciones c
+ontra Rusia, terminaron imponiendo su entusiasmo a los países del E
+ste más cercanos a las posiciones de los Estados Unidos, es decir, los de l
+a Nueva Europa, y en este caso, más en especial, los afines a una posible i
+ntegración en I ntermarium.  Las potencias del núcleo de la Unión Europea, y
+más especialmente Alemania, demostraron un fervor mucho más ma-t
+izado, sobre todo conforme se iba constatando que el impacto de las s
+anciones en la economía rusa era menor del esperado . S i la idea era  d
+esencadenar su colapso y provocar una revolución o un golpe de Esta-d
+o en Moscú, conforme pasaban los días se iba viendo que nada de eso s
+ucedía, que la ofensiva rusa continuaba y que Putin seguía al frente de t
+odo ello. Y
+a en abril, ese mes bisagra entre la primera y segunda fases de la guerra, e
+mpezaron a escucharse voces que denunciaban lo que todavía muy pocos s
+e negaban a admitir: que el rey estaba desnudo. La cotización del rublo 25
+Véase, para esta definición, E conomipedia, entrada: SWIFT [consultable en r ed].
+
+---
+
+252
+252U CRANIA 22h
+abía rebotado y desde un artículo tan sincero como mordaz del F inancial Ti
+messe  explicaba el porqué: «Las importaciones [rusas] han quedadosaplastadas,
+las tasas de interés se han duplicado, se han implementado es-trictos
+controles de capital y las ventas de petróleo y gas de Rusia signifi-can
+que continúa acumulando ganancias extranjeras. Esos ingresos son absolutamente monstr
+uosos»26 . Comenzaba
+a ponerse de manifiesto que las sanciones financieras y comer
+ciales no iban a detener a los rusos. Es más, a partir del sexto paque-te
+de sanciones, fuentes europeas no especificadas alegaban ya que: «Es difícil
+especular sobre futuros paquetes porque desde el principio hemos visto
+que cuanto más daño causan más difícil es llegar a un acuerdo»27 . D
+icho de otra forma, ya cerca del verano el sentido último de las sanciones s
+e había pervertido: ya no se veían como un instrumento para colapsar la e
+conomía rusa y detener la agresión, sino como un estorbo para llegar a algún acuer
+do con los rusos.¿Cómo
+se había llegado a esta situación? En primer lugar, porque, en efecto,
+las sanciones financieras no terminaban de funcionar contra Rusia. N
+o es que no hicieran daño, por supuesto. Pero no el suficiente como para detener
+la ofensiva rusa. Y a cambio, estaban perjudicando la economía y las
+finanzas occidentales. Era un efecto búmeran o «tiro en el pie» que ya se
+había temido desde un principio. Un ejemplo: en previsión de lo que finalmente
+terminó sucediendo, la intervención de los 640.000 millones de
+dólares en reservas que tenía depositados en bancos occidentales, Rusia había
+estado incrementando sus reservas en oro y divisas extranjeras ya desde
+2014, cuando sufrió las primeras sanciones serias. En esa estrategia financiera
+alternativa al dólar US, los yuhanes chinos fueron los protago-nistas.
+Así, en enero de 2022, China ya era el mayor tenedor de reservas en
+moneda extranjera del Banco Central ruso28 .  No fue la única manio-bra
+de cobertura. Las tarjetas de crédito China UnionPay (CUP) sustitu-y
+eron en los bancos rusos a las Visa, MasterCard o American Express, que a
+partir del 24 de febrero habían dejado de operar en territorio ruso, como 26
+« Whisper it quietly... but Russia’s financial system seems to be recovering from the initial sanction s
+hock», por Robin Wigglesworth, F inancial Times, 7 de abril de 2022 [consultable en red].27
+«Sanciones contra Rusia | Seis rondas y más de un millar de políticos, militares, oligarcas y p
+ropagandistas sancionados», por Silvia Martínez, en E l Periódico, 3 de junio de 2022 [consul-table en r
+ed].28
+Serrano (2022): p. 79.
+
+---
+
+C
+INTA AMERICANAA 253 par
+te de las sanciones. A partir de entonces, 600.000 terminales de pago y 100.000 cajer
+os automáticos rusos aceptan las UnionPay29 yy. P
+or supuesto, ese tipo de sanciones tuvieron sus efectos en Occidente. P
+rimero, directamente financieras: las compañías y bancos de todo tipo que
+suspendieron sus operaciones en el enorme mercado ruso tuvieron p
+érdidas, que nadie les compensó. Los rusos dejaron de pagar créditos e
+importaciones que, total, ya nadie les iba a servir: más pérdidas para l
+as arcas occidentales. En mayo, los bancos europeos sumaban cerca de 10.000
+millones de dólares de pérdidas debido al efecto búmeran de las s
+anciones. No es que fuera una cantidad tan elevada en ese ámbito, pero algunas
+empresas quedaron al borde de la bancarrota al no poder asumir e
+l daño. Y aunque los Estados Unidos se llevaron las manos a la cabeza, los r
+usos se hicieron con los activos de empresas occidentales que habían abandonado
+su mercado, dejando en algunos casos a trabajadores locales e
+n paro. ¿Qué iban a hacer? Al fin y al cabo, esos mismos occidentales habían
+intentado hundirles su economía, convirtiendo en papel mojado acuer
+dos, contratos y compromisos que, en principio, estaban amparados por el der
+echo internacional. Eso
+fue en contra de la imagen y el prestigio de las finanzas occiden-tales.
+Los negocios se basan, sobre todo, en la confianza mutua; y la segu-ridad
+jurídica que respaldaba los acuerdos entre Rusia y sus socios comer-ciales
+europeos y estadounidenses saltó por los aires de la noche a la m
+añana. «T ras el uso sancionador que han dado Estados Unidos y la UE a
+las reservas en divisas que los países puedan tener en dólares o euros, y en
+bancos de esos países, muchos Gobiernos pensarán que no es seguro t
+ener sus reservas en esas monedas, y mucho menos en los países occiden-tales»,
+razonaba Pascual Serrano a los dos meses de haber comenzado la guerra
+30 .  Sobre todo, si esos mismos países occidentales amenazaban con sancionar a su v
+ez a terceros que comerciaran con Rusia. E
+n realidad, los Estados Unidos estaban experimentando las dificulta-d
+es que había tenido Napoleón Bonaparte para aplicar el bloqueo conti-nental
+contra Gran Bretaña en 1806, prohibiendo el comercio de cual-q
+uier país europeo con las Islas. No tardó mucho el Gran Corso en per
+catarse de que la economía francesa también se resentía de tal estrate-29
+I bid., p p. 79-80.30
+Ib id. dd
+
+---
+
+254
+254U CRANIA 22gia,
+apenas cuatro años más tarde. Y los problemas que suponía obligar a l
+os neutrales a cumplirlo derivaron en otros líos estratégicos, como la in-v
+asión de Portugal, meterse de cabeza en el hervidero español y atacar a R
+usia. Y a partir de ahí, la historia de las sanciones comerciales y financie-ras
+como arma de guerra ha tendido a demostrar que los resultados suelen ser
+más ineficaces que otra cosa. Sobre todo los bloqueos más aparatosos y p
+rolongados. La economía de la pequeña y aislada Cuba lleva más de se-senta
+años sobreviviendo a un embargo muy duro; qué decir de Irán, tan o
+más excluido que Rusia y cuyo régimen de los ayatolás sigue en pie, d
+esafiante. Más bien, han sido los países occidentales los que se han resen-tido
+de las sanciones cuando se les han aplicado: recordemos el embargo petr
+olífero árabe de 1973, que provocó un choque energético que contri-buy
+ó a llevarse por delante al keynesianismo.E
+n definitiva, el macroestudio del economista estadounidense Gary C
+lyde Hufbauer demuestra que, históricamente, sobre más de 200 sancio-nes
+decretadas por las potencias occidentales, únicamente un 34% obtu-v
+ieron resultados favorables, y eso solo parcialmente. La tasa de éxito de-pendió mucho del r
+esultado perseguido.I
+ntentos que solo buscaban obtener objetivos modestos y limitados, como la l
+iberación de un preso político, tuvieron éxito la mitad de las veces. El propósi-t
+o de conseguir cambios de régimen —por ejemplo, desestabilizando a un líder e
+n particular o presionando a un autócrata a democratizar—, menoscabar el p
+otencial militar de un adversario extranjero, o forzar sus políticas de manera i
+mportante, culminaron bien en alrededor del 30 por ciento de los casos. Los e
+sfuerzos para interrumpir aventuras militares relativamente menores tuvieron é
+xito en solo una quinta parte de los casos en que ese era el objetivo31 . M
+ás allá de las sanciones comerciales y financieras impuestas a Rusia a par
+tir del 24 de febrero, el intento de bloqueo energético a esa potencia mer
+ece capítulo aparte. Esa operación hacía ya tiempo que se perseguía: formaba
+parte de los objetivos geopolíticos de los Estados Unidos en Eu-r
+opa desde hacía años; y las amenazas del presidente Biden contra el ga-s
+oducto Nord Stream 2 anteriores al desencadenamiento de la invasión r
+usa no eran sino la punta, muy pequeña, del iceberg. Ya en 1960, la p
+residencia de John F . Kennedy trató de obstaculizar el primer oleoducto 31
+Hufbauer et al. (2007): pp . 158-159.
+
+---
+
+C
+INTA AMERICANAA 255 s
+oviético hacia Europa Occidental, el bautizado como D ruzhba, mediante un
+embargo sobre la venta de tuberías de gran diámetro a la Unión Sovié-t
+ica. A pesar de ello, solo se retrasó en cuatro años el flujo de petróleo, que l
+legó a ser de millón y medio de barriles de petróleo/día tras un recorrido de
+9.000 kilómetros. En los años ochenta, la presidencia de Reagan volvió a
+intentar el cercenamiento de esa fuente actuando contra el nuevo oleo-ducto,
+el B ratstvo.  En aquella ocasión, Washington prohibió las ventas de alta
+tecnología de hidrocarburos a la Unión Soviética. Pero, por entonces, los
+gobiernos de la RFA, Gran Bretaña, Francia e Italia declararon ilegales las
+sanciones estadounidenses en sus territorios y el nuevo oleoducto fue terminado
+en 1984. Desde entonces, e incluso durante parte de la guerra d
+el 2022, Ucrania ha seguido cobrando unos 2.000 millones de dólares anuales
+en concepto del gas ruso hacia Europa. Al final, solo las tropas r
+usas de ocupación interrumpieron parcialmente ese tránsito32 .  La sal tra-gicómica
+de esta historia es que, ya en 1987, Antony Blinken, el secretario de
+Estado de la presidencia Biden, el «verdugo» del Nord Stream 2, publi-c
+ó un libro alertando de los peligros y problemas de las políticas sanciona-doras
+estadounidenses contra el flujo de hidrocarburos rusos hacia Euro-pa.
+La obra llevaba como título: A liado contra aliado: América, Europa y el oleoducto
+siberiano33 .  Allí se concluía que el embargo estadounidense de e
+ntonces resultó ser más una sanción contra los mismos Estados Unidos y los aliados occidentales que contra la U
+nión Soviética34 . A
+la altura de 2022, la idea central de la estrategia sancionadora era muy
+sencilla: dañar la economía del agresor y su esfuerzo de guerra me-diante
+la cancelación del suministro de hidrocarburos procedentes de Ru-s
+ia. El problema era que, a fecha del comienzo de la guerra, ascendía al 37%
+del gas que consumía la Unión Europea, el 25% del petróleo y el 20%
+del carbón. Liquidar ese abastecimiento suponía tres problemas para una
+parte del Viejo Continente: buscar nuevos proveedores, negociar nue-v
+os precios convenientes, teniendo en cuenta que los suministros rusos, p
+or la proximidad geográfica y la existencia de toda una red de oleoductos 32
+«El presidente del mayor grupo energético de Ucrania: “Putin manipula al alza los precios del
+gas desde 2021”», por Carlos Segovia, E l Mundo, 19 de marzo de 2022, para la justificación d
+e que la misma Ucrania siguiera permitiendo el paso del gas ruso hacia Europa incluso duran-te la guerra.
+33
+Blinken (1987).34
+Resumen de todo ello en un breve videorreportaje: Mirko Casale, «China culpa a Estados U
+nidos y la OTAN por el conflicto en Ucrania», canal Ahí les Va( Odysee), 2 de abril de 2022.a
+
+---
+
+256
+256U CRANIA 22se
+obtenían al mejor precio posible, y hacer frente al caso particular de Alemania,
+obligada a renunciar a las multimillonarias inversiones ya reali-zadas
+en el tendido del Nord Stream 2 y replantearse los contratos firma-d
+os por veinticinco años. Además, habría que gestionar los problemas so-ciales
+derivados del choque energético, que iba a impactar en los bolsillos de
+la población europea. Y, por último, anticiparse a los rusos, que podían cor
+tar el suministro por su cuenta, adelantándose a la ejecución de las tres fases
+anteriores y desbaratando toda la jugada con unas consecuencias di-fíciles de pr
+ever.T
+odo ello constituía una operación muy delicada que debería gestio-narse
+con mucha mano izquierda, habida cuenta de las diversas sensibili-d
+ades y necesidades energéticas de los diferentes socios de la UE. De he-cho,
+tan solo un mes después de que se aplicaran las primeras sanciones, p
+atronal y sindicatos alemanes firmaron una declaración conjunta contra el e
+mbargo al gas ruso por temor a una desindustrialización del país35 .  Efecti-v
+amente, Alemania no se podía permitir una desconexión a corto plazo de l
+os suministros rusos, puesto que ello llevaría al colapso de su economía, a
+rrastrando de paso al resto de los socios de la Unión Europea. Por supuesto, l
+os rusos estaban perfectamente al corriente de esa situación. A
+sí que conjuntar, coordinar y conjugar toda esa operación para que s
+aliera bien era una rarea titánica, máxime teniendo en cuenta las premuras de
+la guerra, la posibilidad de que sucediera cualquier cosa imprevisible y que
+se lograra mantener apaciguada a la propia población. De ahí las dosis elev
+adas de propaganda de guerra, de tono a veces amarillista, en medios de
+comunicación y redes sociales, con el consiguiente férreo control de la d
+isidencia. Desde el minuto uno había que convencer a la población de que
+su sacrificio iba a rendir sus frutos y que todo estaba previsto. Lógica-mente,
+el tiempo iba en contra de la eficacia de este esfuerzo de equilibrios múltiples,
+máxime si el choque crítico sobre las economías europeas se e
+xpandía a otras regiones y continentes ajenos al pulso ucraniano o que incluso
+pudieran verlo bajo una perspectiva diferente a la de los europeos y
+los estadounidenses. A este respecto, resultaba significativo que los me-dios
+de comunicación occidentales ya no recurrieran tan a menudo a la r
+etórica de la «comunidad internacional», como en los tiempos de las guerras yugoslav
+as de finales del siglo /x.sc/x.sc .  Si las cosas iban lo suficientemente mal, 35
+Serrano (2022): p. 68.
+
+---
+
+C
+INTA AMERICANAA 257 l
+a protesta social podría desbordarse en las urnas con el voto hacia la ultra-d
+erecha, algo que se vio venir ya en las presidenciales francesas en abril d
+e 2022, en que la candidata Marine Le Pen obtuvo un 41,46% de los v
+otos frente al 58,54% del vencedor, Emmanuel Macron.Y
+las cosas no empezaron muy bien. Los rusos encontraron pronto comprador
+es sustitutivos para su gas, llegado el caso. De hecho, a princi-p
+ios de febrero, y en previsión de la guerra que los rusos iban a desencade-n
+ar, la empresa Gazprom firmó con la china CNPC un contrato a treinta años
+para suministrar gas a esa potencia del Extremo Oriente a través de u
+n nuevo gasoducto; no era una oferta tan masiva como la pactada con Alemania
+para el Nord Stream 236 .  Pero es que además, como efecto de las sanciones,
+el precio de los hidrocarburos rusos subió apreciablemente, por l
+o que las ventas a la UE resultaron más que provechosas para Moscú37 . Ese
+impacto generó una inflación, que en mayo se disparó hasta el 7,4%, a
+lgo a lo que los alemanes no estaban acostumbrados38 .  No habían visto nada
+así en cuarenta años, y además las inflaciones les traían a la memoria histórica
+la catástrofe de 1923, con el consiguiente precio político de la aparición del nazismo
+.T
+odo ello contrastaba con el triunfalismo vacío que se estilaba duran-te
+la primera fase de la ofensiva rusa. Así, hacia finales de marzo, mientras se
+daba pábulo a la propaganda ucraniana según la cual al Ejército ruso solo
+le quedaba combustible y comida para tres días, las autoridades ale-manas
+comunicaban a las empresas que se fueran preparando para el ra-cionamiento
+por la escasez de gas y diésel39 .  También se asumía que el país entraría en r
+ecesión en 2023.P
+or esas fechas, 23 a 25 de marzo, un mes después del arranque de la i
+nvasión rusa, el presidente Biden viajó a Europa para coordinar planes con
+los aliados europeos, en sendas cumbres de la OTAN, la UE y el G7, antes
+de darse un baño de masas en Varsovia, Nueva Europa. Y coinci-d
+iendo con ello, se firmó un importante acuerdo para la adquisición d
+e gas licuado estadounidense por parte de la UE. El suministro era de 36
+«Rusia y China firman un acuerdo de gas por 30 años con un nuevo gasoducto-fuente», Eu
+ronews vía R euters, 4 de febrero de 2022 [consultable en red].s37
+«Alemania dispara el gasto de las compras de Rusia en un 60% por la inflación», por Rosalía S
+ánchez, ABC,  3 de junio de 2022 [co nsultable en red].38
+«Inflación interanual en Alemania alcanza máximo en 40 años», en D W — Deutsche Welle, 11 de may
+o de 2022.39
+Serrano (2022): p. 65.
+
+---
+
+258
+258U CRANIA 2237.000
+millones de metros cúbicos, que llegaría en barcos metaneros a lo largo
+de 2022. Desde la salida de T rump de la Casa Blanca, Biden había entrado
+en el conflicto ucraniano como un toro en una cacharrería, e in-tentaba
+arreglar los desperfectos, a la vez que hacía un buen negocio con l
+a venta masiva de gas de f racking, el producto estrella americano, por va-lor
+de 53,88 euros/mVh, frente a los 38,43 euros/mWh, precio de venta d
+el gas ruso —un 40% más caro— que por ende no se tenía que procesar en
+plantas regasificadoras. En realidad, Biden había hecho el viaje a Euro-pa
+para vender el gas40 .  Era la política de la cinta americana, componiendo y
+recomponiendo, encajando y pegando las piezas con el eficaz adhesivo, e
+n base a planes tempestuosos, sobre todo antes de la próxima campaña electoral.
+E
+l 31 de marzo, Rusia exigió el pago del gas en rublos, dado que, se-gún
+explicaba el mismo Putin, «suministramos nuestro gas a los europeos, e
+llos lo recibieron, nos pagaron en euros, los cuales, después, ellos mismos congelar
+on. En este sentido, hay muchas razones para creer que parte del gas
+suministrado a Europa lo suministramos, básicamente, gratis»41 .  Ante l
+a resistencia a abonar el gas en la moneda rusa, Gazprom cortó el sumi-n
+istro a Bulgaria y Polonia el 27 de abril; el 20 de mayo fueron los finlan-deses;
+el 30 le tocó a los neerlandeses y daneses, y el 17 de junio cayeron par
+cialmente los envíos a Italia, Austria y Alemania, desde donde ya no se pudo
+suministrar a Francia. La peor de las pesadillas estaba teniendo lu-g
+ar: Rusia se había adelantado a los cortes de suministro que la UE ame-nazaba
+con aplicarle como represalia por la invasión de Ucrania. Los san-cionador
+es, sancionados. Rusia castigaba a Europa y no al revés. El 2 de junio
+ya lo había proclamado The Guardian: «Rusia está ganando la guerra económica y P
+utin está lejos de retirar sus tropas»42 . E
+ncarando el verano, la situación era especialmente delicada. Ya no se podía
+enmascarar por más tiempo la ficción de que la OTAN no necesita-b
+a intervenir directamente para pararle los pies a Rusia a base de armar a l
+os ucranianos y aplicar sanciones a los rusos; esto es, excluyendo al adver-40
+«El negocio de Estados Unidos con la crisis energética: vende el precio del gas un 40% más car
+o a Europa», C anal Negocios TV ,Y ouT ube, 25 de marzo de 2022.V41
+«Putin: una parte del gas a Europa lo suministramos básicamente gratis», R T en Español, 31 de mar
+zo de 2022.42
+«Russia is winning the economic war. And Putin is no closer to withdrawing troops», por Larr
+y Elliott, en The G uardian, 2 de junio de 2022.
+
+---
+
+C
+INTA AMERICANAA 259 sario
+de su mundo financiero. Eso se había terminado: Occidente no po-día
+seguir hablando como si la guerra la gestionara la «comunidad inter-nacional».
+En 2022 el mundo era realmente multipolar y de poco servía argumentar
+que iba hacia una suerte de «globalización compartimentada» en
+la que los occidentales podían hacer negocios en territorios seguros. Eso
+era, de hecho, el regreso a los mercados protegidos, subsidios, volati-lidad
+y fragmentación43 .  El mundo era ya multipolar. Las interacciones l
+aberínticas y las políticas de cinta americana no podían ocultar los límites del
+mundo occidental, que parecía estar viviendo a espaldas de Asia, Áfri-c
+a y América Latina. China, India o Pakistán le compraban, sin miedo, a R
+usia, el gas que Europa había rechazado en una mala jugada geoestraté-g
+ica. Ya durante el verano de ese mismo año de 2022, India había aumen-tado
+sus compras de petróleo ruso en un 538%, mientras que China lo h
+izo en un 78%. Como colofón, JP Morgan avisaba de que un recorte en l
+a producción rusa de 5 millones de barriles de petróleo/día, podrían co-l
+ocar el precio del barril en 380 dólares, lo que llevaría a una MAD ener-gética y al colapso de la economía global
+44 «La
+UE teme estar perdiendo la batalla por el relato de la guerra en U
+crania», se proclamaba desde el editorial de L a Vanguardiae l 3 de junio. a¿Cómo
+explicarles a los países que estaban entrando en una crisis alimen-t
+aria la responsabilidad exacta de Europa y sus errores de cálculo? ¿Cómo compar
+tirla con la que le tocaba a Putin? Eso no arreglaba los problemas de
+los países afectados por el hambre, solo la solución concreta a esos con-tratiempos
+les interesaba. Por otra parte, incluso en el mundo occidental estaba
+decayendo en picado el interés por la guerra en Ucrania. La solu-c
+ión a la nueva crisis económica no vendría de ganar o perder allí, sino de las medidas que deberían tomar los gobiernos para r
+ecomponer las cosas.E
+n  e l  v e r a n o  d e  2 0 2 2 ,  t r a s  G e o r g i a  y  e l  D o n b a s ,  l a  O T A N  e s t a b a  per
+diendo su tercera p roxy Hot War c ontra Rusia. ¿Qué había ido tan mal? 43
+«Reinventing globalisation. Switching to a secutiry-first model of globalisation would make the
+world more expensive and dangerous», en The Economist, vol. 443, n.º 9301, 18-24 de ju-nio de 2022.
+44
+«JP Morgan ve petróleo a niveles estratosféricos de US$380 si el bloqueo a Rusia es exitoso», en «La r
+epública», 2 de julio de 2022 [consultable en red].
+
+---
+
+
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22C
+ONCLUSIONES EN PRIMERA PERSONALa
+trampa 22 dice que tienen derecho a hacer cualquier cosa que no podamos evitar que hagan.
+J
+oseph Heller, T rampa 22U
+n argumento es falaz cuando la conclusión se usa para respaldar l
+as premisas utilizadas para llegar a esa conclusión.S
+teve Hallen, F alacias lógicas, 2017 C
+uando triunfa la irracionalidad, lo hace en nombre de la razón.R
+oger Scruton, Las bondades del pesimismo: y el peligr
+o de la falsa esperanza, 2010 L
+a palabra clave es «negroblanco». Como tantas otras palabras en n
+uevalengua, tiene dos sentidos contradictorios. Aplicado a un opo-n
+ente, se refiere a la costumbre de llamar descaradamente blanco a lo n
+egro, en contradicción con los hechos evidentes. Aplicado a un m
+iembro del Partido, alude a su leal disposición a afirmar que lo n
+egro es blanco cuando la disciplina del Partido así lo exige. Pero ta
+mbién significa la capacidad de creer que lo negro es blanco y, más a
+ún, de saber que lo negro es blanco, y de olvidar que alguna vez uno cr
+eyó lo contrario. Lo cual exige una constante alteración del pasado, p
+osible gracias a un sistema de pensamiento, que engloba a todo lo d
+emás, y que se conoce en nuevalengua como «doblepiensa».G
+eorge Orwell, 1984 V
+iaje al calor, Kosovo, junio de 1996D
+urante aquel año de 1996, en que por fin parecía haber quedado atrás en l
+a Historia el rosario de guerras de la antigua Yugoslavia, precisamente por e
+ntonces empezaron a llegar noticias de que en Kosovo se estaban produ-
+
+---
+
+262
+262U CRANIA 22c
+iendo atentados, ataques de baja intensidad contra funcionarios serbios o s
+upuestos colaboradores albaneses. Un día era un policía que caía bajo las b
+alas. Otro, algún chivato desgraciado; o quizás un empleado serbio de la a
+dministración local. Más tarde, una bomba en la Universidad de Pristina. N
+adie reivindicaba esas acciones; y tampoco se tenía noticia de detenciones. R
+ebuscando en la prensa internacional, aparecían referencias ocasionales a t
+ipos enmascarados por aquí y por allá. Quizá policías, que merodeaban en t
+odoterrenos; y también secuestros, nunca explicados o resueltos. E
+se mismo verano decidí pasar unos días en Belgrado y reunir mate-rial
+para escribir un reportaje al respecto. Los brotes de violencia en Koso-v
+o podían ser una alerta temprana de que algo se estaba cocinando en los B
+alcanes occidentales. O puede que fueran ajustes de cuentas entre bandas que
+habían hecho dinero durante las guerras, vendiendo gasolina de con-trabando o facilitando visados.
+P
+ero en la capital serbia nadie sabía nada; y como era habitual en lo c
+oncerniente a lo que sucedía en Kosovo, a nadie parecía interesarle. Esta-do
+de alerta, bajo cero. Acudí a una cena con diplomáticos de varios países e
+uropeos y algunos periodistas internacionales: despreocupación. «¿Un n
+uevo conflicto y ahora en Kosovo? No, ya hemos tenido bastante, por f
+avor.»D
+ispuesto a no terminar gastando aquellos días en la amplia y encan-tadora
+colección de bares, restaurantes y chiringuitos del Belgrado empo-b
+recido pero alegre, me embarqué en un temerario viaje a Kosovo. Bajan-d
+o al calor. Fueron horas de autobús, escuchando la machacona colección de
+música folklórica local que cabía en una casete que el conductor repo-nía una y otra v
+ez.A
+l llegar a los límites de la que por entonces era todavía una provincia yugoslav
+a, subieron al vehículo dos policías militares del Ejército Federal Y
+ugoslavo, armados con fusiles de asalto y protegidos con cascos y chale-c
+os antibala. Preguntaron al conductor si tenía algo que notificar con res-pecto
+al pasaje y este lo denegó. Sabía que al menos uno de los pasajeros, que era y
+o, no era ni serbio ni albanés. Pero no soltó prenda. U
+n rato más tarde, mientras descendía del autobús, con mi equipaje, en
+la lóbrega oscuridad del depósito de autobuses de Pristina, apareció un apr
+esurado utilitario Yugo, surgido de la nada. Lo conducía una periodis-ta
+local con la que había contactado desde Belgrado gracias a los servicios d
+e mi amigo T rivo Indjić, toda una autoridad entre esos personajes con
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22263 carisma
+de influyentes que se encuentran por todo el sureste de Europa. Con
+la periodista venía el que sería mi fix er, un joven albanés alto, atento y
+serio que había trabajado para una emisora sueca y tenía experiencia de trato
+con periodistas occidentales. Se llamaba Besnik. Él fue quien abrió la p
+ortezuela del pequeño Yugo y casi me metió dentro, tras asegurarse de mi identidad,
+muy cortésmente, en buen inglés. Por lo visto me había pasado de
+parada y el conductor, decidido a no meterse en problemas por mi causa, me ignor
+ó.P
+asé los días siguientes en la capital kosovar, contactando con unos y con
+otros, que en lo referente a los atentados tenían solo dos respuestas: «
+No sé nada» era una, y la otra: «Los mismos serbios son los falsos terro-ristas,
+que cometen esos crímenes para tener una excusa con la cual repri-m
+ir más y mejor a los albaneses». Esta versión argumental del autogolpe se extendía
+históricamente por los Balcanes con generosidad, con el siniestro añadido
+de que en ocasiones, en efecto, esas cosas llegaban a suceder. La r
+ealidad imitaba a la ficción.U
+no de esos días me topé con un edificio cúbico, de sólida construc-ción
+decimonónica que debió de tener un pasado digno y severo, algo más bien
+poco habitual en ese decorado de bloques sin gracia que era Pristina. E
+n su fachada pendía la bandera de las barras y estrellas. «Es una especie de consulado americano», me informó B
+esnik.N
+o tenía noticia de que en aquel corazón convulso de los Balcanes existiera tal cosa, o tuviera raz
+ón de ser. E
+n realidad, me especificó Besnik, se trataba de una delegación del USIA,
+la US Information Agency. Después supe que entre 1998 y 2008 o
+peró como misión diplomática en Kosovo, hasta que se convirtió en repú-b
+lica independiente. Pero aquel verano, el macizo edificio de la bandera es-t
+a d o u n i d e n s e  y a  t r a n s p i r a b a  i n t e n s a  l a b o r  d i p l o m á t i c a  y  a l g o  m á s .  A  s u  f
+rente oficiaba «el Embajador», como le llamaba con reverencia Besnik, tras erigirse como enchufe privilegiado con el diplomático US.
+I
+ntentó concertar una entrevista para mí, pero sin éxito. Mr. Ambas-sador
+no estaba nada dispuesto a abrir las puertas del fortín a un profesor español
+que trabajaba temporalmente como periodista. Quedamos en que le enviaría un fax con unas pocas pr
+eguntas.D
+esde allí, Besnik me condujo a un destartalado bloque de vecinos que
+también podría haber sido construido como edificio de oficinas, to-talmente
+desaprovechado. Subimos hasta uno de los pisos. «Vamos al
+
+---
+
+264
+264U CRANIA 22C
+entro de Prensa de Kosovo». Eso debía entenderse como un local man-tenido
+con dólares o euros, y, en efecto, eso era lo que parecía. La puerta sin
+placa daba a una sala amplia bien iluminada y espartana en su decora-c
+ión. Sobre las mesas, más de una docena de terminales informáticos en descanso
+total esperaban a los periodistas extranjeros. Aquel día solo andá-bamos
+por allí una joven periodista turca, con aspecto más bien despista-do, y y
+o mismo.R
+edacté una batería de unas diez preguntas, por probar suerte tore-r
+a. Mr. Ambassador, con eficiencia diplomática, no tardó mucho en res-p
+onder. Pero esa misma presteza logró reducir considerablemente el c
+ontenido de las respuestas a bien poco. Y su utilidad aún resultaba más c
+uestionable. El americano impasible me había toreado sin mayor con-s
+ideración; para terminar, enviaba un cordial saludo a su colega en Ma-d
+rid. Deseaba dejar bien claro cuál era su estatus en Pristina y lo hacía c
+on su implícito mensaje: «Ya sabes quién soy y lo que hago aquí; no v
+engas a molestar».Y
+sí, era evidente que, de alguna forma, el desvencijado centro de pren-s
+a estaba bajo la protección del cúbico fortín USIA, y algunas cosas más.Al
+día siguiente, fuimos a visitar al viejo profesor Rexhep Qosja, el p
+adre intelectual de la «cuestión albanesa», que había formulado en un l
+ibro con ese mismo título. Me lo había sugerido Besnik, decepcionado a
+nte las respuestas evanescentes del que era, formalmente, el presidente «tapado»
+de Kosovo, Ibrahim Rugova. A mi pregunta de por qué el afama-d
+o Dr. Rugova llevaba siempre un pañuelo estampado al cuello, mi fix err
+espondió con evasivas desdeñosas bajo el implacable sol de Kosovo. «Pue-de
+ser que padezca anemia crónica o algo por el estilo. Es más bien flojo. V
+amos a hablar con Qosja. Fue mi profesor, y la verdad es que tengo muy buen r
+ecuerdo de sus clases.» M
+e sorprendió ese desdén. Por entonces, la prensa occidental había hecho
+del menudo Rugova un «Gandhi albanés», como años más tarde Z
+elenski sería el «Churchill en camiseta». Se decía que el pañuelo al cuello, hiciera
+frío o calor, simbolizaba la horca serbia. A ver qué tenía que decir el pr
+ofesor Qosja.V
+ivía en las afueras de la ciudad, en una casa de aspecto solariego. Nos r
+ecibió en su despacho, con las paredes bien forradas de libros. Sobre la mesa,
+algunas tallas de madera, arte popular albanés. Y una banderita roja con el águila negra de S
+kandenberg.
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22265 E
+n aquella ocasión no me interesaban las disquisiciones históricas so-b
+r e el pueblo albanés, sino av eriguar si sabía qué estaba sucediendo en K
+oso vo, el porqué de los atentados. Entre el profesor Qosja y mi fix er,terminar
+on por dejármelo claro.D
+esde que había comenzado el rosario de las guerras de Yugoslavia, en K
+osovo se había conservado una paz precaria pero efectiva. De eso se ha-bían
+encargado las fuerzas conservadoras de la región: políticos, intelec-tuales,
+jefes de clanes. La República de Kosovo en la sombra había erigido una
+supuesta administración paralela a la de los serbios que, al menos en teoría,
+controlaba su propia enseñanza, sanidad e incluso finanzas. Farma-cias,
+ambulatorios, escuelas, incluso una universidad clandestina. En la p
+rensa occidental los forofos de la causa antiserbia se hacían lenguas de l
+a audacia y capacidad de los albaneses.E
+l día anterior, Besnik me había chafado la guitarra con tono de aburri-miento,
+como si lo hubiera explicado un sinfín de veces. «No te creas nada d
+e eso. Son fachadas de cartón. Si no tienes el dinero para pagar la consul-t
+a y la receta médica, y todo ello en marcos alemanes, ninguna sanidad pública
+albanesa te va a sacar del apuro. Y los títulos de las licenciaturas no los r
+econoce ningún país.»E
+ntre el calor del verano albanés de 1996 se mascaba la desilusión y la i
+ndignación. Después de cuatro años de aguantar en silencio, los naciona-l
+istas de K oso vo veían cómo se firmaba la paz en todas las guerras que habían
+acompañado la construcción de los nuevos estados exyugoslavos: E
+slovenia, Croacia, Bosnia, incluso la olvidada Macedonia. Y ellos, los a
+lbaneses, a dos velas con su «república en la sombra», tan escasamente clandestina
+como el Centro de Prensa de Kosovo. Aunque ni el profesor ni B
+esnik mencionaron el asunto, la puntilla la habían dado los Acuerdos de D
+## ayton. Aquel espectacular torneo diplomático organizado por los esta-dounidenses
+los presidentes serbio, bosnio y croata, aislados en una remo-ta
+base militar americana, en Dayton, Ohio, negociando contra reloj una s
+alida a la guerra de Bosnia que terminó en un acuerdo devastador para l
+os albaneses de Kosovo. Las grandes testas coronadas firmaron un tratado por
+el que quedaban reconocidas internacionalmente las fronteras de Bos-n
+ia, Croacia y Serbia. Límites inviolables, intocables. Solo que en la fron-t
+era de Serbia quedaba incluido Kosovo. La región que se había mostrado m
+ás combativa por su autonomía e independencia antes de las guerras, que se había
+levantado contra el mismísimo Tito en 1968, ahora, después de
+
+---
+
+266
+266U CRANIA 22todo,
+había sido abandonada por los occidentales, arrinconada en su es-quina
+perdida de los Balcanes, con un menudo presidente clandestino que nadie
+sabía por qué llevaba descuidadamente un pañuelo estampado al cuello
+.L
+os jóvenes estaban indignados, me dijo Besnik. Desilusionados ante s
+us padres y hermanos mayores que habían tragado todo aquel paripé para n
+ada. Me lo explicó mientras dejábamos atrás la casa del profesor Qojsa, caminando por un descampado, bajo el sol.
+«
+¿Entonces cree usted que podría estar gestándose una guerra? —le h
+abía preguntado al profesor Qosja—. Eso podría ser una matanza. En K
+osovo no se pueden obtener armas fácilmente, la represión podría ser b
+rutal, se especula con que podrían morir cincuenta mil personas en poco tiempo
+.»M
+i interlocutor, de hablar pausado y académico, que se detenía aún más
+para que Besnik pudiera hacer la traducción del albanés al inglés, no d
+udó en su respuesta. «¿Y qué son cincuenta mil personas en el destino histórico
+del pueblo albanés?», respondió tranquilamente. Era el 14 de junio de 1996 y lo guar
+dé en mi grabadora. D
+ejé Kosovo un par de días después, convencido de que allí se estaba gestando
+una guerra y que nadie estaba haciendo nada por impedirlo. Los a
+tentados y secuestros eran, en efecto, los balbuceos de un grupo armado c
+landestino que pronto se manifestaría bajo las siglas UÇK. U shtria Çlirim-t
+are e Kosovës: e l Ejército de Liberación de Kosovo. Las hostilidades estalla-r
+on en 1998, apenas un par de años después de mi visita.R
+ecordé durante mucho tiempo aquel sólido edificio de la USIA, fir-memente
+atornillado en Pristina, rodeado del ambiente caldeado de los B
+a l c a n e s  s i e m p r e  q u e  s e  e s p e r a  u n a  g u e r r a .  U n  b u e n  t r o z o  d e  c e r e b r o  americano
+incrustado en medio del calor y la furia, dedicado a aplicar p
+arches calientes, es decir, a practicar la política de la cinta americana. M
+e pareció haber dejado atrás las páginas de E l americano impasiblede  eG
+raham Greene, calor sofocante incluido, con un Alden Pyle resucitado c
+omo Mr. Embajador desarrollando turbias políticas para una próxima guerra que iba a ser mal r
+esuelta, como la de Vietnam.E
+n Washington sabían que, para sacar adelante los Acuerdos de Day-ton,
+con la tinta aún fresca del año anterior, habían tenido que hacer trampa.
+Consiguieron que el presidente croata, Franjo T udjman, y el ser-b
+io, Slobodan Milošević, firmaran los documentos reconociendo sus fron-
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22267 teras
+para evitar que siguieran interviniendo en Bosnia. Eso suponía in-cluir
+dentro de Serbia a Kosovo. Y sabían que esa pieza de la arquitectura de
+los acuerdos, ligada con cinta americana, no podría durar. Por eso, ya en
+1996 andaban por Kosovo, con permiso de Belgrado, por supuesto, p
+ara ver cómo podían arreglar el desaguisado. Y se apañó de la peor mane-ra
+posible, terminando en el bombardeo de la capital serbia, una ciudad e
+uropea. Durante setenta y ocho días. Fue la primera actuación militar de l
+a OTAN en su historia, una organización defensiva que se había creado, justamente, medio siglo antes.
+La
+política de la cinta americana, utilizada de manera profusa por W
+as hington para fijar y encajar las mil y una piezas en el Nuevo Orden I
+nternacional (NWO) proclamado por el presidente George Bush padre en
+1991, era una herramienta ineludible. Ciertamente, que era titánico el desafío
+que suponía extender y consolidar el frente diplomático y hasta militar
+de ese nuevo orden liderado por los estadounidenses tras su victo-r
+ia en la Guerra Fría. La diplomacia de Washington no era mala, por su-puesto
+que no lo era. Pero no gestionó adecuadamente la relación con los r
+usos tras la desintegración de la Unión Soviética. S
+e puede decir que las cosas se torcieron mucho con Clinton, un pre-sidente,
+por cierto, que tiró generosamente de cinta americana para tapar r
+asgones y fijar tuberías. Era tan evidente esa inclinación que, un año antes de
+que saliera a la luz su affair ec on la becaria Monica Lewinsky, se estrenó een
+1997 el filme La cortina de humo (Wag the Dog), dirigido por Barry Levinson.
+La historia relataba cómo ante el descubrimiento de que el pre-sidente
+de los Estados Unidos es sorprendido insinuándose a una menor e
+n el Despacho Oval de la Casa Blanca, apenas dos semanas antes de las elecciones,
+la asistente presidencial contrata al rey de la cinta americana: un
+spin doctor de primera (interpretado por Robert de Niro) que se inven-ta
+una inexistente guerra de los Estados Unidos contra Albania para dis-traer la atención de los medios de comunicación.
+Ese
+año de 1997 tuvo bastante importancia en los destinos de Europa d
+el Este y Rusia porque Zbigniew Brzezinski publicó su magna obra, El  g
+ran tablero mundial. La supremacía estadounidense y sus imperativos geoes-tr
+atégicos.  En ese libro, un Vladimir Putin que empezaba su carrera como h
+ombre de confianza del presidente Yeltsin en calidad de subjefe del Esta-d
+o Mayor Presidencial pudo leer las recomendaciones del gran gurú del expansionismo
+estadounidense tras la Guerra Fría para recurrir a Ucrania
+
+---
+
+268
+268U CRANIA 22c
+omo «pivote estratégico» con el fin de anular una reactivación de Rusia como superpotencia.
+Clinton
+humilló a Yeltsin, y al hacerlo degradó a los rusos en su con-j
+unto. Putin fue testigo de ello en primera línea, y detrás y debajo de ella, por
+que en 1998 fue nombrado Secretario del Consejo de Seguridad de R
+usia y Director del Servicio Federal de Seguridad (FSB). En base a lo cual,
+se enteró mucho y de primera mano del impacto de la guerra de K
+osovo en el ánimo de los rusos. Para todos resultó más que evidente que el
+«amigo americano», el consejero en la transición rusa hacia el capitalis-m
+o a través de la terapia de choque, trataba a Rusia como un trapo. La raz
+ón era la siguiente: la OTAN no podía admitir una salida negociada al conflicto
+kosovar. Si triunfaba la diplomacia, quedaría en entredicho la necesidad
+de la campaña aérea contra Serbia, que no tardó en ser cuestio-nada
+por aliados tales como Italia, Alemania, Francia y Holanda, debido a sus
+numerosos fallos sobre el terreno. La OTAN tenía que ganard e forma ganarneta, la solución militar
+tenía que triunfar  sobr e la diplomática. tenía que triunfarE
+sa situación resulta clave para entender lo ocurrido durante la guerra d
+e Ucrania en 2022. Putin había desafiado abiertamente a la OTAN, cuestionado
+la necesidad de su utilidad y por tanto de su existencia. Y por ello,
+una vez más, a  priori al menos, la OTAN necesitaba de una victoria m
+ilitar , no de una salida diplomática. V olvía a r epetirse la situación de 1999,
+solo que esta vez Moscú marcaba las pautas. El presidente ruso era muy
+consciente de ello, lo buscaba. El rencor y el revanchismo que gene-rar
+on las guerras de la antigua Yugoslavia en general y la guerra de Kosovo en
+particular hicieron de Rusia una máquina vengativa. Para muchos ru-sos,
+la tragedia ucraniana era un asunto hasta cierto punto secundario ante e
+l problema de la OTAN, la bicicleta que caería si no se mantenía de pie pedaleando,
+el bombero pirómano que causaba los incendios para extin-g
+uirlos. T ras la anexión de Crimea a Rusia en 2014, fue el resentimiento e
+l que hizo que Putin comparara inmediatamente esa situación con la que había
+generado Kosovo. En ambos casos, un territorio no muy extenso c
+on un marcado valor estratégico, que los rusos no se habían dejado arre-b
+atar. Sebastopol seguiría siendo la histórica base de la Flota del Mar Ne-g
+ro y no la de la Sexta Flota americana; y menos, de las unidades de la M
+arina turca. No es casualidad que los grandes despliegues de tropas rusas a
+nte la frontera ucraniana en 2021 arrancaran de las maniobras navales de l
+a OTAN frente a las costas de Crimea ( Sea Breeze), en junio y julio de ese
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22269 año,
+que se iban a prolongar durante los meses siguientes, y de nuevo en ener
+o de 20221 . N
+o fue el único paralelismo aireado. La solución al conflicto de Bos-nia,
+en 1995, consistió en federalizar esa república. Estados Unidos y el m
+ismo Estado ruso estaban basados en la idea federal. ¿Por qué no federa-l
+izar a Ucrania? Resultó realmente llamativo que las definiciones en térmi-nos
+étnicos desaparecieran del vocabulario de la crisis ucraniana. Nadie hablaba
+en la prensa occidental de una posible «etnia rusófona», de los «ucranorr
+usos» o de «galitzianos», «rutenos» o «volinios», como se había hecho
+con los «albanokosovares» o los «serbobosnios». Menos aún de mi-n
+orías tan reales como tártaros, moldavos, húngaros, bielorrusos judíos y o
+tros. Tampoco nadie parecía tener ni idea de que históricamente existían v
+arias Ucranias: la Verde (T ranscatay, Extremo Oriente), la Gris (suroeste d
+e Siberia y norte de Kazajistán), la Amarilla (Volga) y hasta la Frambuesa (
+Kubán), correspondientes a territorios poblados por ucranianos en plena R
+usia, producto de la emigración interior desde el siglo /x.sc/v.sc /i.sc/i.sc/i.sc,  en tiempos del I
+mperio zarista.E
+n cualquier caso, ni bajo la presidencia de Poroshenko ni la Zelenski s
+e hizo nada por cumplir con ese articulado de los acuerdos de Minsk que s
+uponía legislar un estatuto específico para Lugansk y Donetsk. El centralis-m
+o de Kiev sobre un enorme territorio rico en variantes culturales predomi-n
+ó sobre unos patrones de «solucionismo territorial» que parecían normati-v
+os y de obligado cumplimiento en Europa desde hacía unos veinte años y q
+ue Bruselas impulsa aún ahora como parte de su política regional.V
+iaje al frío, Timişoara, enero de 1990L
+legar a Rumanía a los pocos días de lo que entonces se consideraba revo-lución
+de diciembre, en 1989, resultó una experiencia estremecedora. Bu-car
+est parecía un documental en blanco y negro, rodado en 1945, con imágenes
+de un expresionismo a medio camino entre A lemania año cero y  E
+l tercer hombre.  Las calles sin apenas luz, cubiertas de nieve pisoteada y
+fangosa, que hacía resbalar con facilidad. Una noche me perdí por las 1
+«Rusia y la OTAN. Fricciones en la región del Mar Negro», por Keno Verseck, en DW  — D
+eutsche Welle, 29 de junio de 2021.
+
+---
+
+270
+270U CRANIA 22callejuelas
+aledañas a Piaţa Rosetti, donde se encontraban lo que había sido
+en tiempos el barrio armenio con el judío, y tras dar con mi cuerpo en
+la calzada dos o tres veces, decidí preguntar en el único establecimiento todavía
+abierto, que resultó ser una sastrería. A través de la puerta acrista-lada
+se podía ver a las operarias cortando patrones y cosiéndolos. Mi pre-sencia
+debió de atemorizarles, pues nadie atendió a mi repique en la cris-talera,
+ni se acercó a ver qué necesitaba. Dejaron de trabajar y me miraron, paralizados.
+Por entonces corrían muchos rumores locos sobre francotira-dor
+es de las extintas fuerzas de la Securitate que seguían disparando y atentando
+por la ciudad. De hecho, de vez en cuando se escuchaba algún d
+isparo en la lejanía. Mostré mi pasaporte a través del vidrio y por fin un h
+ombre se acercó, reunió el valor para abrir unos centímetros la puerta y negó conocer la calle que al final r
+esultó ser casi aledaña.C
+amiones militares y soldados vestidos con anticuados capotes de fieltro, tocados
+todavía con los cascos de acero que lucía el Ejército rumano en la S
+egunda Guerra Mundial, pasaban por entre las islas y bosques de velas encendidas
+fijadas a la calzada o los alféizares de los ventanales por su mis-ma
+cera derretida, allí donde habían caído mortalmente heridas las vícti-m
+as de la represión. Cuando clareaba, el aire gélido todavía hacía más ló-b
+rega la ciudad, sobre todo al mostrar con precisión las fachadas picoteadas por
+los disparos de voluntariosos voluntarios que durante horas habían i
+ntentado abatir a francotiradores inexistentes. Los enterados decían que el E
+jército de reclutas asustados, ayudado por miles de civiles provistos de armas
+generosamente distribuidas, había gastado toda la munición de tres meses en menos de una semana de combates contra fantasmas.
+N
+icolae Ceauşescu, el primero de una serie de tiranos de feria, mons-t
+ruos de guiñol, que iban a ocupar las páginas de la prensa amarilla occi-dental
+en años sucesivos, había sido fusilado ignominiosamente días antes, poco
+menos que en directo. Pero el terror seguía flotando en el ambiente. L
+o resumían a la perfección las fotografías de algunos ciudadanos tortura-d
+os en Timişoara, la ciudad más occidental de Rumanía, cercana a la fron-tera
+húngara, donde habían comenzado las prot estas contra la dictadura, el
+17 de diciembre. Siempre eran los mismos: un hombre con un cable en torno
+al cuello, una mujer gruesa, semi desnuda, y un bebé con el vientre y
+el tórax sajados. Crímenes de la Securitate, la política del régimen de C
+eauşescu, el Tirano de los Cárpatos, como le llamaban algunos periodis-tas
+poniéndole un toque a lo Bram Stoker. ¿Pero por qué habían torturado
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22271 al
+bebé? Eso no parecía tener mucho sentido. La respuesta habitual, bajan-do
+un poco la voz acompañada de un movimiento de cabeza reprobatorio, p
+odía ser: «Son unos monstruos, disfrutan con su crueldad». Algunos más audaces
+podían añadir que el niño había sido torturado ante su misma madr
+e.T
+ras pasar unos días en Bucarest, decidí trasladarme a Timişoara, a ver qué
+po día sacar en claro. Atravesé Rumanía pasando noche en un tren l
+entísimo. T ras llegar , de buena mañana, me encontré con que no había alojamiento
+en toda la ciudad. Ni en los hoteles baratos ni en los caros ni, ya
+puestos, en los de lujo, que apenas existían. La Rumanía de Ceauşescu s
+iempre había buscado atraer al turismo en la costa del mar Negro, en los C
+árpatos o en T ransilvania, era una actividad enfocada en plan soviético, todo
+muy organizado y con las plazas hoteleras muy contadas. Y Timişoara ni siquiera era un destino de esos cir
+cuitos.M
+e veo a mí mismo sentado en los jardines de la Plaza Victoriei, con-templando
+pensativo y rendido la Catedral Metropolitana ortodoxa, en uno
+de los rincones más emblemáticos de la ciudad. Hace frío y algo de niebla,
+incluso. Sin haber desayunado todavía, ni un triste café. No sabía dónde
+iba pasar la noche y una rata salió de su madriguera, en el césped  del par
+que, y se paseó tranquilamente por entre los bancos. H
+ay pocos países donde se pueda salir de una situación así como no sea R
+umanía. T res horas más tarde estaba en casa de Mihail y Monika, unos a
+migos que acababa de conocer a la vuelta de la esquina, como quien dice. A
+él le había preguntado por una dirección en una calle del centro, le había h
+echo gracia que viniera de Barcelona, encontró muy natural que no hubie-r
+a ni una plaza hotelera libre en la ciudad y, con la misma desenvoltura, me of
+reció alojamiento en su piso, donde, ya se había instalado otra pareja de a
+migos, que habían llegado de visita. Lo mismo debieron de pensar todos l
+os vecinos de mis benefactores, que pasaron por el apartamento para cono-c
+er al extraño visitante. Que, por cierto, ocupaba el único sofá cama, junto c
+on los gatos, mientras el resto dormía en el suelo. A
+quellos días no me faltaron testimonios espontáneos de lo que había sucedido
+en la ciudad a partir del domingo 17 de diciembre. También s
+alieron a relucir los ya célebres cadáveres torturados. Pero ahí nadie tenía información
+de primera mano y la historia, que se relataba en los mismos términos
+que en Bucarest, seguía sin encajar en una narración fluida, so-naba for
+zada, le faltaba lógica.
+
+---
+
+272
+272U CRANIA 22A
+mi regreso a la capital, volví a ver al doctor Gheorghe Brătescu, e
+l padre de mi amiga Stela. Desde sus sesenta y nueve años, era un h
+ombre afable, con esa ironía que aporta una cultura procedente de la v
+ida vivida y los miles de libros leídos, que se apretaban angustiosa-m
+ente los unos contra los otros en las estanterías de su cálido domici-l
+io en lo que quedaba del  viejo centro de la capital. T omábamos café r
+eposadamente, que es una de las cosas más balcánicas que se pueden h
+acer. Y hablábamos sobre viejas palabras de la lengua rumana, que ya n
+adie utilizaba, una conversación culta. Y entonces se me ocurrió pre-g
+untarle por los cadáveres de Timişoara. ¿Qué opinaba él? ¿Qué senti-d
+o tenía la criatura despanzurrada de las fotos? Sonrió, como cualquier r
+umano solucionando el más intrincado problema del mundo, como q
+uien no quiere la cosa. Como cualquier persona que hubiera vivido b
+ajo un régimen en el cual era mejor no dar a entender que la ironía te de
+svelaba la verdad intrínseca de la vida. Se dirigía a mi como d umnea-t
+a, un tratamiento de cortesía específico de la lengua rumana, más e
+ducado que el tuteo pero menos formal que el usted. «Cualquier per-s
+ona que haya estudiado Medicina sabe que la sutura que luce el bebé e
+n su cuerpo es característica de un examen forense. En algunas fotos m
+ás detalladas se aprecia que la piel de esa zona muestra un color ama-r
+illo intenso. Seguramente se trata de tintura de yodo, un desinfectan-te
+muy usual».¿
+Un examen post mortem?¿ Entonces qué sentido tenía aplicar un des-tem?infectante
+en una disección? «Bioseguridad biológica básica en la sala de a
+utopsias. El forense puede contagiarse de muchas enfermedades mane-jando
+cadáveres», concluyó el doctor Brătescu con la gran sonrisa amable, apenas
+esbozada, que acompaña a la sabiduría en sus conclusiones inape-lables.
+P
+or lo tanto, no había bebé torturado, sino autopsia de bebé. Y si había
+una mentira, seguro que había otra más, como mínimo. Casi nunca se encuentran aisladas, como las perlas en los
+collares.L
+a verdad se supo poco tiempo después. Unos espabilados habían s
+acado varios cuerpos de la morgue de Timişoara y los habían ofrecido a las
+primeras cámaras que habían visto circulando por la ciudad. A partir de
+ahí, el scoop .  Algunos medios de gran tirada publicaron las fotos a todo c
+olor y con todo detalle, en cuché, dando la historia por buena. Pero la v
+erdad era que a la mujer le había sobrevenido la muerte por cirrosis, el
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22273 h
+ombre era un trabajador que se había caído por una chimenea de la cual le
+habían extraído, ya muerto, con ayuda de un cable atado a su cuello y el
+bebé, al que habían emparentado con la pobre mujer, no tenía ninguna r
+elación materno-filial con ella. Era un caso más de muerte natural.L
+a prensa occidental en general y la francesa en particular se toma-r
+on muy mal el escándalo. Se habló largo y tendido del d érapage des m
+édias, de la r évolution médiatiquement ratéeo  de las «fosas comunes» ed
+e Timişoara entre enormes comillas burlonas. También se hicieron b
+uenos estudios técnicos sobre este tipo de fenómenos, relacionados c
+on la velocidad a la que se difunden las noticias, el mito y el contrami-to
+2 .  Y, en conjunto, se asumió de forma un tanto abusiva que la mentira d
+e Timişoara había contribuido a hundir el prestigio de la revolución r
+umana de 1989.E
+n este caso, el asunto iba más allá. Personalmente me indignaba y m
+e maravillaba, a partes iguales, que tiempo después, pongamos un mes y
+más, incluso, rumanos cultos, que en teoría deberían estar bien informa-dos
+de lo sucedido, siguieran dando por buena la versión original, la falsa. Y
+la utilizaban para denunciar los crímenes de la dictadura de Ceauşescu. E
+l extranjero daba a entender, cortésmente, que quizá la historia estaba superada,
+que ya existía información fiable sobre la farsa; pero su interlo-cutor mantenía imper
+térrito la versión falaz. Las
+personas se comportan de forma poco natural ante las cámaras y l
+os extranjeros desconocidos. Son conscientes de que les verán muchas per-s
+onas, quizás algunas importante. Y los vecinos, familiares y amigos. Igual les
+piden explicaciones. O se ven obligados motu proprio a  dar la versión «oficial»,
+la que, supuestamente, se espera de ellos. Recuerdo haber leído que,
+en cierta ocasión, se había armado una buena trifulca ante las cáma-ras
+de una televisión extranjera, en Afganistán, de resultas de la cual mu-rier
+on varias personas.P
+or supuesto, cuando a partir del 2 de abril se empezó a hablar de la m
+asacre de Bucha, una de las localidades del extrarradio de Kiev (37.000 habitantes),
+me vino a la memoria lo sucedido en Timişoara veintitrés a
+ños antes. No porque la entidad de ambos sucesos fuera directamente equiparable.
+No había ni punto de comparación en cuanto a los hechos. B
+ucha había permanecido en poder de las fuerzas invasoras la mayor parte 2
+Coman (1993).
+
+---
+
+274
+274U CRANIA 22del
+tiempo entre el 27 de febrero y el 31 de marzo de 2022. Y en la loca-lidad
+ucraniana se habían producido muertes reales, en un volumen apre-ciable,
+lo cual era lógico, porque había sido zona de guerra, y muy activa, durante
+un mes. T ropas de choque rusas habían tomado Bucha como es-labón
+de ataque en su marcha sobre la localidad próxima, Irpín, en un m
+ovimiento que apuntaba hacia el cerco de la capital. La resistencia de las fuer
+zas ucranianas en esos primeros momentos les había puesto las cosas difíciles,
+sobre todo la artillería, que había destruido una columna blinda-d
+a rusa en Bucha, de lo cual quedan númerosos testimonios gráficos. Ve-cinos
+de la localidad, actuando como fuerzas irregulares, habían contri-b
+uido a la destrucción de vehículos enemigos. Después, a primeros de m
+arzo, se produjo un contraataque ucraniano que recuperó buena parte de
+la localidad. Pero los combates no se detuvieron en ningún momento y
+, a pesar de lo cual las autoridades ucranianas dispusieron una complica-d
+a evacuación de la población civil que ya tenía que haberse llevado a cabo con
+anterioridad. En esas circunstancias, se produjo un número apreciable de
+bajas civiles. La mayor parte de los más de cuatrocientos muertos con-tabilizados
+hasta la fecha lo habían sido por munición artillera antiperso-nal supuestamente disparada, únicamente, por los r
+usos3 . I
+nstalados en ese caos, los soldados invasores estaban nerviosos y no se anduvier
+on con medias tintas con la población civil que aún permanecía en
+la localidad. Recuperada por los rusos a partir del 12 de marzo, estos o
+rdenaron que todo el mundo permaneciera en sus casas o en refugios i
+mprovisados, con prohibición expresa de salir, a pesar de las durísimas condiciones
+de vida impuestas, sin agua corriente, ni luz ni acceso a ali-m
+entos o medicinas. Los muertos producto de los bombardeos empeza-r
+on a ser enterrados en una gran fosa a partir del 13 de marzo, con permi-s
+o de los rusos, que les encomendaron al enterrador local y a un forense organizar
+esa misión. Es de suponer que, entre los combates, parte de los c
+adáveres retirados de las calles fueran provisionalmente depositados en sótanos.
+A
+partir del 16 de marzo de produjo un nuevo contraataque ucrania-n
+o, y en torno a los días 30 y 31 los rusos empezaron a retirarse definiti-v
+amente, aunque al parecer hostigados por fuerzas ucranianas, lo que pro-3
+«Dozens of Bucha civilians were killed by metal darts from Russian artillery», por Lorenzo T
+ondo, The G uardian, 24 de abril de 2022, [consultable en r ed].
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22275 dujo
+ulteriores bombardeos por la zona. El 2 de abril, la agencia France P
+ress publicó las trágicas fotos de personas aparentemente ejecutadas e i
+ncluso alineadas a lo largo de la calle Yablonka, lo cual generó una tor-menta
+mediática a partir de la cual comenzó a hablarse internacionalmen-te de la masacr
+e de Bucha.H
+asta aquí, los datos básicos no sujetos a polémica. Que se produje-r
+on abusos y crímenes, eso es prácticamente seguro. Las fuerzas que inva-den
+un país, cualquier país, cometen excesos o los permiten, transformán-dose
+en soldadesca. Incluso fuerzas de Naciones Unidas se propasaron en algunas
+misiones de paz, como es sabido. En Haití entre 2004 y 2017, y en
+casi todas las intervenciones de los cascos azules en África, por ejem-plo
+4 .  La tensión del combate, el suministro de drogas estimulantes a los soldados,
+el descontrol de unos pocos o la permisividad de los oficiales h
+acen de la tropa una verdadera plaga en las zonas de ocupación, en cual-quier
+guerra del presente o del pasado. Precisamente, la extensa utilización de
+empresas privadas militares en conflictos bélicos por parte de las auto-ridades
+estadounidenses, como ocurrió tras la invasión y ocupación de I
+rak, por ejemplo, ha tratado, en parte, de evitar o desviar consecuencias penales
+por los desmanes de las propias tropas en países ocupados. T odo ello
+ha generado investigaciones y resoluciones del Consejo de Derechos H
+umanos de la ONU ya desde 2005, contestadas, por cierto, desde los Estados U
+nidos y la Unión Europea5 . P
+or otra parte, la munición artillera antipersonal tipo canister u tiliza-canisterda
+por los rusos en Bucha figura en todos los arsenales del mundo. La de l
+os rusos fue la 3sh1 de 122 milímetros, pero su equivalente americano, sin
+ir más lejos, es la M1028 Canister para calibre de 120 milímetros. Sus efectos
+sobre el cuerpo humano son, literalmente, desgarradores. Pero no son
+nada nuevo; son los viejos botes de metralla disparados por la artille-ría,
+como los que ya utilizó Napoleón Bonaparte para despejar las calles de P
+arís de insurrectos durante el 13 Vendimiario de 1795. Es una manera d
+e ocasionarle bajas a bulto a la infantería del adversario.Lo
+que sí conectaba a Bucha con Timişoara y otros casos similares en todo
+ese tiempo era el tratamiento informativo de lo sucedido. Y, de algu-4
+«UN Peacekeepers’ Sexual Exploitation And Abuse In Haiti», por Mary Mijares, O W P, 15 de septiembr
+e de 2021 [consultable en red].5
+«¿Qué hay detrás de la negativa de la UE y los Estados Unidos a la resolución sobre mercena-rios?», por
+Yoselyn Manzano, RIDH/RIDHE, 3 de noviembre de 2017 [consultable en red].
+
+---
+
+276
+276U CRANIA 22na
+forma, el feedback e ntre la correspondiente StratCom y los medios de feedbackc
+omunicación, a fin de conseguir la decantación política en el posiciona-miento
+de la población. En el caso de Bucha, ese proceso fue marcada-mente for
+zado y duro. Como explicaba el periodista Pascual Serrano: Q
+uienes planteábamos dudas éramos señalados como «conspiracionistas» o «negacionistas».
+Es como si dudar de la versión de un periódico o de un te-lediario
+equivaliese a negar el Holocausto. Para el poder dominante, la ver-sión
+de Estados Unidos, de la OTAN y de los Gobiernos europeos tiene v
+alor de infalibilidad científica; por ello, quienes dudamos estamos al nivel de
+los terraplanistas, que desconfían de la ciencia. Al hilo de esto, no faltaron p
+rogramas de televisión donde repasaban los nombres de personas con cier-t
+o protagonismo público que dudaban de la información oficial, y los acu-saban de buscar pr
+otagonismo, notoriedad o negocio6 . P
+arecía muy evidente que existía un interés directo del gobierno ucraniano por
+desquiciar el marco ya suficientemente trágico de lo acaecido en Bu-c
+ha. El ministro de Asuntos Exteriores, Dmitro Kuleba, dijo que era la peor
+matanza en Europa desde la Segunda Guerra Mundial7 ,  u n a  a f i r -mación
+claramente exagerada tras los excesos de la guerra civil griega (1946-1949),
+la intervención soviética en Hungría (1956), los más de mil muer
+tos en la revuelta rumana de 1989 —aparte de los fakesd e Timişoara— sen
+tan solo una semana o las diversas carnicerías de civiles en Vukovar, K
+rajina, Srebrenica o Kosovo durante las guerras en la antigua Yugoslavia (1991-2001);
+todo ello sin contar con los muertos en las diversas campa-ñas
+terroristas padecidas por el Viejo Continente, o el atentado del 11 de m
+arzo de 2004 en Madrid, con 194 muertos en un solo día. Las declara-c
+iones del ministro Kuleba —y otras similares que se hicieron en aquellos d
+ías— venían enmarcadas en el hecho de que el gobierno ucraniano no solicitó
+desde un primer momento la presencia inmediata de verificadores d
+e la Cruz Roja o la OSCE. Solo a partir de mediados de mes empeza-r
+on a llegar equipos de forenses internacionales y sus informes se publicaron con
+cuentagotas en la prensa porque incidían en que el protagonismo asesino
+en las muertes de Bucha correspondía a la munición artillera tipo 6
+Serrano (2022): p. 21.7
+«La matanza de Bucha muestra la barbarie de la guerra de Putin», por Luis de Vega, E l País, 3 de abril de 2022 [consultable en r
+ed].
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22277 c
+anister— a base derf léchettes, e n vez de bolas—, dando por sentado que su us
+o correspondía únicamente al bando ruso: recordemos que la localidad h
+abía estado sujeta a varios ataques y contraataques y que las fuerzas rusas y uc
+ranianas utilizaban por entonces el mismo armamento.S
+iendo normal en todo conflicto bélico que la propaganda de guerra decante
+en un sentido político y a beneficio propio los excesos o errores del
+adversario, no lo es menos que existe un determinado tipo de guerras en
+las cuales esa práctica adquiere unos perfiles específicos que se podrían denominar «masacr
+es de inducción» o trigger massacr es:D
+ícese de aquella matanza, ejecución sumaria o masacre, real, escenificada o inv
+entada, destinada a provocar alguna forma de intervención internacional en
+un conflicto militar o «revolución blanca». La trigger massacrep uede ha-eber
+sido planificada desde un principio por el bando interesado en atraer la i
+ntervención, bajo la forma de provocación, a fin y efecto de atribuírsela al bando
+contrario. Otra posibilidad consiste en que el bando interesado en explotar
+la trigger massacrea proveche la matanza, cometida por las propiasef
+uerzas o las del enemigo, para utilizarla propagandísticamente. Una tercera v
+ariante consiste en inventar o simular la masacre, total o parcialmente, dan-do lugar así a una
+fake trigger massacr e. P
+ero la intención última de las trigger massacresc onsiste en justificar y sp
+rovocar alguna forma de acción internacional, ya sea diplomática o militar. E
+n eso se diferencian las t rigger massacresd e la propaganda de guerra, sin máss8 . Lo
+sucedido en Bucha entraría de lleno en esta definición, incluso a escala de
+detalles complementarios, por cuanto la gran mayoría de las dieciséis masacr
+es de inducción listadas desde 1989 hasta 2013 —al menos las que condujer
+on de hecho a una intervención—, a las que debe añadirse la de B
+ucha, acontecen bien sea poco antes de o durante la primavera, o bien h
+acia finales de verano o comienzos de otoño. Lo cual podría estar relacio-nado
+con el mayor o menor tiempo necesario para los preparativos milita-r
+es, a fin y efecto de llevar a cabo las intervenciones en primavera u otoño. E
+l otro rasgo digno de ser considerado es que las trigger massacresqu e han sp
+rovocado las intervenciones militares occidentales en los Balcanes y O
+riente Medio tuvieron lugar bajo presidencias demócratas en los Estados U
+nidos. La única excepción fueron las supuestas masacres de bebés en las 8
+[Veiga y González Villa] (2013).
+
+---
+
+278
+278U CRANIA 22incubadoras
+kuwaitíes, en plena era Bush padre, fake trigger massacreq ue ee
+mpujó a la intervención en Kuwait9 .  En el caso de la de Bucha, que salta a
+la prensa el 2 de abril, tiene lugar en el preciso momento del cambio de l
+a primera a la segunda fase de la ofensiva rusa, cuando desde el bando u
+craniano se creyó que el impulso ruso se desmoronaba y su derrota estaba al
+alcance de la mano. La cuarta ronda de negociaciones entre las delega-c
+iones rusa y ucraniana, esta vez en Estambul, acababa de terminar sin r
+e s u l t a d o s ,  l a  O T A N  p r o m e t í a  a r m a s  s i n  c u e n t o  a  l o s  u c r a n i a n o s  p a r a  ganar
+la guerra y a comienzos de abril los angloamericanos proclamaban, en
+el colmo del triunfalismo, que Ucrania tenía qu e ganar. Recordemos: teníaZ
+elenski teatralmente retratado en la portada de The Economist, macilento y con barba de v
+arios días, y aquel lapidario Why U kraine must win. E
+n ese contexto, Bucha fue un toque a rebato. La masacre que no permitía
+dudar en la lucha sin tregua contra las hordas asiáticas. No dejó de
+ponerse de relieve que el teniente coronel Azatbek Omurbekov, cono-cido
+como el «carnicero de Bucha» por su supuesto protagonismo en los hechos,
+comandante de la 64.ª Brigada de Fusileros Motorizados rusa, u
+nidad procedente de Siberia oriental, era él mismo de origen buriato y natural
+de Karakalpakistán, en Uzbekistán10 .  También se puso de relieve que
+habían participado fuerzas kadirovtsi, es decir, voluntarios chechenos enviados
+por Ramzan Kadírov, el líder de la República de Chechenia, por entonces firme aliada de los r
+usos11 . T
+odo ello sitúa a la guerra de Ucrania como una más de las contiendas de
+lo que en siglo /x.sc/i.sc/x.sc s e dio en llamar la Cuestión Oriental. Esto es, una /x.sc/i.sc/x.scserie
+de conflictos convencionales entre potencias, pero también de insur-gencia,
+que se sucedían cíclicamente en el menguante territorio del Impe-r
+io Otomano en descomposición. Eso dio lugar a un patrón secuencial similar al de H
+ackett, pero referido a casi cualquier crisis de Oriente. Las
+guerras de la Cuestión Oriental giraron en torno al enfrentamien-t
+o entre el Imperio Ruso en expansión y el Imperio Otomano en decaden-c
+ia. Y aunque estas empezaron ya en el siglo /x.sc/v.sc /i.sc y respondían a la ambi-c
+i ó n  r u s a  d e  t e r m i n a r  c o n v i r t i é n d o s e  e n  e l  n u e v o  i m p e r i o  c r i s t i a n o  d e  9
+Ib id. E n el post se puede consultar una lista con las dieciséis trigger massacres y fake trigger massacr
+es entr e 1989 y 2013.10
+El mejor compendio informativo sobre Omurbekov y su unidad se puede encontrar en W
+ikipedia, entrada «Azatbek Asanbekovich Omurbekov».11
+Oficialmente, el 141.º Regimiento Especial Motorizado.
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22279 O
+riente, lo que nos interesa aquí es la implicación europea occidental en ese
+esquema y el relato que aportó y se difundió. El cual, pocos años más tar
+de, sirvió para basar la expansión imperialista a partir de ocasionales matanzas de eur
+opeos o asesinatos de misioneros.E
+l libro de Mark Mazower L a revolución griega. 1821 y la creación de la
+Europa moderna12  es un excelente estudio del tipo de crisis internacional que,
+históricamente, condujo a la actual Ucrania 2022. Lo que no es sino una
+exposición de los mecanismos críticos de la Cuestión Oriental en el siglo
+/x.sc/i.sc/x.sc ,  que al pervertirse dieron lugar a la denominada t rampa balcáni-ca
+13 .  El esquema se desarrolla a partir de unas fases que se repiten una y o
+tra vez. En una primera, el Bárbaro Oriental, el Ogro, el Gigante dormi-d
+o —el Imperio Ruso, el Otomano—, se despierta y comienza a hacer de l
+as suyas. En tales circunstancias, surgen los valientes que se enfrentan a
+udazmente a la barbarie: griegos, búlgaros, serbios. Es el mito de David f
+rente a Goliat repetido una y otra vez en todas sus variantes. Curiosamen-te,
+durante la guerra ruso-turca de 1877-1878, las tropas otomanas que logran
+detener al rodillo ruso en la fortaleza de Pleven durante medio año concitar
+on la admiración de la prensa británica, que era básicamente anti-r
+rusa en virtud del Gran Juego con el que se disputaban ambos imperios el Asia Central.
+L
+a prensa occidental jugaba por entonces un papel tan importante como
+en la actualidad. Ante cada crisis, generaba una corriente entusiasta de
+simpatizantes. El caso más emblemático fue el de los filohelenos, du-rante
+la guerra de independencia griega, entre 1821 y 1827, que contó con
+la capacidad de movilización propagandística de artistas e intelectua-les
+de la talla de Byron, Goethe, Victor Hugo o Delacroix. Una caracterís-tica
+peculiar de este fenómeno era —y sigue siéndolo— que tales simpa-t
+ías unían a reaccionarios y liberales. Los unos proponían luchar contra el b
+árbaro por su religión impía; los otros, porque encarnaba al tirano opre-s
+or. En cualquier caso, lo que les unía era que ambas facciones exaltaban, c
+ada uno a su manera, la supuesta superioridad moral occidental. A partir de ahí, como se diría ho
+y en día, se generaba el relato.E
+n todos los casos, por parte de las cancillerías occidentales hay un tiempo
+inicial de actividad diplomática o, incluso, de inhibición ante el 12
+Mazower (2021).13
+Veiga (2002): p. 642.
+
+---
+
+280
+280U CRANIA 22n
+uevo conflicto de Oriente. Pero al final, en un momento u otro, aconte-ce
+la masacre de inducción. En la crisis matriz, el alzamiento griego de 1821,
+es la matanza de Quíos, la isla griega del mar Egeo donde en marzo de
+1822 fueron masacrados 22.000 de sus habitantes por las tropas oto-manas,
+tragedia inmortalizada en el cuadro de Eugène Delacroix (1824) que
+actuó como un verdadero panfleto gráfico a favor de la causa de los insurr
+ectos. Otro ejemplo célebre fue el de la masacre de Batak (Bulgaria) acaecida
+durante la denominada Insurrección de Abril de los búlgaros, en 1
+876. En esa localidad y en sus alrededores, fuerzas irregulares otomanas contratadas
+para la ocasión —los denominados başıbozuks— asesinar on a unos
+cinco mil hombres, mujeres y niños, en medio de todo tipo de bru-talidades.
+El periodista estadounidense Januarius MacGahan, que escribía para
+el N ew York Heraldy el dD aily News, dio un fuerte impulso a la causa b
+úlgara con sus reportajes sobre la masacre, en los que describía al detalle el
+hedor de la podredumbre que emanaba de los miles de cadáveres des-compuestos
+y desmembrados, incluyendo los fetos arrancados de los vien-t
+res de sus madres embarazadas.E
+n tiempos más actuales, es bien conocida la masacre de Srebrenica en
+Bosnia (1995) que impulsó la derrota final de los serbios en Bosnia y l
+os llevó a la mesa de negociaciones en Dayton, a partir del momento en que
+la embajadora de los Estados Unidos ante las Naciones Unidas, Ma-deleine
+Albright, denunció matanzas cometidas por los serbios en dicha localidad
+en base a las fotografías de supuestas fosas comunes tomadas por aviones
+espía norteamericanos. La ocasión (10 de agosto) fue oportuna, por
+que por entonces el Consejo de Seguridad de la ONU lanzaba la pri-mera
+condena contra los abusos croatas en la Krajina durante su reciente O
+peración T ormenta ( Oluja), entre el 4 y el 7 de agosto. Los sucesos de S
+rebrenica habían tenido lugar entre el 13 y 22 de julio.E
+l escenario de las Crisis de Oriente iba más allá de los Balcanes; incluía O
+riente Medio y hasta toda MENA, el Cáucaso y Ucrania14 .  U no de los c
+asos más flagrantes de manipulación propagandística para provocar el esce-na
+rio de una t rigger massacre, que resultó fallida, fue la supuesta matanza de H
+ula (Siria). En una espectacular fotografía publicada por BBC, pocas horas d
+espués de ese incidente, podían verse hileras de cuerpos amortajados. Muy p
+ronto la reivindicó su autor, el fotógrafo Marco di Lauro, denunciando que 14
+Serwer (2019) incluye explícitamente a Ucrania.
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22281 s
+u trabajo se estaba utilizando contra el régimen de Siria. La fotografía real h
+abía sido tomada en la localidad de Al-Musayyib, al sur de Bagdad, Irak, el 2
+7 de marzo de 2003. Los cadáveres, presumiblemente, eran víctimas de las fue
+rzas americanas. Lógicamente, la situación dio un vuelco, la «noticia» d
+ejó de interesar y desapareció de los medios15 . F
+ase final y cierre. T ras la masacre de inducción, con el consiguiente r
+evuelo mediático, se precipita alguna forma de intervención occidental, q
+ue se produce de forma directa o por apoderado. Algunos ejemplos: la b
+atalla naval de Navarino en Grecia, 1827; el desembarco franco-britá-n
+ico en Crimea, 1853; guerra ruso-turca de 1877; la guerra punitiva del I
+mperio Austrohúngaro contra Serbia, que condujo a la Primera Guerra M
+undial; la intervención de la OTAN en Bosnia, en 1994, y los bom-b
+a r d e o s  d e  S e r b i a ,  t a m b i é n  a  c a r g o  d e  l a  O T A N ,  e n  l a  p r i m a v e r a  d e  1
+999, relacionados con la denominada masacre de Račak, en enero del a
+ño anterior. Pero hubo otros casos más recientes y ya olvidados, como e
+l de las supuestas «violaciones de la Viagra» cometidas en abril de 2011 p
+or fuerzas leales a Muhamar el Gadafi en Libia, atiborradas de pastillas a
+zules suministradas por el mando, una denuncia que nunca pudo ser pr
+obada16 . C
+ena en Estambul, julio de 2005H
+acia finales de mayo de 2022 me telefonea Andrea Rizzi, de E l País, para r
+ecabar algunas opiniones sobre el régimen turco de Erdoğan y la situa-c
+ión actual en T urquía. En los medios oficialistas están preocupados con l
+as reticencias de Ankara a admitir a Finlandia y Suecia en la OTAN. N
+ecesitan un retrato del régimen en clave de autocracia que no funciona, por
+que su tendencia a vetar a las democracias liberales genera una especie de Kr
+yptonita fatal para el torpe T urco malvado.Y
+tras colgar el teléfono, caigo por una sima de memoria y me veo d
+e nuevo en Estambul, diecisiete años atrás, vistiéndome apresurada-m
+ente con el mejor traje que poseo, un terno gris plomo, para cenar 15
+[Veiga y González-Villa] (2013).16
+«Estados Unidos acusa a Gadafi de suministrar Viagra a sus fuerzas para que comentan vio-laciones», en
+E l Confidencial, 29 de abril de 2011.
+
+---
+
+282
+282U CRANIA 22c
+on el señor Selahattin, el tío de mi amiga Sinem. Estoy ante el espejo, d
+ándole los últimos toques al nudo de mi corbata preferida, más jo-v
+en, con la ilusión de mediados de la cuarentena, esa edad en la que p
+iensas que ya no puedes llegar mucho más lejos sin deteriorarte. «Ve a
+verlo, si vas a Estambul, no te decepcionará», me había aconsejado e
+lla con una de esas sonrisas suyas algo maternales, pero a la vez enig-m
+áticas.S
+iempre confío mucho en las recomendaciones de Sinem, básicamen-t
+e kurda pero algo turca por parte de padre y un poco georgiana por parte d
+e madre. No en vano ha sido mi profesora particular de turco durante un t
+iempo. Es, además, una  relevante historiadora otomanista. Por tanto las clases
+de idioma derivaban muchas veces en excursiones por el  venerable jar
+dín de la cultura turca, por cuyos recovecos me paseaba, con deteni-miento y paciencia, un poco como a un niño asombrado
+. Así que, unos días después de llegar a Estambul, telefoneo a su t
+ío.A
+l otro lado de la línea me responde una voz masculina, un hombre m
+ayor, pero de dicción rápida. Habla un inglés muy bueno, que resultó ser
+de Cambridge. «¡Bienvenido! Mi sobrina me avisó de su visita. Y si usted
+es amigo suyo, debe de ser alguien importante. ¿Cuánto tiempo se v
+a a quedar en la ciudad? ¿Le envío mañana mi coche con el chófer y nos encontramos? ¿S
+í? ¡Perfecto!»Y
+a es el día siguiente y así, tras anudarme mi corbata preferida, veo que m
+e espera ante el hotel el automóvil del señor Selahattin a la hora convenida, con
+una puntualidad anglosajona. Los turcos antiguos cultivaban una calcu-l
+ada impuntualidad basada en precisas consideraciones de cordialidad orien-ta
+l. No había que demostrar una mayor puntualidad que el visitante, para no p
+onerlo en una situación incómoda. Mejor situarse inicialmente por debajo d
+e él y llegar un poco tarde a propósito. No mucho, sin abusar. Tan solo unos pocos
+minutos como deferencia. Y, por supuesto, nada de llegar antes que e
+l otro, eso es cosa de personas ansiosas e inseguras. Pero eran otros tiempos u
+otros hombres. El tío de Sinem parece más cortado por otros patrones mo-d
+ernos.E
+l chófer sabe algo de inglés, se maneja. Y nos hundimos en el tráfico e
+stambulita una tarde fresca de julio de 2005, mientras Europa se achicharra de calor
+.N
+o sé dónde me lleva el conductor, apenas me da unos vagos de-t
+alles. A la residencia del señor Selahattin, parece sugerir. Tampoco me
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22283 i
+mporta mucho; disfruto de aquel baño en el Estambul cotidiano des-d
+e el cómodo asiento de cuero de un automóvil de alta gama, y con ch
+ófer. E
+stoy allí becado por el Ministerio de Asuntos Exteriores. Me dedico a
+evaluar factores favorables al ingreso de T urquía en la Unión Europea. S
+on los años del gobierno Zapatero y este ha apostado por ese país, que ha h
+echo frente común con España durante la crisis de Irak, cuando el go-b
+ierno retiró las tropas del país árabe tras los atentados del 11 de marzo del a
+ño anterior. Según mi amiga Sinem, su tío Selahattin me puede ser de ayuda. N
+o me explica más.D
+amos vueltas y más vueltas, sorteamos atascos hasta quedar varados en
+medio del inmenso puente intercontinental sobre el Bósforo, entre autobuses
+llenos de colegiales uniformados, turismos conducidos por aburri
+dos oficinistas de regreso a casa y conductoras turcas tocadas con el h
+iyab, que dota a sus cabezas de curiosas formas braquicéfalas estampadas en seda.
+P
+or fin, dos horas más tarde, el automóvil se detiene ante un coque-t
+o yalı, un pequeño palacete otomano de madera, de los que todavía qu
+edan a lo largo del Bósforo. El chófer me señala la puerta. Debo lla-ma
+r al timbre.A
+bre un mayordomo de novela, con su terno impecable. Me con-d
+uce directamente al balcón de la vivienda, que no es un balcón cual-q
+uiera, sino un rincón de ilustración de cuento oriental. La balaustra-d
+a de madera de una edad indeterminada se abre al Bósforo en toda su m
+ajestad. Estamos en Üsküdar, la parte asiática de Estambul, de donde p
+artían en la antigüedad las caravanas hacia Armenia y Persia. Allí en-f
+r e n t e  e s t á  e l  T o p k a p ı ,  l a  T o r r e  d e  G á l a t a  u n  p o c o  m á s  p r ó x i m a ,  l a  T
+orre de la Doncella, y el paisaje surcado por el siseo de la navegación, l
+a brisa y el graznido de las gaviotas. No recuerdo que ningún barco h
+iciera sonar su sirena, pero mi imaginación y mi memoria me lo dic-t
+an así. D
+esde su estatura, el mayordomo me ofrece tomar algo, lo que desee. S
+olo se me ocurre pedir un buen vino, algo en armonía con tanta majes-t
+uosidad. El sirviente no tarda en aparecer con una bandeja de plata y una copa de ex
+celente Oporto. M
+e deja en soledad para que me deleite con la caída de la tarde sobre el
+inmenso Bósforo. Y aunque el tiempo no puede detenerse astronómica-
+
+---
+
+284
+284U CRANIA 22mente,
+sí lo hace como experiencia mística. En una esquina de la fachada d
+e aromática madera gastada por el sol, una vitrina incrustada muestra viejos
+juguetes que quizá han pertenecido a los hijos de algún antiguo p
+ropietario de aquella belleza arquitectónica.S
+upongo que el señor Selahattin se personará en algún momento, p
+ero pasa el tiempo y vuelve a comparecer el mayordomo, que me ofrece una
+visita al yalı.  E l interior es elegante en su sencillez, pero en las paredes lucen
+basmalas d e  r e f i n a d a  c a l i g r a f í a  y  s u p o n g o  q u e  m u y  a n t i g u a s .  L a s  basmalasc
+ortinas y estores doran la luz en bandas horizontales y verticales y arran-can
+guiños cómplices a la cubertería de plata, que seguramente tendría mil y una historias que contar
+.E
+l mayordomo se comporta con gran parsimonia. Pasamos un buen rato
+visitando todos los rincones del palacete, en el cual es casi seguro que n
+o reside nadie. Luego me devuelve al balcón, no sin ofrecerme alguna otra
+bebida, o lo que desee tomar. Imagino que el señor Selahattin estará a
+l llegar, puede que algún negocio lo haya retrasado. Pero me da lo mismo e
+sperar, el paisaje es embriagador, empapa todos los sentidos. Es el cielo y el
+mar en el que uno quisiera zambullirse en el momento de morir. Paso quizás
+una hora notando tenuamente cómo el sol cae y el aire se tiñe de azul lav
+anda y luego de violeta. E
+ntonces vuelve de nuevo el sirviente y me anuncia que cenaré en media
+hora. Me explica el menú para que pueda escoger. Pero ¿y el señor S
+elahattin? «No ha podido llegar a tiempo, le ruega que le disculpe. Pero le ofr
+ece una cena en el yalı.» Y
+así fue cómo aquella noche de verano en Estambul me sentí como una
+especie de James Stewart, cenando en soledad con mi traje gris plomo, en
+la cabecera de una larga e inmensa mesa de un misterioso palacete otomano
+que, sin duda, habría inspirado a Hitchcock. Y sin lograr resol-v
+er el misterio. ¿Qué hacía allí, en medio de aquel lujo secreto? ¿Quién era r
+ealmente el señor Selahattin, que disponía de aquella fortuna?P
+oco más tarde, de regreso al hotel, el chófer recibió una llamada en s
+u móvil. Respondió brevemente y me lo pasó. Era el señor Selahattin. «¿Q
+ué le ha parecido mi yalı? ¿Le gustó?» Por supuesto, no tenía casi ni palabras
+para describirlo. Fijamos otro encuentro, para el día siguiente. E
+sta vez iría directamente a su oficina.Y
+allí compareció otra vez el chófer, de nuevo a primera hora de la t
+arde, y lo saludé como a un viejo aunque distante conocido. Esta vez
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22285 e
+l recorrido fue más corto, y nos detuvimos cerca de las antiguas mu-r
+allas de la ciudad. El señor Selahattin era el representante para toda T
+urquía de una conocida cadena minorista internacional de juguetes, r
+opa y productos para bebés. No conseguí encajar bien el logo de la f
+achada con la elegancia esencial del recóndito y alı, no me cuadraba. D
+espués supe, cuando se desvelaron los misterios hasta donde se pu-d
+ieron desvelar, que solo temporalmente se había puesto al frente de la e
+mpresa de su hijo.E
+l negocio estaba gestionado por empleados de confianza, con la v
+ieja secretaria al frente y archivadores de cartón. Apenas había algún p
+rimigenio ordenador amarillento. En medio de aquel curtido ambiente s
+e abrió de pronto una puerta por la que compareció el señor Selahattin c
+omo un torbellino. Era un hombre de más de setenta años, bajo, enér-g
+ico, que conservaba un aire juvenil de hacía treinta, en forma de las p
+untas del cuello de la camisa invadiendo las solapas de la americana. M
+e saludó con una cordialidad arrolladora y me arrastró hacia el despa-c
+ho, enorme, de techos altos, desproporcionado, lleno de archivadores d
+e cartón. N
+ada más sentarnos, la secretaria le pasó una llamada urgente. Du-rante
+unos minutos mantuvo una conversación en su inglés fluido y viva-r
+acho. Cuando terminó, regresó de nuevo al sofá. «Qué capullo, es un empr
+esario americano que está moviendo cielo y tierra para que le den la embajada.
+Ya sabe, allí se compran estas cosas». Estuvimos charlando un rato,
+no demasiado largo, durante el cual el hombre se mostró cordial pero medido
+y discreto. Al terminar, su amabilidad estalló de nuevo como un castillo
+pirotécnico. ¿Era cómodo mi hotel? ¿Limpio? ¿No prefería quedar-me
+en el yalı  durante el resto de los días de mi estancia en Estambul? Puso a
+l mayordomo y hasta al chófer a mi disposición.C
+uando regresé a Barcelona, me precipité a quedar con mi amiga Si-nem,
+¿Quién era su tío, r ealmente?  «Bueno, su nombre es Selahattin, es d
+ecir, Saladino, ya sabes», comentó con una de sus sonrisas tímidas y algo enigmáticas.
+El gran caudillo reactivador del Islam en el siglo /x.sc/i.sc/i.sc ,  sultán de E
+gipto y Siria, fundador de la dinastía ayubí y vencedor de los cruzados, a quienes
+arrebató Jerusalén y expulsó de Tierra Santa. Saladino era kurdo, como
+el tío de Sinem. Y con el tiempo, Selahattin Beyazıt se había conver-tido
+en una poderosa leyenda discreta. Muchos turcos recordaban que h
+abía sido presidente del Galatasaray en los años setenta: nueve copas, dos
+
+---
+
+286
+286U CRANIA 22a
+ños campeón de Liga. Pero su currículum empresarial mareaba. Era, en es
+encia, uno de los mayores industriales de T urquía. Metalúrgicas, sector a
+utomotriz, inmobiliarias. Había sido armador y presidente de la junta di-r
+ectiva de Türk Pirelli. También existió un Beyazıt Group of Companies. E
+l resto de su trayectoria se relataba en un tono de voz más bajo. Había s
+ido íntimo de Muharrem Nuri Birgi, el gran diplomático de Ankara, em-b
+ajador en Londres, el «turco que hacía reír a la reina», de quien se hizo a
+migo personal. El primer delegado turco en Bilderberg, ya en 1958. Re-p
+resentante permanente de T urquía ante la OTAN. Y al morir, le cedió i
+mportantes alternativas y toda su fortuna a su amigo Selahattin. Así
+fue cómo el tío de Sinem llegó a ser representante de T urquía en B
+ilderberg entre 1972 y 1992, donde se volvió tan poderoso que los suce-siv
+os gobiernos británicos consultaban con él qué diplomáticos serían los más
+adecuados para presentar credenciales como embajadores en Ankara. F
+ue él quien preparó y designó a los asistentes del Club a la reunión de 1975
+en Çeşme, cerca de Esmirna. Allí acudieron Joseph Luns, el recién nombrado
+Secretario General de la OTAN, Zbigniew Brzezisnki y Do-n
+ald Rumsfeld; pero, sobre todo, compareció Margaret Thatcher, amiga d
+e Beyazıt, de quien se suele decir en T urquía que le allanó el camino hacia el
+poder en aquel año en el cual la que sería «Dama de Hierro» se hizo con la dir
+ección del Partido Conservador británico.P
+ero, sobre todo, Nuri Birgi y él habían sido hombres de Adnan Mende-r
+es, el primer ministro liberal, líder del primer partido de oposición al kema-li
+smo laico; musulmanes moderados, sí, pero musulmanes. Aquella joven g
+eneración que metió de lleno a T urquía en los años cincuenta del siglo /x.sc/x.sc , a
+lgo así como un primitivo equivalente de la democracia cristiana «a la tur-c
+a». Menderes fue ahorcado por los militares que dieron el golpe de Estado d
+e 1960. Un final cruel e injusto. Pero personas influyentes de ese entorno, c
+omo Nuri Birgi y el kurdo Selahattin Beyazıt, continuaron representando a
+T urquía en Bilderberg y manteniendo relaciones privilegiadas en la OTAN.D
+e esos años surgió una élite turca muy imbricada en el mundo del poder
+anglosajón, que no exactamente europeo. Personalidades formadas en
+las mejores universidades inglesas y estadounidenses, con influencia en L
+ondres y Nueva York. Ese tipo de relación preferente, notablemente des-conocida
+en el resto de Europa, la que auspició que Erdoğan vetara como si
+tal cosa, el ingreso de Suecia y Finlandia en la OTAN, a mediados de m
+ayo de 2022, y que se terminara convirtiendo en estadista de referencia
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22287 en
+la cumbre de la OTAN en Madrid, en julio. T oda una jugada en la línea de
+generar-resolver el problema, lo que le permitía mantener su protago-nismo
+como árbitro en la guerra de Ucrania17 ,  tras haber sido la mano que había manejado a su conv
+eniencia la guerra del Alto Karabaj en 2020.D
+e mi encuentro con el señor Selahattin Beyazıt —fallecido, por cierto, en
+enero de 2022, muy poco antes de que estallara la guerra de Ucrania— a
+prendí dos cosas importantes. Primero, que las relaciones de los diversos s
+ocios con la OTAN varían según los países. Con el tiempo, la Alianza ha d
+evenido algo más que una mera coalición militar. Es un entramado políti-co
+que ha generado su propia subcultura. Lo segundo que corroboré, más que
+aprender, fue que T urquía es un país muy rico y complejo, con niveles p
+rofundos de entendimiento y disensión, y con unas capacidades de lideraz-g
+o internacional normalmente superiores a las que suelen concederle los d
+esdeñosos europeos. Angloamericanos, israelíes y rusos llevan años enten-d
+iéndose mejor con Ankara que Bruselas, Berlín o París, capitales que, pre-s
+as de sus complejos históricos, todavía siguen considerando a T urquía poco m
+enos que como el «Hombre Enfermo» del siglo /x.sc/i.sc /x.sc. P
+ero lo paradójico es que, al hacerlo así, continúan insistiendo en los viejos
+clichés que antaño sirvieron. Claro, si consideramos que la guerra d
+e Ucrania de 2022 es una manifestación más de las Crisis de Oriente, podría
+pensarse que todavía poseen utilidad. El impacto que tuvo la ma-s
+acre de Bucha así parece demostrarlo. ¿Pero queda algo hoy en día de la vieja trampa balcánica?
+E
+l mecanismo de la trampa balcánica seguía los siguientes pasos. Pri-m
+ero: a un patente desinterés inicial por la crisis detonada en cualquier punto
+de los Balcanes le sucedía la presión de los medios de comunica-c
+ión. En segundo lugar: ante la tensión por el «hagamos algo» y la amena-za
+del desprestigio político que comportaba la inactividad, la o las grandes potencias
+escenificaban una actitud intervencionista, para la que no siem-p
+re estaban preparadas. T ercero: invariablemente, la opinión pública in-t
+ernacional y los actores balcánicos suponían que los grandes disponían de un
+plan para terminar con la crisis. Casi nunca era así, pero ninguna po-tencia
+lo habría admitido, al menos de entrada: su prestigio quedaría da-17
+«Las tres victorias de Erdogan», por Lluís Miquel Hurtado, E l Mundo, 30 de junio de 2022; «
+T urkey scores with NATO brinkmanship, flexing geopolitical veto», por Ken Moriyasu y Si-nan
+Tavsan, N ikkei, 1 de julio de 2022 [consultables en r ed].
+
+---
+
+288
+288U CRANIA 22ñ
+ado. Último acto: caen en la trampa de la implicación y terminan salien-do
+como buenamente pueden18 .  El patético colofón es que los balcánicos tampoco
+solían obtener lo que buscaban con sus maniobras compromete-doras.
+Los grandes poderes terminaban mirando por su conveniencia o se p
+reocupaban más por fastidiar a los rivales de su talla que por los intereses de los pequeños intrigantes.
+A
+simple vista, podemos reconocer algunos trazos de ello en la crisis d
+e Ucrania. Pero en realidad sabemos que este país quedaba ya muy lejos de los B
+alcanes en 2022. ¿Por qué?E
+n primer lugar, porque los aliados occidentales de la Ucrania invadi-da
+estaban utilizando unos argumentos que ya no eran aquellos que pusie-r
+on en juego hace veintitantos años. En realidad, eran los opuestos. C
+omo un matrimonio discutidor que termina por intercambiarse los a
+rgumentos, la defensa del independentismo y la federalización que hicieron los
+occidentales en los Balcanes —y en la Unión Soviética en descomposi-c
+ión— se había convertido en apoyo cerrado al mantenimiento del centralis-m
+o de Kiev y la imposición de una cultura monoétnica sobre todo el territo-r
+io ucraniano. De hecho, el recurso a la etnicidad, tan usual en los conflictos d
+e la antigua Yugoslavia y que era tributario del discurso identitario de la p
+osmodernidad neoliberal, remitió mucho en la crisis ucraniana. Mientras t
+anto, los rusos habían insistido en la federalización de Ucrania como solu-ci
+ón a la mayor parte de los problemas, tanto internos como de relación con l
+os vecinos. Puede que ninguna de las dos aproximaciones a la cuestión ucra-n
+iana sea en sí misma la panacea, pero Putin había dejado claro que utilizaba un
+a machacona estrategia «de espejo de la bruja» con las potencias occidenta-l
+es, poniendo ante sus ojos la réplica rusa a los principales abordajes occiden-t
+ales de la Cuestión Oriental en los años de la Posguerra Fría, como ya se ha d
+icho: Ucrania por Bosnia, Crimea por Kosovo, Siria por Libia; y hasta lanzó a
+cusaciones de supuestos laboratorios de la OTAN en Ucrania para la guerra químico-bacteriológica,
+como uno de los pretextos para la invasión del p
+aís, en referencia a las inexistentes armas de destrucción masiva que el presi-d
+ente Bush quiso ver en Irak antes de la invasión de 200319 .  Por si faltara a
+lgo, la política de integración europea para los países del Este, del antiguo 18
+Veiga (2002): p. 642.19
+«¿Armas biológicas en Ucrania? Las acusaciones de Rusia contra Kiev en medio del conflic-to», en canal
+YouT ube de F rance 24, 15 de mar zo de 2022 [consultable en red].
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22289 C
+OMECON, trastocada en crisis energética e inflación conforme las sancio-n
+es contra la economía rusa en 2022 «rebotaban» hacia la Unión Europea.P
+or lo tanto, nos volvemos a encontrar que, como sucedió durante las dos
+guerras mundiales, el frente balcánico era, a la hora de la verdad, se-cundario
+. Las guerras de 1912 y 1913 no supusieron que durante la Pri-m
+era Guerra Mundial el centro de las operaciones estuviera en los Balca-nes.
+Al contrario, tras la invasión de Serbia, a finales de 1915, ese frente se e
+stancó y su importancia quedó relegada. Y las guerras de secesión yugos-lav
+as, en los años noventa del siglo /x.sc/x.sc ,  no han hecho que la situación en l
+os Balcanes tenga peso en la guerra de Ucrania, salvedad hecha del puen-te
+aéreo organizado desde China para proveer a Serbia de sistemas antiaé-r
+eos avanzados FK-320 ,  en clara alusión, por parte de Pekín, al bombardeo d
+e su embajada en Belgrado por aviones estadounidenses en mayo de 1999. A
+quellos retos en los que «Europa se jugaba mucho» en los Balcanes, que justificaban
+una y otra vez el «derecho de injerencia», han quedado olvida-dos;
+porque el desafío estaba, ya por entonces, a finales del siglo /x.sc/x.sc ,  en R
+usia y la Europa Central y Oriental21 . D
+e hecho, por entonces, la diplomacia estadounidense ya dejó fuera de
+juego los mecanismos de la trampa balcánica en Dayton, en una virtuo-sa
+demostración de política de cinta americana que duró veintidós días de negociaciones
+contra reloj, cuidadosamente programada, en el aislamien-to
+total de una base aérea del Medio Oeste de los Estados Unidos. Solu-ciones
+directas, empíricas, corto por aquí y pego por allá. Lo tomas o lo d
+e j a s .  W a s h i n g t o n  h a b í a  a c e r t a d o  e n  l a  i d e a  d e  q u e  s a l i r  d e  l a  t r a m p a  balcánica
+era más una cuestión de actitudes que de documentos concretos o de soluciones diplomáticas per
+fectas y por ello inexistentes. Lo
+malo fue que esa política circunstancial de la cinta americana se fue t
+ransformando en una costumbre, en una constante, una sistemática Tr ampa  22
+; es decir, la solución en falso a cualquier problema abordándolo desde la b
+urocratización más absurda. Llevada a su vertiente diplomática, esa Tr ampa  22
+e ra el doble rasero sistemático que habían venido aplicando los vencedores2d
+e la Guerra Fría durante más de veinte años, a base de justificaciones legalis-t
+as espurias, doble moral, falacias circulares y de todo tipo y mucho respaldo 20
+«Serbia recibe envío secreto de misiles chinos», AP Noticias, 20 de abril de 2022 [consultable en r
+ed].21
+A pesar de lo cual, todavía es contemplada ocasionalmente como parte de la vieja Cuestión O
+riental. Véase: Serwer (2019).
+
+---
+
+290
+290U CRANIA 22d
+e la fuerza. La T rampa 22f ue un Yanukovich y una Ucrania sin salida ante 2l
+a disyuntiva de firmar el Acuerdo de Asociación con la Unión Europea o h
+acerlo con Rusia para la integración en la Unión Aduanera Euroasiática: u
+na elección sin salida porque, fuera cual fuera, siempre rasgaría al país en d
+os. La Tr ampa 22f ueron los Acuerdos de Minsk destinados a no ser cum-2p
+lidos y a prolongar la guerra civil en Ucrania hasta enlazarla con la interven-ci
+ón rusa. Pero la T rampa 22t ambién fueron unas sanciones contra Rusia 2que
+convirtieron a la Unión Europea en rehén del conflicto entre Moscú y W
+ashington, al mismo nivel que Ucrania. Algo que, en realidad, buscaban a
+mbas potencias: meter en el redil, cada uno en el suyo, al exitoso y por lo t
+anto problemático para ellos proceso de integración europeo.¿Cómo
+queda entonces la tipificación de la guerra que se gestó en U
+crania? Mucho se ha insistido en el renacimiento de la Guerra Fría, un argumento
+que en realidad tiene ya unos cuantos años. Arrancó en torno a
+2003 de la mano de Joseph Stroupe, editor del G lobal Events Magazine online
+y  analista estadounidense especializado en lo que se dio en llamar la onlinen
+ueva geopolítica de la energía. Por entonces los estadounidenses empeza-b
+an a tener serios problemas en Irak y veían con creciente recelo la posibi-lidad
+de que catalizara un frente ruso-europeo: recordemos que la iniciati-v
+a estadounidense de invadir Irak en base a unas armas de destrucción m
+asiva, que todo el mundo sabía eran inexistentes, había generado un no-t
+able rechazo entre los países de la Vieja Europa. Así que la insistencia en la «
+nueva amenaza rusa» devenía más y más rentable mediática y políticamen-t
+e en Washington. En Moscú, Putin, como en una llave de judo, reconvirtió e
+sa desconfianza en combustible para inflamar su política de recuperación n
+acionalista del orgullo ruso y mostrar a los suyos lo poco fiable que era O
+ccidente. Que, en realidad, ni siquiera tenía amigos entre sus propias filas y
+utilizaba las crisis para ponerlos firmes, de tanto en tanto22 . P
+ollo a la Kiev, julio de 2014E
+ncontré a Sergey y Alla con facilidad en medio de la Plaza de Catalunya en
+un soleado día del verano de 2013. Estaba de bote en bote, llena de turistas
+de medio mundo, embutidos en sus ropas de verano de colores 22
+Lopatonok y Stone (2016): minuto 1h:19.
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22291 c
+hillones, pero fue sencillo dar con aquella pareja de eslavos de piel cruda, env
+ergaduras poco usuales y vestidos ambos de azul y amarillo. Unas se-manas
+antes, el correspondiente coordinador del Departamento me había pasado
+la oferta de dirección de tesis. Ambos provenían de una universi-dad
+privada varsoviana no muy conocida, pero llegaban con buenas reco-mendaciones
+de la Universidad sueca de Lund, que eso sí era todo un b
+lasón. En medio de Barcelona y de su agobiante calor húmedo de julio, nos
+sentamos en las viejas sillas de madera del venerable Café Zúrich y empe
+zamos a darles vueltas a sus proyectos académicos. U
+n año más tarde, coincidiendo con las mismas fechas, yo aterrizaba e
+n Kiev. Alla y Sergey estaban por entonces instalados en el Departamen-to,
+trabajando en sus tesis doctorales, y valía la pena sacar todo el provecho posible
+de aquella colaboración. Mi grupo de investigación estaba lanzan-d
+o su propia revista, y el primer número estaría dedicado a una serie de p
+roblemáticas relacionadas con Ucrania, los Países Bálticos y Polonia. La r
+evuelta del Euromaidan estaba reciente, y aunque era un asunto demasia-d
+o próximo como para publicar algo sobre él, algunos aspectos de las cir-cunstancias
+políticas que lo habían rodeado sí que eran abordables en nuestra
+orgullosa cabecera, T iempo devorado.  Un asunto que me interesa-ba
+especialmente era el corredor Viking, una vía de comunicaciones que par
+ecía estar llamada a conectar el Báltico y el mar Negro. Aunque yo no i
+ba a firmar el artículo que analizaba esa cuestión, y dado que faltaba mu-cha
+documentación al respecto, proyecté unas medio vacaciones en base a un
+circuito que desde el puerto de Klaipeda, el teórico arranque del corre-d
+or Viking, me llevara a Kiev. La idea de llegar hasta Odesa, en el extremo meridional
+del corredor, no resultaba aconsejable, por falta de tiempo y de contactos
+en la ciudad portuaria; pero también porque en mayo, hacía poco
+más de dos meses, había tenido lugar allí la masacre en la Sede de los S
+indicatos, y en una guerra civil, como la que estaba comenzando en Ucra-n
+i a ,  n o  r e s u l t a  a c o n s e j a b l e  a r r i e s g a r s e  a  o f r e c e r  l a  a n t i p á t i c a  i m a g e n  d e  «turista de la
+guerra». Así que, después de trazar el recorrido Riga-Klaipe-da-V
+ilna, di el salto por vía aérea a Kiev, para ahorrarme los problemas de visados que suponía continuar por ferr
+ocarril vía Bielorrusia.A
+lla y Sergey trabajaban para un importante think tanku craniano, eltankI
+nternational Centre for Policy Studies, o ICPS, con sede en Kiev. Así que, por
+su intermediación, concerté una cita en esa institución para ver qué sinergias
+podríamos crear entre mi Departamento y ellos. Abusando de la
+
+---
+
+292
+292U CRANIA 22paciencia
+de ambos, les sugerí la posibilidad de contactar con algún amigo s
+uyo en la ciudad para hacerme con una idea rápida de cómo moverme p
+or Kiev, cómo manejarme con los transportes públicos, cajeros, calles y p
+untos de referencia y, sobre todo, sortear los posibles problemas de orden público
+que pudiera tener una capital que, habiendo salido de una revuel-ta
+tan dura como el Euromaidan, afrontaba el comienzo de una guerra civil.
+T
+odo fue como la seda. En el aeropuerto me recibieron Jelena y su hermano,
+que me acercaron a la capital en su automóvil. Dimos un pri-mer
+paseo por el centro, aprendí las primeras nociones sobre cómo mover-me
+por allí, los precios correctos de las cosas y los inconvenientes de utili-zar
+determinados cajeros. A continuación fuimos a cenar el inevitable pero delicioso pollo a la Kiev
+. E
+ra verano, y como en muchas ciudades por esas mismas fechas, había algo
+eléctrico y pringoso a la vez en el ambiente, como un precipitado de los
+helados, la transpiración, las fritangas y la tensión estival de la gente que
+llenaba las calles. Kiev era una ciudad algo extraña, construida en las riberas
+inclinadas del Dniéper, que la partía y la hundía en dos. Mostraba un
+paisaje único, con cuestas y diversos niveles superpuestos, como tam-bién
+lo eran los estilos arquitectónicos y la envergadura de los edificios. E
+ra como si la ciudad representara en sí misma un gran agregado donde hubieran
+chocado el norte báltico, el sur levantino, el oeste europeo y el este r
+uso.P
+ero en aquellos días, lo que más llamaba la atención era el Maidan, la
+plaza de todas las protestas ucranianas. En un extremo del enorme espa-c
+io a dos niveles, los servicios de limpieza habían acumulado los restos de l
+a basura revolucionaria de febrero. Bajo el sol de julio, la gloria del invier-no
+lucía seca y descolorida. Pero todavía seguía instalada una buena parte de
+la parafernalia de aquella batalla en una plaza que había sido el Euro-maidan.
+La gran torre cónica con símbolos y banderas, los tenderetes de souv
+enirsq ue acompañan a las modernas revoluciones y, sobre todo, la enirsa
+ldea de ordenadas tiendas de campaña militares y chiringos varios, que le daban
+al conjunto un aspecto de campamento romano. Por supuesto, deambulaba
+más gente por las aceras aledañas que por el car dusy dusdecuma- nus
+d el Maidan posrevolucionario. Como en otras plazas levantiscas que nushabía
+visitado, empezando por Tahrir, en El Cairo, siempre hay activistas que,
+tras la victoria, se empeñan en continuar instalados en la plaza glorio-
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22293 s
+a. Aquello ha sido la aventura de su vida y no ven cómo regresar a la existencia
+cotidiana. Los moradores del Maidan no deseaban salir de sus r
+ecuerdos emocionados, pisar la calle, mezclarse con la gente, todavía cin-co
+meses después de que el pulso hubiera concluido. Muchos, sobre todo los
+miembros de las autodefensas, se habían enrolado en los batallones de v
+oluntarios y andaban guerreando allá por el Donbas. Vi a algunos en uniforme
+de camuflaje merodear por entre las tiendas, quizá de permiso. O vigilando a los políticos del nuev
+o poder.H
+abía reservado habitación en un aparthotel cercano al Maidan, en una
+estrecha calle dedicada al poeta Tarás Shevchenko. El establecimiento era
+correcto, moderno y limpio, pero desde mi ventana se veía, ondeando en
+la fachada de enfrente, la bandera amarilla con la runa W olfsangelen lo lque
+parecía una sede del Partido Social-Nacional de Ucrania. Se habían tomado
+la molestia de reordenar las denominaciones, pero poco más; por-que
+se trataba de un partido nacionalsocialista, es decir, un partido nazi. O
+uno más de ellos, en aquel país. Porque por entonces el PSNU estaba integrado
+en la coalición S voboda. Eso sí, el líder de ambos era el mismo: O
+leh Tiahnibok.T
+ras pasar la primera noche en la ciudad, por la mañana me dirigí a l
+a sede de la institución que debía visitar al día siguiente. También estaba cer
+ca, en una calle de edificios administrativos y ministeriales. Pero, para mi
+sorpresa, en la dirección señalada solo se encontraba una primitiva puer
+ta blindada con código de acceso. T uve suerte, al poco entró un indi-viduo
+charlando animadamente por el móvil y la dejó abierta el tiempo suficiente
+como para colarme. Sin embargo, la intriga continuaba. En el piso
+señalado, ninguna puerta lucia el rótulo del ICPS o de las siglas equi-v
+alentes en ucraniano, /uni041C/uni0426/uni041F/uni0414 .  En realidad, ninguna puerta de ningún piso
+anunciaba nada, como pude comprobar tras subir y bajar por las es-caleras
+de aquel edificio, que parecía un viejo B rownstonen eoyorkino eneestado de abandono
+.V
+olví a mi apartamento, y corroboré las señas. Eran las correctas. A primera
+hora de la tarde regresé a la misteriosa dirección. Desde el edificio adosado
+se podía acceder a un patio interior tradicional, de esos que abun-dan
+en los inmuebles de toda Europa Central y Oriental. Quizás existía una
+puerta posterior para acceder al centro de estudios. Nada. En su lugar, c
+uatro hombres charlando y tomando vino caliente en vasos de plástico. ¿D
+ónde lo habrían comprado?
+
+---
+
+294
+294U CRANIA 22U
+no de ellos hablaba un poco de inglés, el más joven. Le expliqué lo que
+buscaba y le enseñé la tarjeta de visita que me habían dado Sergey y A
+lla. Y enseguida me percaté de que había cometido un error. Estaban de v
+igilancia, y no hay nada peor que darle entretenimiento a unos tíos que p
+asan sus horas muertas ante un acceso, en un control de carreteras o p
+arados frente a una puerta. Se consultaron animadamente los unos con l
+os otros, en ucraniano, compitieron en corroborar datos en sus móviles y
+finalmente el rubio y más joven, el que hablaba inglés, me lo mostró: ¿
+Buscaba a est eh ombre? Si, ahí estaba, en la pantalla de su móvil: Vasyl eF
+ilipchuk, el director del ICPS. Diplomático, exministro de Asuntos E
+xteriores. E
+ntonces se volvieron amables, que es algo todavía más inquietante e
+n un grupo de vigilantes aburridos. Dos de ellos, el rubio y otro que solo hablaba
+ucraniano, me indicaron que les acompañara. Salimos por un acceso
+lateral y fuimos a parar a la estrecha calle de mi apartamento. Por un
+momento temí que fueran voluntarios del Partido Social-Nacional y me
+llevaran a su sede. Sobrepasamos la fachada de la bandera nazi y segui-mos
+calle arriba. A esas alturas comenzaron a ponerse obsequiosos, el nivel más
+alarmante de todos los que puede alcanzar un vigilante. Me empeza-r
+on a interrogar sobre la marcha, con un punto de complicidad siniestra. «¿Así
+que es usted español? ¿Nos podría hablar en su lengua? ¿No será us-t
+ed del Intelligence Service, eh?» Seguimos calle arriba y llegamos ante un edificio
+cúbico, de cemento. Allí, ante una garita abandonada, el rubio nos
+dejó esperando, al compañero y a mí, y penetró en aquella especie de n
+evera arquitectónica. Mientras hacíamos tiempo, me entretuve en char-l
+ar con el otro vigilante en una mezcla de serbocroata chapurreado con al-g
+unas palabras de ruso. Un vistazo a mi móvil me hizo sospechar dónde es-t
+ábamos: se había quedado sin cobertura, por culpa de un potente inhibidor d
+e frecuencias. «En definitiva, ustedes dos qué son, ¿a qué se dedican?», le p
+regunté un tanto irritado, más que atemorizado. Respondió que eran del se
+rvicio de seguridad. Y el edificio ante el que estábamos era la central d
+el SBU ucraniano, su fachada posterior, para ser más precisos.E
+n ese momento volvió el rubio, entre una de las columnas de admi-nistrativ
+os que salían del SBU. Era el final de la jornada. «Nada, no hubo suer
+te, ya ha salido el oficial al que buscaba». Por Dios bendito, ¿era nece-sario
+ir hasta la misma sede del SBU para dar con la dirección del ICPS o e
+l paradero de Filipchuk, a las seis de la tarde? Les expliqué pacientemente
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22295 que
+ya tenía una cita concertada con él, para el día siguiente, que no era nada
+tan urgente, que habían sido muy amables, pero que ya se habían molestado
+demasiado; y que adiós. Metidos de lleno en su actitud más z
+alamera, me propusieron ir a tomar unas copas o incluso dar un paso más allá, como indicó el r
+ubio, haciendo un gesto obsceno. Los
+dejé casi con palabra en la boca y regresé echando humo a mi a
+partamento. Pero lo peor estaba aún por llegar. Había dejado la tele en-c
+endida y a poco de entrar en la habitación saltó un adelanto informativo. E
+n la pantalla, los restos de un avión de pasajeros. Era el MH17. No se trataba
+de un accidente, acababan de derribarlo hacía una hora. Era el 17 de julio de 2014, y y
+o estaba en Ucrania.E
+ra muy probable que el incidente alterara todo mi viaje. Necesitaba más
+información, de qué iba aquello, quién lo había hecho y por qué, cancelaciones
+de vuelos. Pero antes tenía que encontrarme con Jelena y su hermano,
+con quienes me había citado el día anterior. Quizás ellos tenían más información.
+N
+o la tenían. Dimos un largo paseo, callejeando hacia el embarcadero d
+el Dniéper, hasta llegar a esa pequeña joya tímida que es la iglesia de San N
+icolás Taumaturgo, apenas una torre convertida en templo, construida so-b
+re una plataforma, en el mismo río. Era un día de verano, risueño, un eterno d
+omingo estivo, a pesar de que era jueves. La gente paseaba por las calles de K
+iev liviana, ajena a que gente como ellos mismos había caído desde los cie-l
+o s ,  s o b r e  l o s  c a m p o s  y  c a s a s  d e l  D o n b a s ,  h a c í a  u n  p a r  d e  h o r a s ,  f a m i l i a s c
+ompletas con los miembros descoyuntados, todavía con su ropa multicolor y
+chillona de turistas, maletas nuevas y unas vacaciones exóticas por estrenar.T
+odos teníamos ya la guerra instalada en la cabeza, solo disimulába-m
+os. Utilizamos el funicular que conecta el río con el centro histórico re-l
+igioso y administrativ o, salv ando la cuesta por la ladera escarpada. D e n
+uevo en la Kiev de las cúpulas doradas, pero también del Ministerio de A
+suntos Exteriores. Poco antes de llegar a la estrecha calle Tarás Shev-c
+henko, Jelena me recomendó que aguardara un rato antes de subir al a
+partamento. Me señaló un pub estilo irlandés. «Espera ahí una media h
+ora, y luego vuelves.» Era un buen consejo de gente avezada, del Este. Le h
+abía relatado mi paseo con los vigilantes. T odo el submundo de la segu-ridad y la vigilancia ucranianas debía de estar en ebullición.
+Y
+allí pasé media hora larga, algo más, por si acaso, bebiendo cerveza y viendo ajados vídeos de bandas de
+heavy metal  escandinav as.heavy metal
+
+---
+
+296
+296U CRANIA 22T
+ras regresar al apartamento, desde la tablet, contacté con mis discí-p
+ulos en Barcelona, explicándoles el caso. Me prometieron enviar mi nú-m
+ero de teléfono a la secretaria de Filipchuk. Y en efecto, pocos minutos más
+tarde, ella misma telefoneó. Adelantamos una hora el encuentro y sugirió
+esperarme en la acera, ante la puerta blindada misteriosa. T odo había
+quedado arreglado y conforme, pero pasé una mala noche, con los n
+ervios a flor de piel. A eso de las cuatro de la madrugada me despertó del duermev
+ela una fuerte explosión, hacia la cercana Maidan. Pero no escu-ché sir
+enas de policía o bomberos.A
+las ocho y cuarto, ya estaba ante el centro de estudios. En la calle me esperaba
+una mujer en traje de oficina color rosa. Pocos minutos más tar-d
+e me recibía el señor Filipchuk con el plantel de dirección al completo, u
+n grupo de jóvenes prometedores. Estaban desarrollando una campaña d
+e prestigiación de la causa ucraniana entre intelectuales de diversos países e
+uropeos. ¿Podría ayudarles en eso? La exposición duró varios minutos, p
+ero básicamente se reducía a esa propuesta central. Aquella gente era a
+mable y eficiente, pero la propuesta era demasiado política, no dejaba mucho
+espacio para un intercambio académico con mi entorno. Preferí s
+er sincero en esto. Como profesional y funcionario, mi trabajo se centra-ba
+en dirigir las tesis doctorales de mis alumnos. Pero podía sugerirles instituciones
+independientes, en el rango del ICPS, que estarían dispues-t
+as a ayudarles. A  priori, suponía que ellos ya deberían conocerlas, puesto que
+el Centro había sido fundado en 1994 a iniciativa del Open Society I
+nstitute, esto es, George Soros. T odo ello conectado con la constelación N
+ED (National Endowment for Democracy). Y eso era público y notorio, lo podía consultar cualquiera en
+Wikipedia. O sea que vuelta a casa.N
+ada más salir de la reunión, me dirigí a mi apartamento y cancelé las noches
+que había contratado. Por lo visto, todos los huéspedes estaban haciendo
+lo mismo. El derribo del MH17 había supuesto la anulación de la
+mayor parte de vuelos internacionales a Ucrania, incluyendo el mío, como
+pude comprobar por T witter. Lo más prudente era adelantar la sali-d
+a. «¿Seremos algún día un país normal?», comentó la recepcionista con t
+risteza. T ras ella, las grandes cortinas de terciopelo parecían haber perdido su
+fastuosidad. Aquella pregunta era toda una síntesis trágica del dilema ucraniano
+en los últimos veintitrés años. Por mi cabeza pasaron, como en una
+descarga brutal de dopamina, como las experiencias de revisión de vida
+que asaltan a los moribundos, los ímprobos esfuerzos de los ucrania-
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22297 nos
+para aflojar la tensión de la gigantesca tenaza de las quijadas este y o
+este. Pero en aquel verano de 2014, ya se podía escuchar el crujido de la nue
+z ucraniana resquebrajándose.S
+alí hacia la estación y compré un billete de tren a Varsovia que hube de
+pagar en grivnas, tras hacer cola ante el único cajero que funcionaba y r
+ezar por que no se hubiera quedado sin efectivo. Y así regresé, durante unas
+horas, a los viajes de mi juventud por el Este socialista, mochila al hombr
+o, en ocasiones a merced de las antojadizas disposiciones de las v
+entanillas. Volví a subir a un tren de aquellos años, robusto e intensa-mente pintado de v
+erde, sobre altos y férreos bogies . A
+partir de ahí, el paisaje, enorme e inalterable, como lo que parecía el
+destino histórico de Ucrania, ocupó aquella tarde que no terminaba. En las
+amplias playas de maniobras se podían ver convoyes completos de va-gones
+cisterna para el transporte de combustible, con matrícula de la veci-n
+a Bielorrusia. Al parecer, seguía llegando gasolina desde Rusia, a pesar del estado de guerra en el D
+onbas.S
+eguro que los hidrocarburos se desplazaban a mayor velocidad que a
+quel tren. Llegamos a la frontera bien avanzada la noche y, una vez allí, el c
+onvoy permaneció varias horas mientras se cambiaban los ejes de las rue-das
+o los bogies c ompletos. Mientras tanto se sucedió la procesión de los bogiesfuncionarios
+de aduanas. Primero los ucranianos, tirando a desaliñados. Y, por
+fin, un par de oficiales polacos, con su característica gorra chascás de cor
+ona cuadrada y los pantalones perfectamente planchados con la raya bien mar
+cada.P
+or la mañana, aunque no demasiado temprano, el tren llegó a Varso-v
+ia. Sin nada que hacer hasta subir al avión, fatigado, caminé hasta el c
+entro de la ciudad y me senté en un banco público que reproducía me-lancólica
+música de Chopin, como las primeras gotas de lluvia que antici-paban la tormenta.
+Aspav
+a en A nkara, agosto de 2104aE
+l abarrotado restaurante irradiaba jolgorio primaveral, lleno de comensa-les
+turcos que devoraban comida turca. T odo era abundancia, ruido y cá-lida
+diversión. Nosotros encajábamos bien en aquella velada en la que la luz
+del día aún inundaba las calles de Ankara. Como el nuestro, otros
+
+---
+
+298
+298U CRANIA 22r
+estaurantes se sucedían y hasta parecían superponerse en aquella corta av
+enida. Era un A spava, c omo llaman los turcos a un determinado restau-rante
+de kebab, repleto de gente y de golosinas que a veces continúa abier-to
+hasta la madrugada. Al parecer el nombre era cosa del periodista y es-critor
+de novela negra Ümit Deniz, allá por los años cincuenta y sesenta. E
+l detective Murat Davman lo utilizaba en sus relatos. Entraba en un restau-r
+ante, saludaba con un displicente A spava!y  tomaba su bebida favorita. Esa !p
+alabra, casi mágica, era la abreviatura de A llah sıhhat para afiyet versin amin,e
+sto es: «Que Dios te dé salud, dinero y buen provecho, amén». La
+capital era un buen destino para muchos turcos; los extranjeros s
+iempre la contemplábamos con más prevención, incapaces de asimilar q
+ue aquellos barrios de bloques que trepaban por las colinas tenían algo que v
+er con el Oriente exótico y embrujador. Pero aquella tarde casi noche de junio,
+mientras dábamos cuenta de unas buenas raciones de kebab de ca-lidad,
+además de las rituales tzatziki y  patatas fritas con salsa, que había-tzatzikimos
+decidido acompañar con raki, ambos nos habíamos reconciliado con Ankara y pillábamos la magia de la ciudad.
+A spava!A
+mitad de la comida, Bernardo se arrellanó en su silla y lanzó: «T en-go que comentar
+te algo delicado».«¿D
+elicado?» Mantenía una amistad profesional con Bernardo, por entonces
+becario posdoc, y acabábamos de finalizar el congreso que nos h
+abía llevado a la capital turca. La solemnidad con que se había expresado m
+i joven colega resultaba inquietante. Bebí un sorbo de raki para encajar mejor
+la inesperada confidencia. El barullo que nos rodeaba también ayu-daba a tomárselo con todo el desenfado posible.
+M
+e contó que corría un tipo, allá por la Complu, en Madrid, que pagaba
+por informes. Un ruso. Pagaba muy bien. «¿Informes? ¿Qué jodido rango
+de informes era ese?» Miré a mi colega fijamente: un hombre joven, entusiasta,
+un becario camino de la docencia universitaria, que no tenía r
+elación ni experiencia con ninguna institución sensible del Estado. «Lo q
+ue quieras ofrecerle. T e paga por informes sobre lo que tú desees explicar».Con
+toda seguridad, dejé de comer kebab y tomé otro trago de raki mientras
+él seguía detallando de qué iba aquello. «Sí, tal como te lo cuen-to
+. Cualquier disertación dentro del ámbito de la geoestrategia internacio-n
+al, defensa y seguridad, esas cosas. Es para una publicación de esa gente, en
+inglés, que quieren que tenga mucho impacto internacional», continuó explicando
+.
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22299 E
+l quid de la cuestión es que el ruso pagaba una cantidad indecente de d
+inero. Más de mil euros. Y de dos mil. Y de tres mil. No una cantidad irreve-r
+ente, sino una cantidad escandalosa. Al menos para un posdoc en Madrid.¿Y
+cuál era la cuestión, por dónde andaba la pregunta, por qué me contaba
+aquello? Ç a va de soi: a Bernardo le había picado el bichito del d
+inero fácil. ¿Y qué si se embolsaba un pequeño capital a cambio de una de aquellas cosas?
+M
+e llamaban la atención las cantidades ofrecidas. Que los rusos, como
+los estadounidenses, los ingleses, los israelíes y tutti quanti, intenta-b
+an reclutar colaboradores en España era bien sabido. Pero el dinero rara-mente entraba en juego, al menos en un primer momento
+.S
+eptiembre de 2009. Salto atrás en el tiempo. T ras regresar de un via-je
+desde la Edad Media romántica, recorriendo el Kurdistán turco de nor-t
+e a sur, la olvidada capital de la vieja Armenia, en poderosas ruinas, los templos
+cristianos escondidos en las calles basálticas de Diyarbakir, recibo la
+llamada de un conocido, un científico de un país de la zona que me cita para
+tomar un café y presentarme a alguien de interés, dijo. Se trataba de un
+individuo algo tosco, de nacionalidad rusa, que se expresaba en un inglés
+no muy fluido y que afirmaba estar aprendiendo español para venir a
+vivir a Barcelona. Entre los pesados cortinajes del Ateneu, habló de un d
+ifuso proyecto cultural al que me podría apuntar. Y de momento, ¿qué tal una exposición pública con mis fotografías del r
+eciente viaje? N
+o me extrañaba que las hubiera encontrado y revisado. Yo mismo las había
+colgado en mi blog de entonces y en la plataforma Flickr. Pero me intrigaba
+ese entusiasmo que no se sustentaba en nada concreto. La con-v
+ersación no tenía asidero, el ruso quería ir deprisa pero no veía hacia d
+ónde; y entonces decidí forzar la situación y empecé a hablar de dinero. Y
+en efecto, el panorama se aclaró. El hombre plegó velas, quedamos en v
+ernos otro día, pero sabía que acababa de abortar un intento de recluta-m
+iento al reventar el protocolo de una forma un tanto grosera. Porque, por
+entonces, cinco años antes, al menos, los rusos no entraban con el d
+inero por delante, como habían hecho con Bernardo en 2014. Y menos con esos puñados de billetes.
+N
+o lo dudé mucho. Al asunto había que darle la importancia que te-n
+ía. En España, el común de la población no suele tomarse en serio los asuntos
+de espionaje. A los profesionales de ese mundo suele facilitarles mucho
+en su trabajo tal actitud. Moverse entre una población que con-
+
+---
+
+300
+300U CRANIA 22funde
+el espionaje con la picaresca y los tebeos es como cortar mantequilla con un cuchillo
+. Pero a Bernardo la broma le podía salir cara.P
+arecía claro que el dinero que le podría pasar bajo mesa el diplomá-t
+ico ruso no estaba destinado a pagar el valor de los alambicados artículos que
+le publicarían a Bernardo en la revista de marras. De lo que se trataba era
+de tenerlo pillado. En cuanto entra en escena el dinero, un relajado inter
+cambio de impresiones con un diplomático extranjero se transforma en
+espionaje y, por tanto, en posible delito contra la seguridad del Estado. D
+e esa forma, el pringao  s e convierte en una fuente de información que suministra
+datos que a veces le pasan inadvertidos incluso a él. Lleva al a
+gente a otros contactos de interés, es el cabo del hilo del cual tirar para montar
+una red de informadores o influencers .  De esa forma, los tres o c
+uatro mil euros terminan siendo muy rentables para el pagador. Y con un poco de mala suer
+te, pueden llevar a la ruina al informante. La
+situación era tanto más delicada para Bernardo por cuanto los ru-sos
+parecían estar trabajando a toda máquina y contra reloj. En aquel ve-rano
+de 2014, Crimea y el Donbas no quedaban tan lejos de Madrid, ca-pital de un país de la O
+TAN. M
+ientras tomábamos el té con halva de sémola, para concluir la cena, le
+dimos algunas vueltas y Bernardo se reafirmó enseguida en los peligros de
+la oferta. Lo supo desde el principio, solo quería tener la certeza de que no
+estaba dejando escapar el chollo de su vida. En España, ya se sabe, no nos terminamos de tomar en serio esas cosas.
+D
+e regreso al hotel, intento hacer valer los restos de mis conocimien-tos
+de turco con el taxista, pero Bernardo se entiende mejor con él en el lenguaje internacional del fútbol.
+Al
+día siguiente, regreso a España. Antes de aterrizar en Estambul para
+hacer transbordo, me deleito desde las alturas en el espectáculo ma-jestuoso
+de las aeronaves maniobrando allá abajo, y brillando al sol, a va-rios
+niveles, como en un gigantesco carrusel que desemboca en un aero-puer
+to en los límites entre Asia y Europa. Me siento optimista y pienso q
+ue, a pesar de lo que estaba sucediendo en Ucrania, lugar de donde había salido
+deprisa y corriendo hacía un mes, el mundo se estaba reordenando e
+n torno a nuevos y poderosos centros que poseían su propia dinámica, su par
+ticular funcionamiento, y al final se impondría una armonía compleja y
+fructífera. No, el planeta no parecía estar destinado a verse dividido en dos grandes bloques estúpidos, ya no
+.
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22301 U
+nos meses más tarde, pocos, el diplomático ruso fue expulsado de España.
+Antes de eso, Bernardo se encontró con él dos veces más, sin que m
+ediara dinero de por medio. El ruso le explicó cómo veía la situación en U
+crania; el otro le escuchó con cortesía; intercambio de opiniones y des-p
+edida. Hay que quedar bien con todo el mundo y guardar las formas, por lo que pueda suceder
+. S
+eguro que, pocos días más tarde, otro ruso, recién llegado, diplomá-t
+ico o no, se entrevistaría con algún joven académico, o quizás un perio-d
+ista recién contratado, para ofrecerle un buen fajo de billetes por un ar-tículo
+sobre lo que quisiera explicarle al mundo. Con toda seguridad, pocas
+semanas más allá, algún contacto lo habría vendido, siendo a su vez expulsado
+por las autoridades españolas; y al cabo de poco tiempo, un nuev
+o diplomático, el que fuera, habría ocupado su lugar.Comida rápida, «Aspav
+a!»L
+os historiadores solemos tener la misma dificultad para predecir el f
+uturo que la mayor parte de las personas. Parafraseando a Nicholas Ta-l
+eb, utilizar la historia para anticiparse al futuro, viene a ser como inten-t
+ar conducir mirando por el retrovisor. Pero, en cambio, sí que posee-m
+os más memoria histórica y un conocimiento especialmente amplio d
+el pasado; por lo cual, disponemos de reflejos para entender el aquí o a
+hora, o el cómo hemos llegado hasta el presente. En aquel verano de 2
+014, se podía apreciar el esfuerzo que estaban desarrollando rusos y a
+mericanos en torno a Ucrania, en forma de operaciones de inteligencia e
+influencia. Lo que ya resultaba más difícil de predecir era cómo iba a e
+volucionar la situación. Era difícil de imaginar que, en un mundo mul-t
+ipolar como el de entonces, la tensión en torno a Ucrania polarizara al p
+laneta. Eso quería decir no solo Europa, los Estados Unidos y Rusia, si
+no también América Latina, África, Asia y Oceanía, repletos de países c
+on sus propios y a veces sofisticados intereses geopolíticos y económi-co
+s. En el siglo /x.sc/x.sc/i.sc ,  Estados Unidos y Rusia ya no ofrecían dos grandes m
+odelos sociopolíticos de alcance mundial. Esa oferta había fracasado. P
+or parte soviética, en 1991, y por parte americana, a partir de 2008. Y y
+a no había más ideologías capaces de cambiar el mundo, a no ser que se c
+onsiderase el islamismo radical. E
+l sonsonete de la Nueva Guerra Fría se venía escuchando desde h
+acía años, con un tono de amenaza revanchista desde el lado ruso y de a
+larma desafiante por parte estadounidense. En Moscú proclamar el re-
+
+---
+
+302
+302U CRANIA 22g
+reso de la Guerra Fría era todo un triunfo. Les convenía argumentarlo a
+l o s  ru s o s ,  p o r q u e  d e  e s a  f o r m a  s u s  a d v e r s a r i o s  v o l v í a n  a  c o n s i d e r a r  U
+nión Soviética a una Rusia amputada de las repúblicas que se fueron e
+n 1991. Y se creaba la ficción de que el mundo estaba dividido entre d
+os superpotencias: la bipolaridad, esencia de la Guerra Fría. Rusia se h
+abía venido enfrentando a la OTAN desde 2008, precisamente para c
+rear esa ilusión. Putin venía insistiendo en que el tiempo de las acroba-c
+ias diplomáticas estilo trampa balcánica e incluso Tr ampa 22 h abía c
+oncluido. Lo dejó bien claro al ordenar poner en alerta máxima a las f
+uerzas nucleares de disuasión tras lanzar la invasión de Ucrania, en fe-br
+ero 2022. L
+a ilusión de la Guerra Fría también le convenía a la OTAN, porque d
+e esa manera se evitaba tener que explicar por qué no osaba intervenir d
+irectamente en Ucrania mientras sí lo había hecho en Serbia, Afganistán o
+Libia. Se había regresado a la Guerra Fría, el riesgo de escalada militar e
+ra muy elevado y de nuevo era tiempo de las operaciones secr etas, la g
+uerra híbrida, la desestabilización del adversario. No faltó quien ense-g
+uida comparó la contienda ruso-ucraniana con la intervención soviética en
+Afganistán. Supuestamente, como entonces, los americanos iban a h
+undir a Rusia, como ya lo habían hecho con la Unión Soviética en 1989, a
+base de una combinación letal de guerra encubierta —un suministro de a
+rmas a Ucrania que iba a empequeñecer a la Operación Ciclón, de ayu-d
+a a los muyahidines— y guerra económica y financiera, las celebradas s
+anciones.E
+n los medios de comunicación y redes sociales, donde el universo se explica
+en un puñado de caracteres, también se festejaba la reducción de un
+mundo complejo, multipolar y cada vez más frustrante para los occi-d
+entales a una bipolaridad encogida, falsa e irreal, pero más manejable en e
+l día a día. El Nuevo Orden Mundial proclamado triunfalmente por G
+eorge Bush padre en 1991, se había erosionado mucho como conse-cuencia
+de la Gran Recesión de 2008, y la imagen de los Estados Unidos como
+potencia unipolar estaba ya lejos de corresponder a las expectativas triunfalistas
+que le habían atribuido pensadores como Fukuyama o Brze-zinski, a finales del siglo
+/x.sc/x.sc . A
+un así, en diciembre de 2021, mientras se veía venir la guerra por U
+crania, la portada de The Economistse  hacía la siguiente pregunta: «¿Portqué
+lucharía América?». El subtítulo daba una pista: «Si los Estados Uni-
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22303 dos
+se echan atrás, el mundo devendrá más peligroso». Los anglosajones querían
+seguir viéndose y mostrándose como los vencederes de la Guerra F
+ría. Concedían que «sería un error asumir que la vieja y comprometida A
+mérica va a volver. Después de todo, T rump podría ser reelegido en 2024»
+23 .  Desde luego: según una encuesta de 1 de julio de 2022, el 71% de
+los estadounidenses no deseaban que Biden se presentara ni siquiera a la
+reelección24 .  Pero si el orden liberal debía ser preservado, otras potencias apor
+tarían su granito de arena, preparándose para un mundo en el que tendrían
+menos ayuda, aun cuando los Estados Unidos se reservarían la capacidad de compr
+ometerse. P
+ero en realidad, todo este discurso apenas estaba sustentado sobre u
+na base ideológica consistente. Y eso era válido tanto para rusos como p
+ara americanos. Aquellos, empezando por Putin, deseaban el regreso d
+e una Unión Soviética que no fuera la Unión Soviética; nada de só-v
+iets ni de marxismo-leninismo, sino una Rusia liderada por él y toda s
+u generación de s iloviks, oligarcas, funcionarios y militares, legitima-d
+os por el discurso de la transición post-Yeltsin que era el putinismo: D
+ugin y su reconfiguración del mundo en base a la Cuarta T eoría y el n
+eoeurasianismo; una nueva Santa Alianza aleccionadora para Europa; S
+talin del brazo de Nicolás II; cosacos enarbolando la bandera roja con la
+Santa Faz de Cristo; mercenarios del Grupo Wagner conquistando Á
+frica; bombarderos rusos machacando al yihadismo en Siria. Rusia y C
+hina, aliados. Y los Estados Unidos, reducidos a ser potencia de se-g
+unda, o de tercera. Recomenzar y reescribir la historia desde el mo-m
+ento en que el capitalismo y el imperialismo empezaron a humillar y ar
+rinconar a Rusia.Los
+estadounidenses no ofrecían una alternativa mucho más apeteci-ble,
+al menos desde que en 2017 T rump llegara a la Casa Blanca. Un país d
+ividido entre aislacionistas —una parte de los cuales eran, de hecho, ul-tranacionalistas—
+y nostálgicos del unilateralismo apenas podía ofrecer u
+na alternativa común que no fuera el atrincheramiento tras la Gran F
+rontera. Para los Estados Unidos, estaba claro cuál era: la frontera de 3.169
+kilómetros, apoyada en el muro y el Río Grande, junto con México 23
+«What would America fight for?», en The Economist, vol. 441, n.º 9275, 11-17 de diciembre de 2021.
+24
+«71 percent don’t want Biden to run for reelection: poll», por Caroline Vakil, en The Hill, 7 de ener
+o de 22 [consultable en red].
+
+---
+
+304
+304U CRANIA 22c
+onvertido en un enorme buffer statea nte la presión migratoria desdestateAmérica
+Central y Latinoamérica. Por su parte, Europa contaba con la fr
+ontera natural del Mediterráneo en su flanco sur, que se prolongaba en T
+urquía como buffer statec onsolidado y Ucrania como Estado-tapón en statec
+onstrucción. Polonia y los Países Bálticos cerraban el muro por el noreste. E
+ra una estrategia de atrincheramiento, en el fondo de la cual, paradójica-mente, coincidían dos ancianos estadistas como
+T rump y Biden.P
+ara Washington, la integración de Ucrania no poseía exactamente el mismo
+sentido que para Bruselas, más partidaria de utilizar el softpo wer. La
+concepción estadounidense de la Gran Frontera era algo más instru-mental,
+al estilo de aquellas repúblicas poscoloniales aliadas durante la G
+uerra Fría, atiborradas de armas suministradas por Washington y gober-n
+adas por regímenes autoritarios que a veces se apoyaban sobre escuadro-nes
+de la muerte, mercenarios o peligrosas policías secretas, desde el Irán d
+el Shah al Vietnam de Ngô Đình Di/uni1EC7 m  o Văn Minh, pasando por las dictaduras militar
+es en Brasil, Argentina y Chile. D
+esde luego, Polonia se había convertido en el brazo fuerte de la N
+ueva Europa, aliada de Washington a despecho de sus tendencias ili-b
+erales bajo gobiernos del PiS ( Prawo i Sprawiedliwość, P artido Ley y J
+usticia) en los últimos años. La posibilidad de respaldar una alternativa a
+la Unión Europea bajo la fórmula 3SI o «tres mares», renovadora de I
+ntermarium, tampoco parecía una realidad tan utópica a la altura de 2021 o
+2022. E
+n Ucrania, bajo el homenajeado presidente Zelenski, hacia finales de m
+arzo, al amparo del estado de excepción, se habían ilegalizado varios par
+tidos políticos: Plataforma de Oposición – Por la Vida (rusófilo), Blo-q
+ue de Oposición (rusófilo), Partido Socialista de Ucrania (izquierda), P
+artido Socialista Progresista (indefinido), D erzhava(r usófilo), Unión de aI
+zquierdas (izquierda), Na shi( rusófilo), Oposición de izquerdas (rojipar-id
+o), Bloque de Volodímir Saldo (regionalista) y Partido de Sharí (del blo-g
+uero Anatoli Sharí, libertarianista). Dada la crecida cantidad de partidos políticos
+legalizados en Ucrania —cerca de trescientos cincuenta—, la pro-h
+ibición de los arriba citados era más aleccionadora que significativa. Aun-q
+ue la eliminación de todos los partidos de izquierda resultaba inquietante. S
+obre todo, si a ello se unían declaraciones como las del ministro de Defen-s
+a, Oleksii Réznikov, quien a mediados de marzo hizo un llamamiento ante e
+l Parlamento Europeo, que parecía más bien propio de otros tiempos,
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22305 c
+omo 1946 o 1947, destinado a la ciudadanía de aquellos países de la UE que
+tenían gobiernos «medio comunistas o pro-Putin», para que salieran a las
+calles, hicieran manifestaciones y les preguntaran «qué habían hecho p
+or Ucrania», refiriéndose en concreto a España, Italia y Grecia25 .  Días más
+tarde, el presidente Zelenski intervino en el Congreso de los Diputa-dos español, el 5 de abril.
+P
+ero el problema político de fondo era la entidad que había adquirido el
+ultranacionalismo en Ucrania, y que no se derivaba de su escasa repre-sentación
+parlamentaria, puesto que en este tipo de partidos radicales la toma
+del poder no tiene por qué ser necesariamente por esa vía, sino a trav
+és de golpes de Estado, copando poder o controlando la defensa y la seguridad
+interior, a partir de instituciones armadas. En tal sentido, no cabe
+duda de que la representación de sectores ultras, explícitamente neo-n
+azis o neofascistas, en las fuerzas armadas ucranianas era notable. El con-flicto,
+que arrancaba de 2014, como ya se explicó más arriba, era llamativo por v
+arias razones. E
+n primer lugar porque, al margen de su entidad como unidades de combate,
+estaban integrados orgánicamente en las fuerzas armadas ucra-nianas;
+ya habían existido precedentes más o menos similares en los Ejér-c
+itos croata y serbio durante las guerras de secesión en la antigua Yugosla-v
+ia. Pero por entonces, al menos por parte croata, la adscripción de este tipo
+de unidades a las fuerzas armadas o de seguridad se había llevado con cier
+ta discreción. No era el caso de Ucrania, donde los medios de comuni-cación
+internacionales habían pregonado con asiduidad las peripecias de unidades
+como el célebre Regimiento Azov, el Batallón Donbass, el Regi-miento
+Dnipro-1, el Batallón Karpatska Sich o los batallones del Cuerpo d
+e Voluntarios Ucraniano, integrado por milicianos de P ravy Sektor( Sec-rt
+or de Derechas) que exhibían los colores rojo y negro de su partido en los uniformes.
+Esto llevó, por activa y por pasiva, a una verdadera exaltación del
+neonazismo y neofascismo en armas, como sucedió durante la defensa de
+la acería Azovstal en Mariúpol, donde las fuerzas del Regimiento Azov r
+ecibieron un tributo de apenas contenida admiración por parte de me-dios
+de comunicación de países democráticos occidentales, a despecho de que
+también habían intervenido en la acción de guerra unidades regulares d
+e Infantería de Marina, Guardia Fronteriza, Policía Nacional y Defensa 25
+Fragmento de la alocución reproducido en T witter por @JRBauza, 17 de marzo de 2022.
+
+---
+
+306
+306U CRANIA 22T
+erritorial. Algunas de estas unidades de combate políticamente orienta-das
+—y en especial, de nuevo, el Regimiento Azov— habían sido favore-cidas en la asignación de equipo y armas de especial calidad.
+S
+i las guerras de la antigua Yugoslavia ayudaron a normalizar en Europa l
+a presencia de unidades neofascistas armadas, por primera vez desde 1945, la guerra
+del Donbas en 2014-2015 y la invasión rusa de Ucrania contribu-y
+eron a enaltecerlas26 .  El hecho de que el presidente Zelenski fuera de origen
+judío se utilizó en innumerables ocasiones como «prueba» de que la
+insistencia en un fenómeno político neonazi en Ucrania era una exage-ración
+generada por las declaraciones de Putin al lanzar la invasión del país para
+«desnazificarlo». Pero ese planteamiento resultaba falaz, para salir del p
+aso, puesto que tal tipo de cuestiones, como la connivencia de las milicias ul
+tras en 2014 con los oligarcas mecenas, fueran de religión judía, como K
+olomoinski, o musulmana, como Ajmetov, no tenían mayor significado p
+ara los neonazis que se beneficiaron de su dinero para armarse. De hecho, c
+omo se ha explicado más arriba, ya la guerra del Donbas había propiciado un
+cisma entre el neofascismo y el neonazismo internacionales, que no veían c
+on buenos a ojos a esos camaradas ucranianos al servicio de la OTAN e I
+srael. Y no faltaban voces que alertaban de que muchos de los combatientes v
+oluntarios internacionales, asimismo neonazis o neofascistas, que integra-ban
+las filas de las unidades ucranianas podrían convertirse en verdaderas bombas de r
+elojería una vez regresaran a sus respectivos países27 . Lo
+cual no quita que en la ultraderecha europea actual exista una clara
+admiración por Israel, modelo, a su modo de ver, en la lucha contra el
+islamismo radical o el fenómeno inmigratorio. O que Ta b l e t , una mo-d
+erna revista cultural israelí en red, que se anunciaba como «A new read o
+n Jewish life», viera con buenos ojos la entrevista concedida por el subco-mandante
+del Azov, Svyatoslav Palamar, al diario Ha aretz, en la que se p
+onía de relieve la conexión ucraniano-israelí. Desde ese medio le comen-t
+aron que en Israel «la planta de Azovstal ya se está comparando con Ma-sada,
+donde los combatientes judíos que se rebelaron contra el Imperio R
+omano se atrincheraron y al final todos fueron asesinados»28 . 26
+Roussinos (2022).27
+«Foreign fighters in Ukraine coud be time bomb for their home countries», por Seth Harp, The I
+ntercept, 30 de junio de 2022. 28
+«The Defenders of Mariupol», por Vladislav Davidzon, en Ta b l e t , 18 de mayo de 2022 [consultable en r
+ed].
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22307 La
+instrumentalización de los partidos de la ultraderecha por parte de potencias
+como Estados Unidos e Israel es una práctica que hunde sus raíces
+en la Guerra Fría histórica. Por poner un ejemplo, cabe recordar la simbiosis
+entre las Fuerzas de Defensa de Israel y la milicia Falange Liba-n
+esa de Bashir Gemayel, que desembocó en las matanzas cometidas por miembr
+os de estas unidades en los campos de refugiados palestinos de S
+abra y Chatila, en septiembre de 1982. Con esto no se quiere afirmar, en m
+odo alguno, que el régimen ucraniano, en febrero de 2022, fuera de ten-d
+encia neonazi o estuviera en manos de los paramilitares de esa tendencia; o
+que el presidente Zelenski simpatizara con ellos, aunque ciertamente les otorgó
+permisividad29 .  Pero sí que, en interés de la propaganda de guerra antirr
+usa, se le restó relevancia a un fenómeno que era grave y trascendía las fr
+onteras de Ucrania.D
+esde luego, no cabe dudar de que la Rusia de Putin se había conver-tido
+en un laboratorio promotor de la ultraderecha internacional con la s
+ubvención activa de partidos neofascistas, ultras, conservadores y ultra-montanos
+30 .  Pero eso no excusaba que en Ucrania se dejara prosperar al neonazismo
+o que se jugara con la falacia del tu quoquey  se acusara a quoqueR
+usia de ser «más fascista» que Ucrania. P orque el hecho es que, a mayor g
+ravedad, en el mismo bando occidental en su conjunto estaba poliferando e
+l posfascismo, un fenómeno sociopolítico definido por el politólogo tran-s
+ilvano Gáspar M. Tamás desde, por cierto, las páginas de Open Society.E
+n suma, el posfascismo consistía en la disolución de las ideas esen-ciales
+del fascismo y el nazismo en la práctica cotidiana de las democracias liberales
+occidentales. «Sin recurrir nunca a un golpe de estado, estas prác-t
+icas amenazan a nuestras comunidades. Encuentran fácilmente su nicho e
+n el nuevo capitalismo global, sin alterar las formas políticas dominantes de
+la democracia electoral y el gobierno representativo», explicaba Tamás adelantándose
+veinte años a su época31 .  El posfascismo no asustaba, ni si-quiera
+incomodaba; en todo caso, lo hacía si el sujeto no se acoplaba a las e
+xégesis del pensamiento único y políticamente correcto. El posfacismo iba
+ganando terreno en las cámaras parlamentarias, en los medios de co-29
+«Cómo el presidente judío de Ucrania hizo las paces con los neonazis en el frente contra R
+usia», por Alexander Rubinstein y Max Blumethal, en The Gray Zone, 6 de marzo de 2022 [consultable en r
+ed].30
+Veiga et al.  (2019), capítulo 4, pp . 107-145, también pp. 208-213.31
+Tamás (2001).
+
+---
+
+308
+308U CRANIA 22municación,
+en los gobiernos y partidos, en base a promover ideas que r
+ompían de alguna forma con los derechos universales de la ciudadanía. D
+esde el momento en que la comunidad cívica de un país es cortada en dos,
+definiendo dos campos con distintos grados de acceso a los derechos civiles,
+ahí aparece el fascismo o el nazismo. Y para ello no era necesario ningún
+golpe de Estado, ni grupos paramilitares patrullando por las calles. S
+encillamente, atentar contra la libertad de información o reconducir la liber
+tad de expresión en nombre de la StratCom contra la guerra de Putin podía ser un inquietante comienz
+o.E
+n definitiva, el problema de fondo en la guerra de Ucrania de 2022, l
+a cuestión realmente seria, era que aquella contienda no tenía el perfil de l
+a extinta Guerra Fría, porque los contendientes que la libraban no po-seían
+la disciplina de las superpotencias de entonces, le habían perdido el r
+espeto a la disuasión nuclear —una de las bases del equilibrio del terror e
+n la Guerra Fría— y, sobre todo, carecían de la sustentación equilibrado-ra
+que suponía defender ideologías políticas consistentes. Aquello fue una guerra
+de neofascistas contra neonazis; nacionalistas contra nacionalistas, como
+en 1914, en la que intervinieron también potencias en cuyas socie-dades
+el posfascismo ganaba terreno, como una peste silente. No es de extrañar
+que, por puro esnobismo o por creer que así defendían mejor su posición
+social o profesional, personajes con cierta influencia considerasen que
+se podía escalar el conflicto ucraniano hasta la guerra nuclear, con toda
+la tranqulidad del mundo. Las ideologías habían desaparecido hacía tiempo,
+todo se basaba en posicionarse ante las opciones que ofrecían los m
+edios o las redes sociales, no en elaborar o analizar las posibilidades exis-tentes.
+Con cierta rapidez, las sociedades se vieron gritando lemas orwe-llianos,
+librando guerras orwellianas, que se entrelazaban sin claro princi-pio
+ni final, sin objetivos, más allá de las consignas o del «doblepiensa» o
+rwelliano: P
+ara entender la naturaleza de la guerra presente —pues, a pesar de los rea-g
+rupamientos que se producen cada pocos años, se trata siempre de la mis-ma—
+debemos reparar en primer lugar en que es imposible que sea decisiva. N
+inguno de los tres superestados podría ser conquistado definitivamente, ni siquiera
+mediante una alianza de los otros dos. Están demasiado igualados, y
+sus defensas naturales son demasiado formidables. Eurasia está protegida p
+or sus vastos espacios abiertos, Oceanía por la extensión del Atlántico y el P
+acífico, Esteasia por la fecundidad y la laboriosidad de sus habitantes. En
+
+---
+
+D
+E LA TRAMPA BALCÁNICA A LA TRAMPA 22309 s
+egundo lugar, ya no hay, en un sentido material, nada por lo que combatir. Con
+el establecimiento de las economías autárquicas, en las que la produc-c
+ión y el consumo se engranan el uno en el otro, la lucha por hacerse con l
+os mercados que causó las guerras anteriores ha llegado a su fin, y la com-p
+etencia por las materias primas ha dejado de ser una cuestión de vida o m
+uerte. Los tres superestados son lo bastante extensos para obtener todos los
+materiales necesarios en el interior de sus propias fronteras (George O
+rwell, 1984).
+
+---
+
+
+
+---
+
+B
+IBLIOGRAFÍA Y REFERENCIASA
+bramović, Roman (2022), Ucr ania. Rusia. Historia, 8Cats Books. Afineevsky
+, Evgeny (dir.) (2015), «Winter On Fire: Ukraine’s Fight for Freedm», 102 minutos.
+Amar
+, Tarik Cyril (2015), T he Paradox of Ukrainian Lviv. A Borderland City bet-w
+een Stalinists, Nazis, and Nationalists, Cornell U niversity Press.Andr
+ew, Christopher (1996), F or he President’s Eyes Only, HarperPerennial.A
+rquilla, John, y Ronfeldt, David (eds.) (1997), I n Athena’s Camp. Preparing for conflict in the infor
+mation age, RAND, S anta Mónica, CA.B
+arro, Argemino (2020), U na Historia de Rus. Crónica de la guerra en el Este de Ucr
+ania, La H uerta Grande Editorial, Madrid.B
+aysha, Olga (2019), M iscommunicating Social Change. Lessons from Russia and U
+kraine, Lexington Books. —
+(2022), D emocracy, Populism and Neoliberalism in Ukraine. On the Fringes of t
+he Virtual and the Real, Routledge, Londres y Nueva York.B
+las, Javier, y Farchy, Jack (2022), E l mundo está en venta. La cara oculta del ne-gocio de las materias primas,
+Península.B
+linken, Antony (1987), A lly Versus Ally: America, Europe, and the Siberian Pipe-line C
+risis, Greenwood Press.Bonnel,
+Anne Laure (2016), D onbass, p roduction Alexandre Bonnardieu / Les F
+ilms de Sacha.B
+oyd-Barrett, Oliver (2017), W estern Mainstream Media and the Ukraine Crisis. A study in conflict pr
+opaganda, Routledge, Londres y Nueva York.
+
+---
+
+312
+312U CRANIA 22B
+rzezinski, Zbigniew (1998), E l gran tablero mundial. La supremacía estadouni-dense y sus imper
+ativos geoestratégicos, Paidós.—
+(2012), S trategic Vision. America and the Crisis of Global Power, B asic Books, N
+ueva York.C
+haudet, Didier; Parmentier, Florent, y Pélopidas, Benoît (2009), When Empire M
+eets Nationalism. Power Politics in the US and Russia, R outledge, Londres y N
+ueva York.C
+hernenko, Demid (2018), «Capital Structure and Oligarch Ownership», MPRA P
+aper No. 83641, posted 06 Jan 2018 - Munich Personal RePEc Archive.Chr
+evonnaya, Svetlana (1994), Conflicts in the Caucasus. Georgia, Abkhazia and the R
+ussian Shadow, G othic Image Publications, Frome y Londres.Chodakie
+wicz, Marek Jan (2012), I ntermarium. The Land between the Black and B
+altic Seas, T ransaction Publishers, New Brunswick y Londres.Cohen,
+Stephen F . (2019), W ar With Russia? From Putin & Ukraine to T rump & R
+ussiagate, H ot Books, Skyhorse Publishing, Nueva York.Coman,
+Mihai (1993), «Naissance d’un contre-mythe. Les mythologies du dis-cours
+médiatique. La Roumanie, décembre 1989, dans la presse écrite française»,
+R éseaux, año 1993, 59, pp . 107-118 [consutable en red].Congr
+essional Research Service (2022), U.S. S ecurity Assistance to Ukraine.Cornell,
+Svante E., y Starr, Frederick (eds.) (2009), T he Guns of August 2008. R
+ussia’s War in Georgia, M. E. S harpe.C
+uadernos de Geopolítica (2022), P ara comprender Ucrania, Le Monde Diplomá-tique en español,
+V alencia.D
+’Anieri, Paul (2019), Uc rania y Rusia, University of Cambridge Press, Kindle Ed.D
+atta, Neil (2021), T h e  T i p  o f  t h e  I c e b e r g :  R e l i g i o u s  E x t r e m i s t  F u n d e r s  a g a i n s t  H
+uman Rights for Sexuality and Reproductive Health in Europe, 2009-2018,E
+PF (European Parlamentary Forum), 2021 [consultable en red].D
+e Ploeg, Chris Kaspar (2017), U kraine in the Crossfire, Clarity P ress.D
+ugin, Aleksandr (2015), L ast War of the World-Island. The Geopolitics of Con-tempor
+ary Russia, Ar ktos, Londres.D
+uval, Jerôme (2014), «El FMI prosigue su camino en Ucrania», R ebelión, 19 de may
+o de 2014 [consultable en red].D
+yczok, Marta (2013), U kraine: Movement without change, change without move-ment,
+Routledge.E
+dward, Steve (2022), G enesis of Russia-Ukraine War, Excelpencil Publish.F
+edorov, Vitaly «Afrikaner» (2015), T he Freedom Fighter, Black Hundred, Moscú.F
+erguson, Niall (2022), D esastre. Historia y política de las catástrofes, Debate, Bar-celona.
+F
+reedman, Lawrence (2019), U kraine and the Art of Strategy, Oxford University P
+ress.
+
+---
+
+B
+IBLIOGRAFÍA Y REFERENCIAS313 G
+aleotti, Mark (2016), H ybrid War or Gibridnaya Voina? Getting Russia’s non-li-near militar
+y challenge right, Mayak Intelligence.—
+(2019), A rmies of the Russia’s War in Ukraine, O sprey Publishin Ltd.G
+alloway, Scott (2021), P ost Corona. De la crisis a la oportunidad, Plataforma E
+ditorial.G
+el’man, Vladimir (2015), A uthoritarian Russia. Analyzing Post-Soviet Regime Changes,
+U niversity of Pittsburgh Press.G
+essen, Misha (2018), E l futuro es historia. Rusia y el regreso del totalitarismo,T
+urner, Madrid.G
+iuliano, Elise (2018), «Who supported separatism in Donbas? Ethnicity and popular
+opinion at the start of the Ukraine crisis», P ost-Soviet Affairs, 15 de mar
+zo de 2018.G
+onzález, Pablo (2016), «La guerra del Donbass en datos: fuerzas, tácticas y ar-mamento», en R
+uiz Ramas (2016), pp. 169-188.G
+onzález-Villa, Carlos (2011), L as revoluciones de colores. «Poder blando» e inter-dependencia
+en la Posguerra Fría, E urasian Hub, Colección Samarcanda, n.º 3, B
+arcelona.G
+orchinskaya, Katya (2020), «A brief history of corruption in Ukraine: The Yus-hchenko
+era. The Orange Revolution fades to black», E urasianet, 2 8 de mayo de 2020 [consultable en r
+ed].G
+oya, Michel (2021), L a Guerre du Haut Karabakh (2020). Enseignements opéra-tionnels,
+Kindle E d.—
+(2022), Confr ontation en Ukraine (2014-2015). Une analyse militaire, K ind-le E
+d.H
+ackett, Sir John (1982), The Third World War; The Untold Story, Sudgwick & J
+ackson Ltd., Kindle ed.H
+arris, Thomas D. (2022), T he Russia & Ukraine War, Thomas Dylan Harris E
+d., Kindle Ed.H
+aynes, Dominic (2022), A B rief History of Ukraine, Kindle E d.H
+ettena, Seth (2018), T rump/Russia. A Definitive History, Melville House, Broo-klin y Londr
+es.H
+ines, Sam (2016), O peration Unthinkable. Its significance in the development of the Cold
+War, GRIN Verlag.H
+offman, David E. (2003), Los oligarcas. Poder y dinero en la nueva Rusia, Mon-dadori, B
+arcelona.H
+oward, Colby, y Pukhov, Ruslan (eds.) (2014), B rothers Armed. Military Aspects of the C
+risis in Ukraine, M inneapolis, East View Press, Kindle Ed.H
+ufbauer, Gary Clyde; Schott, Jeffrey J.; Elliott, Kimberly Ann, y Oegg, Barbara (2007),
+E conomic Sanctions Reconsidered( 3.ª ed.), Peterson Institute for In-dternacional E
+conomics, Washington DC.
+
+---
+
+314
+314U CRANIA 22H
+urska, Alla (2015), «T wo images of radicalism in Ukraine. From Scandinavia to the
+Caucasus», en T iempo devorado, monográfico: «Entre el Mar Báltico y el M
+ar Negro», n.º 1, diciembre de 2014, pp. 39-62 [consultable en red].H
+utin, Ignacio (2022), Ucr ania/Donbass, A postroph, Barcelona.I
+shchenko, Volodymyr (2016), «Far right participation in the Ukrainian Maidan p
+rotests: an attempt of systematic estimation», E uropean Politics and Society,17, 4, mar
+zo de 2016.Kahl,
+Colin, y Wright, Thomas (2021), Aftershocks. Pandemic Politics and the End of O
+ld International Order, S t. Martin’s Press, Nueva York.K
+andelaki, Giorgi (2006), «Georgia’s Rose Revolution. A Participant’s Perspective», U
+SIP (United States Institute for Peace), Special Report 167, julio de 2006.Katsambekis,
+## Giorgos, y Stavrakakis, Yannis (2020), «Populism and the pande-mic
+introduction and preliminary findings», P opulism & the Pandemic Re-por
+t, Populismus Intervention, n.º 7, T esalónica, junio de 2020.K
+epel, Gilles (2020), S alir del caos. Las crisis en el Mediterráneo y Oriente Medio,Alianza E
+ditorial, Madrid.K
+urishenko, Maria (2022), U kraine’s T ear. A History of Ukraine, Russia, Soviet U
+nion, 8Cats Book. Lar
+uelle, Marlène (2012), R ussian Eurasianism. An Ideology of Empire, Woodrom W
+ilson Center Press y The Johns Hopkins University Press.Lázar
+o Bosch, Ana (2015), Ucr ania, entre Rusia y Occidente. Crónica de un con-flicto
+, E ditorial UOC, Barcelona.Leatherbarr
+ow, Andrew (2017), Cher nóbil 01:23:40, Duomo Eds., Barcelona.Lepesant, G
+illes (coord.) (2005), L ’Ukraine dans la nouvelle Europe, CNRS E ds.Likhachev
+, Vyacheslav (2016), «The Far Right in the Conflict between Russia and the U
+kraine», Iffri / NEI Center, Russie.Nei.Visions 95, julio de 2016.Logino
+va, Elena (2021), «Pandora Papers Reveal Offshore Holdings of Ukrai-n
+ian President and his Inner Circle», O C C R P, 3 de octubre de 2021 [consul-table online].
+Loiz
+eau, Manon (2005), «Les États Unis à la conquête de l’Est», 56 min., CAPA; Canal +; P
+lanète; T élé-Québec.Lopatonok, I
+gor, y Stone, Oliver (2016), «Ucrania en llamas», 102 minutos.M
+acMillan, Margaret (2020), W ar. How Conflict Shaped Us, P rofile Books.M
+agocsi, Paul Robert (2010), A  History of Ukraine. The Land and Its Peoples, 2 .ª ed., U
+niversity of T oronto Press.M
+arples, David R. (ed.) (2022), T he War in Ukraine’s Donbas. Origins, Context and t
+he Future, Central Europe an University Press, Budapest, Viena y Nueva York.M
+artin, Pablo (2015), «Ferrocarril Viking ¿corredor o interfaz?», T iempo devora-d
+o, monográfico: «Entre el Mar Báltico y el Mar Negro», n.º 1, diciembre de 2014, pp
+. 17-28 [consultable en red].
+
+---
+
+B
+IBLIOGRAFÍA Y REFERENCIAS315 M
+ayers, Andrew (2018), A nalysis of the Russo-Georgian war of 2008, Defensio-nem.
+M
+azower, Marc (2021), T he Greek Revolution: 1821 and the Making of Modern Eu
+rope, Penguin Books.M
+enon, Rajan, y Rumer, Eugene (2015), Conflict in Ukraine, A Boston Review Book,
+The MIT Press.M
+ezrich, Ben (2015), O nce Upon a Time in Russia. The Rise of the Oligarchs and t
+he Greatest Wealth in History, William Heinemann, Londres.M
+otzkin, Léo (1927/2010), L es Pogroms en Ukraine sous les gouvernements u
+krainiens, 1917-1920, Ressouvenances [reedición de la obra original de 1927
+].N
+asr, Vali (2013), The Dispensable Nation. American Foreign Policy in Retreat,D
+oubleday.N
+ecșu/uni021Bu, Mădălin (2021), «De la Intermarium la Ini/uni021Biativa celor T rei Mări: cum pot
+limita foștii sateli/uni021Bi ai URSS influen/uni021Ba Rusiei în Europa», V eridica, 27 de septiembr
+e de 2021 [consultable en red].P
+apa, Willy; Fresco, Nicolás, y Genre, Arthur (dirs.) (2022), «La stor y de Zelens-ki», R
+TVE Play – Somos Documentales.P
+ijl, Kees van der (2018), F light MH17,U kraine and the New Cold W ar, Man-chester U
+niversity Press.P
+latonova, Daria (2022), T he Donbas Conflict in Ukraine. Elites, Protest and Par-tition,
+Routledge, Londres y Nueva York.P
+lokhy, Serhi (2015), E l último imperio. Los días finales de la Unión Soviética,T
+urner, Madrid.—
+(2021), T he Frontline. Essais on Ukaine’s Past and Present, Harvard University P
+ress.P
+och de Feliu, Rafael (2018), E ntender la Rusia de Putin. De la humillación al r
+establecimiento, Akal. —
+(2022), «Mundo multipolar y guerra en Ucrania», conferencia, YouT ube, canal
+de La Casa Encendida, Madrid, 21 de marzo de 2022. Consultable en https://www
+.youtube.com/watch?v=69KmRlhulKA. P
+othier, Fabrice, y Vershbow, Alexander (2017), N ATO and Trump. The Case for a
+New Transatlantic Bargain, A  New Deal for NATO, Atlantic Council.P
+ozner, Vladimir (2018), «How the United States Created Vladimir Putin», Ca-n
+al YaleUniversity (YouT ube), 2 de octubre de 2018.P
+uglisi, Rosaria (2015), «Heroes or Villains? Volunteer Battalions in Post-Mai-d
+an Ukraine», IAI (Istituto Affari Internazionali), I AI Working Papers, 15/08, mar
+zo de 2015.R
+eid, Anna (2015), Bor derland. A Journey Through the History of Ukraine, Weid-enfedl & N
+icolson.
+
+---
+
+316
+316U CRANIA 22Rix,
+Edouard (2011), «Jean Thiriart, the Machiavelli of United Europe», Op en Re
+volt!(b log), 6 de septiembre de 2011 [https://openrevolt.info/2011/09/06/!jean-thiriar
+t-the-machiavelli-of-united-europe/].R
+ose, Richard; Mi shler, William, y Munro, Neil (2006), R ussia Transformed. De-v
+eloping Popular Support for a New Regime, Cambridge U niversity Press.R
+oussinos, Aris (2022), «La verdad sobre la extrema derecha ucraniana», Nu eva Sociedad,
+mar zo de 2022 [consultable en red].R
+uffner, Kevin C. (1998), «Cold War Allies: The Origin’s of CIA Relationship w
+ith Ukrainian Nationalists», Secret – NOFORN-ORCON, Declassified a
+nd realeased by CIA; Sources Methods Exemption 3B2B; Nazi War Crimes D
+isclosure Act Date 2004-2006 [consultable en red].R
+uiz Ramas, Rubén (coord.) (2016), Ucr ania. De la Revolución del Maidan a la G
+uerra del Donbass, E d. Comunicación Social.R
+ussell, Rupert (2022), P rice Wars. How Chaotic Markets are Creating a Chaotic Wo
+rld, Weidenfeld & Nicolson.S
+achs, Jeffrey (2012), «What I did in Russia», extractos en PDF del blog JDS, consultable en
+https://www .jeffsachs.org/.S
+akwa, Richard (2016), F rontline Ukraine. Crisis in the Borderlands, I B Tauris.S
+antos Rodríguez, Felipe (2013), «La comunicación estratégica (StratCom) en los
+conflictos modernos: el caso de Afganistán», R evista del Instituto Español de E
+studios Estratégicos, n.º 2, 2013 [consultable en r ed].S
+arotte, M. E. (2021), N o t  O n e  I n c h .  A m e r i c a ,  R u s s i a  a n d  t h e  M a k i n g  o f  P o s t  Cold-W
+ar Stalemate, Yale University Press.S
+errano, Pascual (2022), P rohibido dudar. Las diez semanas en que Ucrania cam-bió el mundo
+, Akal, M adrid.S
+erwer, Daniel (2019), F rom W ar to P eace in the Balkans, the Middle East and U
+kraine, Palgrave / Macmillan.S
+houlguin, Alexander (2019), Th e Problems of Ukraine, Wentworth Press, K
+indle Ed.S
+myrgała, Dominik (2015), «I ntermarium.  From the battle of Varna to the War in
+Ukraine», T iempo devorado, monográfico: «Entre el Mar Báltico y el Mar N
+egro», n.º 1, diciembre de 2014, pp. 29-38 [consultable en red].S
+tack, Graham (2015), «Money laundering in Ukraine», J ournal of Money Laun-dering Contr
+ol, v ol. 18, Iss. 3, pp. 382-394.S
+tarzyk, Adam, y T omaszewska, Natalia (2017), «Conception of Intermarium in P
+olish Foreign Policy in XXI Century», T orun International Studies, n.º 1 (10), 2017, pp
+. 15-28 [consultable en red].S
+tepanov, Alexandre (2014), U kraine: The Cold War that Never Ended,K
+indle Ed.S
+tone, Oliver (2019), «Revealing Ukraine», 89 minutos.
+
+---
+
+B
+IBLIOGRAFÍA Y REFERENCIAS317 T
+amás, Gáspar M. (2001), «What is Post-fascism?», O penDemocracy, 13 de sep-tiembr
+e de 2001.—
+(2013), «Once more on Post-fascism», Canal Skripta TV (YouT ube), 24 de mar
+zo de 2013.—
+(2015), «This is Post-fascism», entrevista por Erik de la Reguera, A rbetet, 2 6 de septiembr
+e de 2015.T
+oal, Gerard (2017), N ear Abroad. Putin, the West and the Contest over Ukraine and the C
+aucasus, Oxfor d University Press.U
+bieto, José Ramón (2021), E l mundo post-COVID. Entre la presencia y lo vir-tual,
+Ned ediciones.U
+nger, Craig (2018), H ouse of Trump, House of Putin, D utton.U
+.S. Department of State, U .S. Security Cooperation with Ukraine,  Fact Sheet. B
+ureau of Political-Military Affairs, 15 de junio de 2022.V
+V .AA. (2014), C risis in Ukraine, F oreign Affairs Anthology Series.V
+aïsse, Justin (2018), B rzezinski, America’s Grand Strategist, Harvard University P
+ress.V
+eiga, Francisco (2002), L a trampa balcánica. Una crisis europea de fin de siglo ( 2.ª ed.), G
+rijalbo, Barcelona.—
+(2004), S lobo. Una biografía no autorizada, Debate, Barcelona.—
+(2008), «Una rosa con demasiadas espinas», E l País, 14 de agosto de 2008. [
+Veiga, Francisco, y González-Villa, Carlos] (2013), T rigger massacre, Eurasian H
+ub [blog], post del 26 de agosto de 2013 [consultable en red].V
+eiga, Francisco; González-Villa, Carlos; Forti, Steven; Sasso, Alfredo; Prokopljević, J
+elena, y Moles, Ramón (2019), P atriotas indignados, Alianza Editorial, Madrid.V
+eira-Ramos, Alberto; Lyuviba, T etiana, y Golovakha, Evgenii (eds.) (2020), U
+kraine in Transformation. From Soviet Republic to European Society, Palgrave / M
+acmillan.V
+isualPolitik (2021), «¿Por qué Ucrania es el país más pobre de Europa?», Canal V
+isualPolitik, YouT ube, 18 de mayo de 2021.W
+alding, Claire (2020), «Una fraternal enemistad. T rump y Putin», D eutsche W
+elle (DW), 2 capítulos (42:24 y 42:23 minutos) [visionable en r ed].W
+ard, G. T om (2016), The Chocolate King. Ukraine’s Billionare President Petro P
+oroshenko, Chur chill Press.W
+ilson, Andrew (2014), U kraine Crisis, Yale University Press.—
+(2016), «Survival of the Richest: How Oligarchs blow Reform in Ukraine», E
+uropean Council on Foreign Relations, ECFR/160, abril de 2016. W
+oodward, Bob (2018), M iedo. Trump en la Casa Blanca, Roca Editorial.W
+oodward, Bob, y Costa, Robert (2021), Pe ligro, Roca Editorial.Y
+ekelchyk, Serhy (2015), The Conflict in Ukraine. What everyone needs to know,Oxfor
+d University Press.
+
+---
+
+318
+318U CRANIA 22Y
+ergin, Daniel (2020), T he New Map. Energy, Climate and the Clash of Nations,P
+enguin.Y
+ork, Steve (dir.) (2007), «Orange Revolution», 92 minutos.Zhuchko
+vsky, Alexander (s.a.), 85 D ays in Slaviansk, Kindle E d.Z
+ürcher, Christoph (2007), T he Post-Soviet Wars. Rebellion, Ethnic Conflict, and N
+ationhood in the Caucasus, The New York University Press.
+
+---
+
+ÍN
+DICE ONOMÁSTICO3SI, v
+éase Thr ee Seas Initiative11-M, atentados (2004), 73, 276, 283
+11-S, atentados (2001), 69, 71-72, 101
+A
+bjasia, 95-96, 98-99, 203A
+braham, acuerdo (2020), 202A
+bramovich, Roman, 55, 167A
+bromavichus, Aivaras, 170A
+cta Final sobre Seguridad y Coopera-ción en E
+uropa (Helsinki, 1975), 61A
+cta fundacional sobre las relaciones mutuas
+de cooperación y seguridad entr
+e la OTAN y Rusia (París, 1997), 60
+A
+cuerdo de Asociación de Ucrania con la UE, 106-111, 118, 166, 171, 290
+A
+cuerdo T rilateral (Moscú, 1994), 52Afganistán,
+24, 49, 69, 71-72, 113-114, 133, 203, 218, 229, 238, 273, 302
+África,
+102, 199, 215, 259, 275, 301, 303
+Agalar
+ov, Aras, 179Ahtisaari, plan, 98
+Aidar
+, batallón ucraniano, 140, 143Ajmeto
+v, Rinat, 91, 104, 125, 135, 147, 164, 167, 245, 306
+Aksiy
+onov, Sergei, 127Al Q
+aeda, 69, 71, 101-102Alba D
+orada (Grecia), 145Albania,
+133, 262-267, 269; v éase tam-bién
+Ko sovoAlber
+t Einstein Institution, 75Albright, M
+adeleine, 76, 280Alemania,
+18, 20, 38, 41, 57-58, 73, 80, 93,
+98, 103, 105, 108-109, 116-117, 124,
+130, 141, 151-152, 164, 175, 194,
+217, 227, 244, 249-251, 256-258, 265, 268
+Alianza A
+tlántica, véaseO TANeA
+lianza Democrática Ucraniana para la R
+eforma (UDAR), 105, 117Aliy
+ev, Ilham, 206Alternativ
+a Popular (Odesa), 150Alternativ
+e Right.com, v éase Radix eAmérica
+Latina, 35, 199, 210, 215, 259, 301, 304
+A
+merican Express, tarjetas de crédito, 252Andr
+opov, Yuri, 24, 29
+
+---
+
+320
+320U CRANIA 22A
+pplebaum, Anne, 43Arabia S
+audí, 199-200, 207Aramco, compañía, 207
+Arbuz
+ov, Serguiy, 147Argelia, 53
+Argentina, 199, 304
+Armenia,
+32, 95-96, 204-209, 220, 270, 283, 299
+A
+rmiya Yuga-Vostoka (Ucrania), 125A
+rtsaj, república, 204-206A
+ryanism.net, 142Asad, B
+áshar al-, 180, 240Ashton, Catherine, 113, 123
+Asia,
+64, 148, 179, 183-184, 259, 278, 300-301
+Asia
+Central, 47, 71, 171-172, 179, 183, 198, 203, 279
+Asociación
+para la Paz (PfP), 52-53, 56-57
+A
+tlantic Council, 167-168 llA
+ustralia, 248, 250A
+ustria, 79, 85, 93, 144-145, 258A
+zarov, Mikóla, 104, 115A
+zerbaiyán, 95, 171, 179, 183, 203-209, 246-247
+A
+zores, islas, 18A
+zov, batallón y regimiento ucranianos, 139-142, 150, 189, 248, 305-306
+A
+zovstal, acería, 248, 305-306B
+akanov, Ivan, 191-192B
+aker, James, 57-59B
+alcanes, región, 262-263, 266, 277, 280, 287-289
+B
+alcerowicz, Leszek, 176B
+anco Central de Rusia, 250, 252B
+anco Nacional de Ucrania, 113, 168B
+andera, Stepán, 102, 105B
+aréin, 202B
+arrio-95, compañía, 188, 190-192B
+atkivshchyna (‘P atria’, Ucrania), 67, 89-90, 105, 115, 121, 165
+B
+atman, batallón prorruso, 149B
+audrillard, Jean, 219B
+aysha, Olga, 187-188, 190B
+elavezha, pacto (1991), 42-43B
+elice, 192B
+erezovsky, Denis, 128B
+erkut, antidisturbios ucranianos, 67, 112, 126, 136
+B
+erlusconi, Silvio, 167, 184B
+esnik, Kosovar, 263-266B
+eyazit, Selahattin, 13, 282-287B
+eyazit Group of Companies, 286B
+ezler, Igor, 133, 149B
+iden, Hunter, 172-173, 187, 189-190B
+iden, Joe, 169-170, 172-173, 183, 185-187,
+190, 198, 212-213, 215, 217-220,
+223, 239, 244, 249-250, 254-255, 257-258, 303-304
+B
+in Laden, Osama, 69, 71, 213, 240B
+irmingham Live, 29 B
+linken, Antony, 255B
+loque de Oposición (Ucrania), 164, 304
+B
+loque de Volodímir Saldo (Ucrania), 304B
+loque del Este, v éaseE uropa del EsteeB
+loque Petró Poroshenko, 164-165, 170Bobko
+v, Aleksandr, 147Bogošavljević, S
+rdan, 76Boloto
+v, Valery, 133, 156Bolsonar
+o, Jair, 198, 242Bonapar
+te, Napoleón, 253-254, 275Bonnel, Anne Laur
+e, 194Boogaloo Bo
+ys (EE. UU.), 211Bor
+odai, Alexander, 148-149, 153, 156Bor
+ovok, Taras, 221Bosnia,
+47-48, 56, 59-61, 63, 133, 150, 225, 265, 267, 269, 280-281, 288
+B
+oyko, Yuriy, 104B
+rasil, 304B
+rătescu, Gheorghe, 13, 272B
+ratstvo, oleoducto, 255B
+reznev, Leonid, 24, 29B
+rzezinski, Zbigniew, 79, 81, 175-176, 179,
+182-184, 217-218, 225, 267, 286, 302
+B
+TC (Bakú-Tiflis-Ceyhan), gasoducto, 95-96
+B
+TG, v éase GTIA
+
+---
+
+ÍN
+DICE ONOMÁSTICO321 B
+ucha, masacre, 273-278, 287B
+ujarev, Vladislav, 191B
+ulgaria, 60, 130, 216, 258, 279-280B
+úrbulis, Guennadi, 40-41B
+urgess, Anthony, 63, 87B
+urisma Holding, compañía, 172B
+ush, George, H. W ., 32-37, 39, 41-42, 47, 59, 94, 96-98, 212, 267, 302
+B
+ush, George W ., 41, 69, 71-72, 81, 101, 288
+B
+utkévicius, Audrius, 123B
+uzek, Jerzy, 176B
+yron, Lord, 279C14 (U
+crania), 139Canadá, 250
+Car
+ter, Jimmy, 175Catalina
+II la Grande, zarina de Rusia, 129
+Cáucaso,
+región, 11, 30, 32, 38, 47, 59, 95, 102, 171, 203, 207, 209, 280
+Ceauşescu, N
+icolae, 270-271, 273Centragas H
+olding AG, compañía, 92Chatila, masacr
+e, 307Chechenia,
+59, 66, 95, 133, 148-149, 152, 222, 278
+Chemer
+ys, Volodymyr, 67Cheney
+, Dick, 41, 97, 220Chequia, 60-61, 98, 206, 216
+Cherbitsky
+, Vladimir, 29-30Chernenko, K
+onstantin, 24, 29Chernóbil,
+accidente nuclear, 12, 27-30, 32, 35, 46, 50, 198, 219, 231
+Chernomor
+ets Odessa, equipo de fútbol, 150
+Chernomyr
+din, Viktor, 64, 70Chetnik, mo
+vimiento serbio, 139Chicago Bo
+ys, 40 Chile, 40, 304
+China,
+32, 102, 183, 199-200, 202, 207,
+212, 215, 232, 239, 252, 257, 259, 289, 303
+C
+hina UnionPay (CUP), tarjetas de cré-dito, 252-253
+Chipr
+e, 55, 143, 169, 192Chopin, F
+rédéric, 297Chur
+chill, Winston, 227, 231, 264CIA
+(Agencia Central de Inteligencia), 35, 42, 75, 103
+Citiz
+enGo, lobby, 144Clancy
+, T om, 49Clinton,
+Bill, 48, 50-53, 59-60, 76, 267-268
+Clinton, H
+illary, 81, 101, 173, 181-183CNPC, compañía, 257
+COMECON
+(Consejo de Ayuda Mutua E
+conómica), 289Comunidad
+de Estados Independientes (CEI), 43, 70, 109
+Comunidad
+Económica Eurasiática, 70, 171
+Comunidad
+Judía Unida de Ucrania, 143
+Confer
+encia de Paz para Oriente Medio (
+Madrid, 1991), 39Confer
+encia de Seguridad (Múnich, 2007), 96
+Congr
+eso Mundial de las Familias, 144Consejo
+de Cooperación OTAN-Rusia, 72
+Consejo
+Europeo de Comunidades Ju-días, 143
+Consejo S
+upremo de Crimea, 130-131C
+onsorcio Internacional de Periodistas de I
+nvestigación (ICIJ), 192Cor
+ea, guerra, 239Cor
+ea del Norte, 71Cor
+ea del Sur, 24, 183-184, 201Costa, R
+obert, 173, 185, 211-212C
+OVID-19, pandemia, 11-12, 197-218, 242
+C
+rimea, 35, 39, 47, 50-51, 54, 56, 65, 97,
+124-132, 135, 146, 148, 153, 171-172,
+180, 182, 188, 195, 219, 224, 226,
+231-232, 247, 250, 268, 281, 288,
+300C
+roacia, 47, 60, 76, 133, 141, 150, 265-266, 280, 305
+C
+ruise, T om, 190C
+uba, 254
+
+---
+
+322
+322U CRANIA 22C
+uerpo de Voluntarios Ucraniano (DUK), 140, 159, 305
+C
+uestión Oriental, 11, 278-279, 288-289C
+zartoryski, Adam Jerzy, 173D’Anieri,
+Paul, 44, 47, 51, 54, 56, 58, 70-71,
+73, 93, 104, 107, 112, 118, 163-164, 219
+Dá
+esh, v éase ISIS eD
+aily News, 280 D
+ayton, acuerdos (1995), 48, 265-266, 280, 289
+D
+e Gaulle, Charles, 53D
+e Niro, Robert de, 267D
+elacroix, Eugène, 279-280D
+eniz, Ümit, 298D
+erzhava (pr orruso), 304aD
+estacamento de Voluntarios Comunis-tas (DK
+O, prorruso), 149D
+i Lauro, Marco, 280D
+iamond Offshore Drilling, compañía, 200
+D
+inamarca, 103, 258Đì
+nh Diệ m, 304 Dnepr I y II, batallones ucranianos, 140
+D
+nipro-1 (Kolomoiski), batallón ucra-niano, 143, 159, 167, 305
+D
+obkin, Mijaíl, 125D
+onbas, región, 12, 39, 45-47, 51, 53-54
+, 59, 79, 91, 93, 103, 119, 125-126, 1
+30, 132-140, 143-149, 151-160, 1
+64, 166-167, 170-172, 180, 186, 1
+88, 190-191, 194, 199, 201, 204-205, 208-
+209, 213-215, 219, 226, 228, 231-232,
+240, 246, 248-250, 259, 293, 295, 2
+97, 300, 306D
+onbass, batallón ucraniano, 140, 143, 158, 164, 305
+D
+onetsk, óblast, 39, 54, 66, 68-69, 79-80,
+125, 132-134, 136, 141, 147-149,
+151-153, 155, 157, 159, 164, 172,
+195, 246, 249, 269; v éase tam-bién
+R epública Popular de DonetskD
+ruzd, Igor, 155D
+ruzhba, oleoducto, 255DTEK, compañía, 91
+D
+ugin, Aleksandr, 147-149, 216, 303D
+uke, David, 145D
+uvalier, Jean Claude «Bébé Doc», 55E
+fremov, Oleksandr, 125, 133, 135E
+gipto, 202, 285E
+instein Foundation, 80E
+jército de Liberación de Kosovo, v éase UÇK
+E
+jército de Voluntarios (Ucrania), 245E
+jército del Gran Don (prorruso), 149E
+jército Insurgente Ucraniano (UPA), 102
+E
+jército Ortodoxo Ruso, 149E
+jército Popular Yugoslavo, 137, 262E
+l Mundo, 73, 85, 94, 98, 222, 228, 255, 287
+E
+l País, 34, 58, 60, 72, 108, 110, 132, 219, 245, 250, 276, 281
+E
+l Salvador, 165E
+liot, T . S., 27, 41E
+miratos Árabes Unidos, 202E
+rdoğan, Recep Tayyip, 10, 171, 198, 203, 232, 281, 286
+Eslo
+vaquia, 60, 93, 174, 216Eslo
+venia, 16, 27, 60, 137, 265Espacio E
+conómico Común, 70España,
+73, 137, 141, 186, 204, 224, 249, 254, 283, 299-301, 305
+Estado I
+slámico, v éase ISIS eEstonia,
+21, 38, 72, 93, 108, 123, 181, 201
+Estr
+ella Roja, equipo de fútbol, 150Estudio B
+arrio-95, v éaseB arrio-95eE
+uralT ransGas, empresa, 92E
+urasia, 47, 114, 146-149, 153, 155-156,
+164, 175-176, 179, 183, 208, 215, 228, 303, 308
+E
+uromaidan, revuelta (2009-14), 12, 1
+01-120, 122-124, 126, 128-129, 1
+31-134, 139-140, 150, 152, 158, 1
+66-167, 171-172, 176-177, 180-1
+81, 189, 227-228, 230, 245, 291-29
+2
+
+---
+
+ÍN
+DICE ONOMÁSTICO323 E
+uropa Central, 16, 183, 289, 293E
+uropa del Este, 10, 17, 27, 31-32, 47, 53,
+59, 75, 122, 172, 175-176, 220, 267, 289, 293
+F
+acebook, 189-190, 241F
+alange Libanesa, 307F
+BI (Oficina Federal de Investigación), 103
+F
+ilipchuk, Vasyl, 294, 296F
+inancial Times, 252 F
+inlandia, 56, 222, 234, 258, 281, 286F
+iore, Roberto, 144-145F
+irtash, Dmytro, 92, 104F
+itch Rating, 190F
+lota del Mar Negro (URSS/Rusia), 50, 52,
+56, 59, 61, 70, 128-129, 221, 268F
+MI (Fondo Monetario Internacional), 44, 48, 60, 65, 107, 166, 170, 185
+F
+ondo de Dotación Istoki, 144F
+ondo Ruso de Inversión, 251F
+orsvarets Efterretningstjeneste (servicio de inteligencia danés), 103
+F
+orza Nuova (Italia), 144F
+PÖ (Partido de la Libertad, Austria), 145
+F
+rance Press, 275F
+rente del Pueblo (Ucrania), 165F
+rente Nacional (Francia), 145F
+rente Ucraniano (prorruso), 125,F
+reud, Sigmund, 237F
+riedman, Milton, 40F
+ujimori, Alberto, 55F
+ukuyama, Francis, 182, 302F
+ü le, Štefan, 122y
+yF
+ullick, Roy, 17F
+undación Konrad Adenauer, 105F
+ursin, Ivan, 92G-7, 61
+G
+adafi, Muhamar el, 240, 281G
+aidar, Yegor, 40, 48G
+alatasaray, equipo de fútbol, 285-286G
+allup, empresa, 165G
+ates, Robert, 42G
+azprom, compañía, 70, 92, 257-258G
+emayel, Bashir, 307G
+eopolítica.ru, 144 G
+eorgia, 32, 66, 73-75, 80-82, 90, 94-99,
+102, 107, 173, 176-177, 203, 217, 247, 259, 282
+G
+irkin, Igor («Strelkov»), 133, 136, 148-149, 153-156
+G
+láziev, Serguéi, 135G
+lencore, compañía, 201-202G
+lobal Events Magazine online, 290 G
+oethe, Johann Wolfgang von, 279G
+ongadze, Georgiy, 66, 69, 79, 84G
+oogle, 241G
+orbachov, Mijaíl, 24-25, 28-39, 41-42, 44, 46, 50, 57-59
+G
+ore, Al, 65G
+orschinkaya, Katya, 88, 91G
+oya, Michel, 154, 156, 204, 207-208G
+ran Bretaña, 16-17, 19-20, 22, 28, 60, 78,
+96, 138, 141, 169, 181, 214, 217, 222,
+224, 232, 250, 253, 255, 279, 281, 286, 299
+G
+ran Guerra Patriótica, 149, 227; v éase también
+S egunda Guerra MundialG
+ran Recesión (2008), 94, 102, 106, 169, 1
+97, 202, 302G
+raužinienė, Loreta, 112G
+recia, 107, 141, 181, 281, 305G
+reen, Graham, 266G
+reenjolly, grupo musical, 83G
+rillo, Beppe, 188G
+rupo Wagner, 303G
+TIA (Grupos Tácticos Interarmas; B
+TG), 156-158, 160, 246G
+uardia Voluntaria (Serbia), véaseTi gresede «Ar
+kan»G
+ubarev, Pavel, 133, 148G
+uerra civil española, 137G
+uerra de secesión estadounidense, 137G
+uerra del Golfo (1990-91), 47G
+uerra Fría, 33-34, 47-48, 53, 57, 60, 71-72,
+98, 101, 103, 122, 129, 132, 174-175,
+180, 182, 184, 213, 219, 227,
+240-242, 267, 289-290, 301-
+
+---
+
+324
+324U CRANIA 22304,
+307-308; v éase también Posgue-rra F
+ríaG
+umyliov, Lev, 148G
+unvor, empresa, 201H
+aaretz, 306 H
+absburgo, familia, 174H
+ackett, John, 12, 16-25, 27-28, 30, 33, 219-220, 222-223, 242, 246, 278
+H
+aití, 55, 275H
+allen, Steve, 261H
+eimbach, Matthew, 145H
+eller, Joseph, 9, 261H
+ezbolá, 207H
+olanda, 17-18, 154, 158, 268HOS (F
+uerzas Croatas de Defensa), 141H
+ufbauer, Gary Clyde, 254H
+ugo, Victor, 279H
+ula, matanza, 281H
+uman Rights Watch, 208H
+umphrey, Hubert H., 163H
+ungría, 11, 60-61, 76-77, 79, 92-93, 145,
+174, 216-217, 227, 269-270, 276
+H
+usein, Sadam, 69, 240I
+CPS (International Centre for Policy S
+tudies), 291, 293-294, 296I
+FOR (Fuerza de Implementación de la O
+TAN), 56, 60I
+glesia ortodoxa rusa, 144, 149I
+glesia ortodoxa ucraniana, 111-112I
+kea, compañía, 91I
+mperio Austrohúngaro, 281I
+mperio Otomano, 129-130, 278-279I
+ndia, 259I
+ndjić, T rivo, 262I
+niciativa de Cooperación Polaco-Ucra-niano-Americana, 81
+I
+nstagram, 189I
+nstituto de Investigación del Diálogo de Civilizaciones, 144
+I
+nstituto Internacional Republicano (IRI), 7
+6-77, 81I
+nstituto Nacional Demócrata (NDI), 76I
+ntermarium (Międzymorze), pr oyecto po-l
+aco, 11, 13, 173-177, 203, 251, 304I
+rak, 69, 71-73, 82, 98, 127, 165, 176, 180,
+202, 217, 246, 275, 281, 283, 288, 290
+I
+rán, 71, 98, 122, 206-207, 254, 304IRI,
+v éaseI nstituto Internacional Repu-eblicano
+I
+rlanda del Norte, 138I
+rlanda, 141, 169I
+shchenko,Volodymyr, 116, 119ISIS
+(Dáesh, Estado Islámico), 102, 180, 213
+ISIS-K
+(Estado Islámico del Gran Jora-sán), 203
+I
+slas Vírgenes Británicas, 192I
+sler Morales, María Gabriela, 179I
+srael, 11, 55, 96, 142-143, 188, 202, 209, 227, 306-307
+I
+talia, 16, 141, 255, 258, 268, 305J
+apón, 41, 250J
+aresko, Natalia, 170J
+erson, batallón ucraniano, 158J
+obbik (Hungría), 145J
+ohnson, Boris, 198, 242, 249J
+ordania, 205J
+orge V , rey de Georgia, 74JPM
+organ, compañía, 259J
+ruschov, Nikita, 21, 29, 39, 130J
+usnulin, Marat, 234Kaczyński, J
+arosław, 175-176Kadír
+ov, Ramzan, 278Kalmius, brigada pr
+orrusa, 149Kamprad, I
+ngvar, 91Karadinski, A
+drian, 75Karagano
+v, Sergei, 222, 225, 227-228, 232, 237-239, 246
+Karpatska S
+ich, batallón ucraniano, 305Katehon,
+144 Kazajistán,
+39, 51, 87, 109, 172, 217, 269
+K
+ennedy, John F ., 81, 254K
+ernes, Hennadiy Adólfovich, 135
+
+---
+
+ÍN
+DICE ONOMÁSTICO325 K
+GB (Comité para la Seguridad del Es-tado, URSS), 18, 21, 35-36, 42, 132
+Kiev I y II, batallones ucranianos, 140
+Kirguistán, 74, 87, 93, 169
+Kissinger
+, Henry, 81, 225Klichkó,
+Vitaliy, 105, 110, 115, 117, 124, 152
+Kmara (‘
+Ya es suficiente’, Georgia), 80K
+ohl, Helmut, 57-58K
+olesnikov, Boris, 104, 135K
+olomoiski, Íhor, 55, 91, 143, 151, 167-168, 188-189, 192-193, 306
+K
+omov, Alexey, 144K
+ononov, Vladimir, «Tsar», 156K
+onstantinov, Vladimir, 126Ko
+rus( Acuerdo de Libre Comercio EE.sUU.-Cor
+ea del Sur), 183-184K
+ościuszko, Tadeusz, 175K
+osovo, 63, 65, 98, 114, 131, 225, 246, 261-269, 276, 288
+K
+ostyuk, Yuriy, 191K
+oštunica, Vojislav, 76K
+ozitsin, Nikolai, 154Krav
+chuk, Leonid, 34, 38, 42, 46, 50-54Kriuchko
+v, Vladimir, 36K
+roll Inc.,consultora, 69K
+uchma, Leonid, 12, 51, 53-56, 60, 64-71,
+78-80, 83, 85, 88, 90, 92, 104, 106, 110, 153, 158, 186
+K
+uleba, Dmitro, 276KUN
+(Congreso de Nacionalistas Ucra-nianos), 53
+K
+urdistán, 282, 285-286, 299K
+uwait, 278K
+uzin, Serhiy, 91K
+waśniewski, Alexander, 172L
+a Vanguardia, 123-124, 223, 247, 259 Lagar
+de, Christine, 166Latinoamérica,
+v éase América Latina Lavr
+ov, Segei, 101Lazar
+enko, Pavlo, 55Le M
+aire, Bruno, 250Le P
+en, Marine, 145, 247Leatherbarr
+ow, Andrew, 28LeBor
+, Adam, 78Lehman B
+rothers, compañía, 94Lenin,
+Vladímir I. Uliánov, 48Letonia, 20-21, 72, 93, 108, 169
+Levinson, B
+arry, 267L
+ewinsky, Monica, 267Li Z
+uocheng, 212Líbano, 207, 239, 307
+L
+ibia, 102, 180, 207, 238, 246, 281, 288, 302
+Lincoln, A
+braham, 212Lituania,
+20-21, 38, 93, 108, 112, 124, 174,
+216; v éase también República de las D
+os Naciones Long
+Range Desert Group (Gran Breta-ña), 17
+Los
+Vigilantes de Wolverine (EE.UU.), 211
+Lozano, P
+ascual, 240L
+ublin, T riángulo de (2020), 216L
+ugansk, óblast, 54, 125, 133-134, 136, 149,
+153-157, 159, 167, 195, 246, 249,
+269; v éase también República Po-pular de L
+uganskL
+ukashenko, Aleksandr, 80, 198, 216L
+ukin, Vladimir, 117L
+uns, Joseph, 286L
+utsenko, Yuri, 67, 185-186L
+yovochkin, Serhiy, 104L
+ytvyn (Ucrania), 90M
+açaes, Bruno, 237M
+acCarthy, Joe, 240M
+acedonia, 265M
+acGahan, Januarius, 280M
+acron, Emmanuel, 193-194, 257M
+AD (Destrucción Mutua Asegurada), 19, 24, 259
+M
+aduro, Nicolás, 200M
+agreb, región, 247M
+alaysia Airlines, 10, 154M
+aloféyev, Konstantin, 144-145, 149M
+asada, fortaleza judía, 306M
+asterCard, tarjetas de crédito, 252M
+azin, Craig, 28
+
+---
+
+326
+326U CRANIA 22M
+azower, Mark, 279M
+cCain, John, 81, 88, 113M
+edvedchuk, Víktor, 230, 245M
+elnyk, Andrej, 244M
+enderes, Adnan, 286M
+erkel, Angela, 103, 105, 111, 124, 193-194
+M
+eshkov, Yuri, 54, 131M
+etalist Járkov, equipo de fútbol, 150M
+etinvest, empresa, 91, 135M
+éxico, 132, 199, 201, 303MH17,
+avión coreano derribado, 10, 154-155, 295-296
+M
+illey, Mark, 212M
+ilošević, Slobodan, 31, 55, 64, 76-78, 240, 266
+M
+insk I y II, acuerdos (2014-15), 158-160,
+163-164, 166, 171, 194, 213, 269, 290
+M
+itterrand, François, 58M
+ogilev, Anatoly, 127M
+oldavia, 32, 74, 87, 107, 216, 220, 228, 269
+M
+ontenegro, 76M
+ontherlant, Henry de, 139M
+orales, Javier, 146M
+oroz, Oleksandr, 66, 89M
+orozov, Evgeny, 241M
+oshes, Arkady, 56M
+ovimiento Cinco Estrellas (Italia), 188M
+ovimiento Popular de Ucrania (NRU, R
+uj), 53, 67M
+ueller, Robert, 181M
+urphy, Chris, 114N
+aciones Unidas, v éase ONU eN
+agorno-Karabaj, 12, 95, 203-209, 217, 220,
+246-247, 287; vé aset ambiénA rtsajnN
+apoleoni, Loretta, 169N
+asha Ukraina, véase N uestra UcraniaN
+ashi (prorruso), 304N
+avarino, batalla (1827), 281N
+azarabayev, Nursultán, 39N
+ED (National Endowment for Demo-cracy), 75, 80, 296
+N
+ew York Herald, 280 N
+icolás II, zar de Rusia, 303N
+ikonov,Vyacheslav, 80N
+ixon, Richard, 81, 182N
+ord Stream, gasoducto, 93-94, 244N
+ord Stream-2, 244, 249-250, 254-257N
+ovo-Ogariovo, acuerdo (1991), 32N
+ovorrósiya, véaseN ueva RusiaeN
+RU, v éase M ovimiento Popular de Ucra-nia
+NSA
+(Agencia de Seguridad Nacional; EE. UU.), 36-37, 103, 124
+N
+uestra Ucrania ( Nasha Ukraina), 68, 80, 82, 89-90
+N
+ueva Europa, 11, 176, 251, 257, 304N
+ueva Eurosiberia, 215N
+ueva Rusia ( Novorrósiya), 148- 149, 228N
+ueva Ucrania, 90N
+ueva Zelanda, 169N
+uevo Orden Mundial/Internacional (NW
+O), 41, 94, 102, 202, 267, 302N
+uland, Victoria, 114, 124N
+uri Birgi, Muharrem, 286O
+ath Keepers (EE.UU.), 211O
+bama, Barack, 101-102, 170, 173, 180-181, 213
+O
+ceanía, 301, 308O
+desskaya Druzhina (prorrusos), 125O
+ffice for Yugoslavian Affairs (OYA), 76O
+ficina de Diseño de Maquinarias de M
+orózo (JMDB), 221O
+ficina Nacional Anticorrupción, 185-186
+OMON, antidisturbios r
+usos, 112O
+murbekov, Azatbek, 278O
+NU (Organización de Naciones Uni-das),
+47, 61, 63, 73, 98, 124, 131, 202, 226, 275, 280
+O
+pen Society Institute, 75, 296, 307O
+peración Ciclón, 302O
+peración Cóndor, 35O
+peración Libertad Duradera, 72O
+plot (prorruso), 134, 147, 156O
+plot Donbassa, 125
+
+---
+
+ÍN
+DICE ONOMÁSTICO327 O
+plot Járkov, 125O
+posición de Izquierdas (prorruso), 304O
+rganización del T ratado de Seguridad Colectiv
+a (OTSC), 217O
+riente Medio, 33, 39, 69, 102, 180, 202, 215, 277, 280
+O
+rwell, George, 240-241, 261, 308-309O
+SCE (Organización para la Seguridad y
+la Cooperación en Europa), 60, 153, 158, 276
+O
+setia del Sur, 95-96, 99O
+skanian, Kevork, 208O
+slo, acuerdos (1993), 48O
+TAN, 17-20, 22, 24, 52-53, 56-61, 63-64,
+69, 72-73, 96-98, 120, 127, 130-131,
+142, 144-145, 181, 184, 202-203,
+208, 213-215, 217, 221, 223-227,
+232, 237-240, 243-244, 246,
+257-259, 267-268, 276, 278, 281, 286-288, 300, 302, 306
+O
+tpor (‘Liberación’, Serbia), 76-77, 80, 111
+OUN, batallón ucraniano, 140
+P
+acto de Varsovia, 15-19, 24, 42, 52, 57-58, 60, 72, 221, 248
+P
+aet, Urmas, 123P
+aíses Bálticos, 19, 21, 27, 30, 32, 38, 60,
+64, 72, 81, 122-123, 169, 174, 177,
+203, 215-217, 220, 244, 291-292, 304
+P
+akistán, 49, 202, 259, 278P
+alamar, Svyatoslav, 306P
+alestina, 17, 48, 307P
+anamá, 169«
+Papeles de Pandora», 192-193, 245P
+arasiuk, Volodímir, 117, 158P
+artenariado, v éaseA sociación para la ePa
+zP
+artido Comunista de la Unión Soviética (PCUS), 21, 30, 35, 38
+P
+artido Comunista de Ucrania (KPU), 29, 38, 53, 68
+P
+artido Comunista de la RSS de Ucra-nia, 130
+P
+artido Conservador (Gran Bretaña), 28
+6P
+artido de la Unidad (Ucrania), 127P
+artido de las Regiones (Ucrania), 68, 79,
+86, 89-91, 103-105, 108, 117-119,
+121, 125, 133-136, 146-147, 165
+P
+artido de Sharí (Ucrania), 304P
+artido Demócrata (EE. UU.), 48, 75-76,
+114, 181-182, 184-185, 212-213, 227
+P
+artido Ley y Justicia (Polonia), 175-176, 304
+P
+artido Popular Europeo, 105P
+artido Radical (Serbia), 139P
+artido Republicano (EE. UU.), 34, 41, 75-76, 113, 180-181, 212-213
+P
+artido Social-Nacional de Ucrania (
+PSNU), 105, 113, 293-294P
+artido Socialista de Ucrania, 53, 66-67, 89-90, 304
+P
+artido Socialista Progresista (Ucrania), 304
+P
+arubiy, Andriy, 113P
+ashinián, Nikol, 204, 206P
+ashkov, Alexei, 191P
+avelko, Aleksei, 170P
+avloski, Gleb, 80P
+enn, Sean, 243P
+ersia, 110, 283P
+erú, 55, 119P
+eskov, Smitry, 210P
+etrov, Stanislav, 24PCUS,
+v éaseP artido Comunista de la eU
+nión SoviéticaP
+iłsudski, Józef, 173-174P
+inchuk, Viktor, 90-91P
+inochet, Augusto, 40, 49P
+itarch, Pedro, 224-225P
+ivovarskiy, Andrei, 170P
+lataforma de Oposición-Por la Vida, 230, 304
+P
+lokhy, Serhii, 30, 32, 34, 39, 41-42P
+lotnitski, Ígor, 158y
+P
+obedonostseva, Irina, 191
+
+---
+
+328
+328U CRANIA 22P
+olonia, 11, 13, 16, 18-21, 23, 27, 40, 60-61,
+79, 81, 93-94, 98, 102, 108, 112,
+116-117, 149, 165, 172-177, 181,
+183, 214, 216-217, 220, 227-228,
+237, 244, 248, 258, 291, 297, 304;
+v éase también República de las D
+os NacionesP
+onomarev, Vyacheslav, 136P
+opski’s Private Army, 17P
+ora (‘Ya es hora’, Ucrania), 80, 82P
+oroshenko, Petró, 12, 89, 91, 104, 152-153,
+158, 163-165, 167, 169-170, 176-177,
+182, 185-189, 194, 213, 269
+P
+ortugal, 122, 254P
+osguerra Fría, 60, 169, 251, 288P
+osse Comitatus (EE.UU.), 211P
+owell, Colin, 81P
+ravy Sektor( ‘Sector de Derechas’, Ucra-rnia),
+111, 118, 120, 139-140, 142-144, 150-151, 159, 245, 305
+P
+rimakov, Evgeni, 60P
+rimavera Árabe (2011), 102, 122, 124,g
+180, 189, 213
+P
+rimera Guerra Mundial, 38, 129, 174, 240, 281, 289
+PRISM, pr
+ograma de vigilancia, 103P
+rivatBank, 168, 191, 193P
+rizrak, brigada y batallón prorrusos, 149, 160
+P
+rotasiewicz, Jacek, 176P
+royecto Ortodoxo Rojo, 149P
+rusia, 144, 174P
+ulaski, Casimir, 175P
+utin, Vladimir, 12, 39, 41, 54, 65, 68, 70,
+72, 80, 85, 90, 92, 94-99, 102, 104,
+106, 109, 114, 127, 131-132, 135,
+147-149, 153, 155, 163, 167, 169,
+174, 177, 179-182, 184-185, 193-194,
+198, 201-202, 206, 212-213,
+215-220, 222-228, 230-233, 238-239,
+243, 246, 249-251, 255, 258-259,
+267-268, 288, 290, 302-303, 305-308
+P
+yatt, Geoffrey, 124, 169-170Q
+atar, 202Qosja, R
+exhep, 264-266Račak, matanza, 281
+Radix (Alternativ
+e Right.com), 142Ražnato
+vić, Željko, «Arkan», 139e Right.com), 142
+R
+DA (República Democrática de Ale-mania),
+v éase Alemania eR
+eagan, Ronald, 23-24, 28, 71, 75, 81, 98, 188, 212, 255
+R
+eino Unido, v éaseG ran BretañaeR
+enck, Johan, 28R
+epública Checa, v eáse Chequia eR
+epública de las Dos Naciones (Polonia y Lituania), 174, 216
+R
+epública Popular de Donetsk (RPD), 132-134,
+136, 147-148, 151, 153, 155-156, 158, 163, 227, 249
+R
+epública Popular de Lugansk (RPL), 133,
+136, 151, 155, 158, 163, 227, 249
+R
+euters, 210R
+evolución de las Rosas (Georgia), 73, 80-81, 95
+R
+evolución de los Claveles (Portugal), 122
+R
+evolución de los T ulipanes (Kirguis-tán), 93
+R
+evolución de T erciopelo (Armenia), 204
+R
+evolución de T erciopelo (Checoslova-quia), 122
+R
+evolución del Bulldozer (Serbia), 75R
+evolución Naranja (Ucrania), 12, 78-85,
+87-89, 91, 93, 97, 104, 110-112, 118, 122, 132, 152, 189
+R
+evolución Verde (Irán), 122R
+éznikov, Oleksii, 304R
+FA (República Federal de Alemania), v
+éase Alemania eRIA N
+ovosty, 48Richar
+ds, Andy, 29Rimbaud, Ar
+thur, 101Rizzi, Andr
+ea, 281R
+odríguez Zapatero, José Luis, 283
+
+---
+
+ÍN
+DICE ONOMÁSTICO329 R
+onco Consulting Corp., compañía, 77
+R
+oosevelt, Franklin D., 212R
+oshen, compañía, 91R
+osNeft, compañía, 93, 200-202R
+osUkrEnergo,compañía, 92R
+oyal Dutch Shell, compañía, 172RP
+D, v éaseR epública Popular de Do-en
+etskRP
+L, véaseR epública Popular de LuganskeR
+uanda, 150R
+ugova, Ibrahim, 264R
+uiz Ramas, Rubén, 125, 134-135, 146, 151
+Ru
+j, vé aseM ovimiento Popular de UcraniaeR
+umanía, 10, 60, 122-123, 174, 214-216, 227, 248, 269-273, 276
+R
+umsfeld, Donald, 176, 286R
+usia Unida, 68R
+ussell, Bertrand, 121R
+ussia T oday, 241 R
+utskoi, Aleksandr, 39, 49, 52R
+yabchuk, Oleh, 88S
+aakashvili, Mijeíl, 73-74, 81, 90, 95-96, 99, 176-177
+S
+abra, masacre, 307S
+achs, Jeffrey, 40-41S
+afire, Willian, 34S
+ahel, region, 102S
+akwa, Richard, 55, 152, 165, 167S
+aladino, caudillo musulmán, 285S
+an Basilio el Grande, fundación, 144S
+anta Alianza, 144, 303S
+arajevo, 50S
+BU (Servicio de Seguridad de Ucrania), 119,
+123, 132-133, 135-136, 154, 191, 193, 214, 229, 294
+Scholz, O
+laf, 250Schr
+öder, Gerhard, 93Schulz, M
+artin, 122Sco
+wcroft, Brent, 37Scr
+uton, Roger, 261S
+echin, Igor, 201S
+ecuritate (Rumanía), 123, 270S
+egunda Guerra Mundial, 17, 21, 38, 102,
+114, 129, 142, 146, 157, 160, 226-227,
+229, 270, 276; v éase tam-bién
+Gran Guerra PatrióticaS
+elahattin, véaseB eyazit, SelahattineS
+emenchenko, Semén, 158, 164S
+erbia, 31, 55, 59, 63-64, 75-78, 80, 133,
+137, 139, 262-268, 279-281, 289, 302, 305
+S
+errano, Pascual, 230, 241, 252-253, 256-257, 276
+S
+ervidor del pueblo, serie televisiva, 187, 189
+S
+ervidor del pueblo, partido (Ucrania), 187, 189, 191-192, 230
+Š
+eŠelj,Vojislav, 139S
+harí, Anatoli, 304S
+harp, Gene, 77, 80, 82, 111S
+hefir, Serhiy, 191-193S
+hevardnadze, Edvard, 57, 73-74S
+hevchenko, Tarás, 293S
+hushkévich, Stanislav, 42S
+hyikov, Vitali, 225S
+ich, batallón ucraniano, 140S
+ikorski, Radoslaw, 94, 117, 176S
+iria, 102, 124, 180, 199, 202, 204, 207,
+209, 213, 217, 247, 280-281, 285, 288, 303
+S
+ivojo, Sergei, 191S
+mith, Adam, 212S
+nowden, Edward, 103, 124S
+nyder, Timothy, 145S
+obchak, Anatoli, 39S
+ocialismo Soviético Ortodoxo, 149S
+okol, batallón ucraniano, 140S
+olana, Javier, 60S
+olidaridad, sindicato, 16, 19, 23S
+omalia, 239S
+omalia, batallón ucraniano, 159S
+parta, batallón ucraniano, 159S
+pecial Air Service, 17S
+pencer, Richard, 145S
+putnik, 241 S
+oros, George, 296S
+rebrenica, masacre, 276, 280
+
+---
+
+330
+330U CRANIA 22S
+tack, Graham, 169S
+talin, Iósif, 29, 48, 157, 303S
+tankevich, Serguéy, 39 S
+TART I y II, tratados, 33, 35, 50-51S
+tetskiv, Taras, 82S
+tewart, James, 284S
+togniy, Konstantyn, 91S
+toker, Bram, 270S
+tone, Oliver, 106S
+tormfront, 143 S
+tratCom, 222, 224, 233, 240, 276, 308S
+trategic Marketing, compañía, 76«S
+trelkov», v éaseG irkin, IgoreS
+troupe, Joseph, 290S
+udán del Sur, 69S
+uecia, 20, 141, 263, 281, 286, 291S
+uiza, 92, 158, 188, 202, 250S
+urkis, Hryhoriy, 91S
+voboda( ‘Libertad’; Ucrania), 105, 110,a120, 139, 144, 293
+Ś
+więcicki, Marcin, 112S
+WIFT (Society for World Interbank Fi-nancial
+T elecommunication), 250-251
+S
+ystem Capital Management (SCM H
+oldings), 91, 135S
+ZR (Servicio de Inteligencia Exterior, U
+crania), 191,Ta
+b l e t ,  r evista, 306T
+aleb, Nassim N., 10, 301talibanes, mo
+vimiento, 202-203T
+amás, Gáspar M., 108, 307T
+aruta, Serhiy, 91T
+ayikistán, 47T
+elón de Acero, 10Thatcher
+, Margaret, 58, 286The
+Economist, 232-233, 242, 249, 278, 302
+The G
+uardian, 258 The N
+ew Statesman, 237 The N
+ew York Times, 34 The R
+olling Stones, 197, 202Thiriar
+t, Jean, 215Thr
+ee Percenters (EE.UU.), 211Thr
+ee Seas Initiative (3SI), 174-175, 216, 304
+T
+iahnibok, Oleh, 105, 113, 122, 145, 293
+T
+iempo devorado, 291 T
+igres de «Arkan» (Guardia Voluntaria, S
+erbia), 139, 150T
+imchenko, Gennady, 201 T
+imişoara, represión, 13, 269-281T
+imoshenko, Yulia, 67-68, 70, 80, 82, 85,
+87, 89-90, 94, 101, 103-105, 107-109, 115, 152, 165
+«
+Tito», Josip Broz, 16, 265Tkachenko, M
+axim, 191T
+opaz, factoría, 69T
+örnqvist, T orbjörn, 201T
+raditionalist Youth Network, 142T
+rafigura, compañía, 17T
+rans-Jordan Frontier Force, 17T
+ransparencia Internacional, 185T
+ratado de Fuerzas Nucleares de Alcance M
+edio (1987), 28T
+ratado de Misiles Antibalísticos (1972), 71
+T
+ratado de No Proliferación Nuclear, 51T
+raverso, Enzo, 11T
+rofimov, Sergiy, 191T
+rubetskoi, Nikolai, 147T
+rump, Donald, 129, 179-185, 187, 190,
+193, 195, 198-199, 202, 211-213,
+215, 217-218, 239, 242, 244, 258, 303-304
+T
+udjman, Franjo, 266T
+urchinov, Oleksandr, 121-122, 128, 137-138, 165
+T
+urkmenistán, 45, 92, 171, 203T
+urquía, 10-11, 13, 20, 95-96, 129, 171,
+183, 198, 203-207, 209-210, 220-221,
+232, 247, 264, 268, 279, 281-283, 285-287, 297-300, 304
+T
+witter, 179, 209, 241, 243, 248, 296«
+Ucrania sin Kuchma», movimiento, 67U
+ÇK (Ejército de Liberación de Koso-v
+o), 133, 266
+
+---
+
+ÍN
+DICE ONOMÁSTICO331 U
+dovenko, Hennady, 57U
+krnafta, compañía, 167U
+krspecexport, compañía, 69UNA-UNSO
+(Asamblea Nacional Ucra-n
+iana-Autodefensa Popular Ucraniana), 67, 139-140
+UD
+AR, vé aseA lianza Democrática Ucra-en
+iana para la ReformaU
+nión Aduanera Euroasiática, 106, 109-110
+U
+nión de Izquierdas (prorruso), 304U
+nión Demócrata Cristiana (Alemania), 105
+U
+nión Europea (UE), 11, 53, 57, 69-7
+0, 81, 92-93, 96, 98, 105, 112-113, 1
+20, 122-124, 140, 145, 167, 169, 1
+73, 175, 177, 184, 199, 210, 216-2
+17, 250-251, 253, 255-259, 275, 2
+83, 289, 304-305; v éase tambiénA
+cuerdo de Asociación de Ucrania c
+on la UEU
+nionPay, v éase China U nionPayeU
+nión Soviética (URSS), 12, 16-24, 2
+7-52, 54-60, 65, 70-72, 74, 79, 93, 9
+6-98, 108-109, 128, 130, 133, 147-1
+49, 151, 157, 173-174, 177, 180, 2
+06, 214-217, 219-222, 225-229, 2
+48, 255, 267, 271, 276, 288, 301-303
+UNSO, batallón ucraniano, 140
+U
+ralvagonzavod, factoría, 249U.S.
+Agency for International Develop-ment, 76
+US N
+ews & World Report, 23 USAID
+(Agencia de los Estados Unidos para el D
+esarrollo Internacional), 77USIA
+(US Information Agency), 263-264, 266
+U
+zbekistán, 278V
+ăn Minh, Dươ ng, 304 V
+ariag, batallón prorruso, 149V
+enezuela, 179, 199-200V
+iena, congreso (1814-15), 144V
+ietnam, 239, 266, 304V
+iking, corredor ferroviario, 177, 291V
+isa, tarjetas de crédito, 252Vlaams B
+elang (flamencos), 145V
+ostok, brigada y batallón prorrusos, 147, 1
+52, 159W
+affen SS, 142, 164W
+atergate, escándalo, 182W
+ells., H. G., 22, 220W
+est, Morris, 22W
+hiting Petroleum Corporation, com-pañía, 200
+Whitmer
+, Gretchen, 212W
+ikileaks, filtraciones, 103, 181 W
+ojtyla, Karol, 23W
+oodward, Bob, 183-185, 212Xi J
+imping, 232 X
+Keyscore, programa de vigilancia, 103
+Y
+abloko (Rusia), 117Y
+akunin, Vladimir, 191Y
+anukovich, Viktor, 12, 79-81, 83-85, 8
+7, 89, 101-109, 111-112, 114-1
+19, 121-127, 134, 136, 138, 146-1
+47, 152, 158, 166, 186, 230, 245, 29
+0Y
+arosh, Dmitró, 118, 245Y
+atseniuk, Arseniy, 115, 122, 165Y
+avlinski, Grigori, 40Y
+ázov, Dmitri, 36Y
+eltsin, Boris, 31-32, 35-40, 42, 44, 46-52,
+58-59, 61, 64-65, 131, 148, 169, 225, 231, 267, 303
+Y
+emen, 124, 207Yinyis
+Yan, 16Y
+ouT ube, 13, 174, 221, 241Y
+ugoslavia, 10, 16-17, 27, 31, 47, 59-60,
+76, 122-123, 133, 137, 150, 208, 238,
+256, 261-262, 265, 268, 276, 288-289, 305-306
+Y
+ushchenko, Viktor, 12-13, 65, 68, 70, 78,
+80-91, 97, 101-103, 105, 115, 152, 186
+
+
+---
+
+332
+332U CRANIA 22Z
+a Yedinu Ukrainu ( ZYU, ‘Por una Ucra-nia U
+nida’), 68Z
+ajarchenko, Aleksandr, 134, 147, 156, 158
+Z
+apatero, v éaseR odríguez Zapatero, JoséeLu
+isZ
+avitnevich, Alexander, 191Z
+avtra, 148 Z
+elenski, Volodímir, 12, 187-195, 1
+98, 211, 213-214, 230-233, 240, 2
+44-245, 248, 264, 269, 278, 304-30
+7Zhv
+ania, David, 85-86Z
+OG (Gobierno de Ocupación Sionis-ta), 142
+ZYU, v
+éase Z a Yedinu Ukrainu
+
+---
+
+
+
+---
+
+
+
+---
+
+
+
+---
+
